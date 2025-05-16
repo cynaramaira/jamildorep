@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Bolsonaro diz que vai atuar para restabelecer democracia na Venezuela"
+date: 2019-02-28
+tags: Bolsonaro,DEMOCRACIA,Venezuela
+author: None
+---
+Agência Brasil - Depois da reunião no Palácio do Planalto, o presidente Jair Bolsonaro (PSL) manifestou publicamente seu apoio ao presidente autodeclarado interino da Venezuela, Juan Guaidó. Em declaração à imprensa, na tarde desta quinta-feira (28), Bolsonaro afirmou que o Brasil vai atuar, dentro da legalidade, para restabelecer a democracia no país vizinho.
+“Nós não pouparemos esforços dentro da legalidade, da nossa Constituição e das nossas tradições para que a democracia seja restabelecida na Venezuela. E isso só será possível com eleições limpas e confiáveis. Nos interessa uma Venezuela livre, próspera e economicamente pujante”, disse o presidente.
+Bolsonaro criticou governos anteriores do Brasil por terem dado apoio ao presidente venezuelano, Nicolás Maduro. “Faço uma mea culpa aqui, porque dois ex-presidentes do Brasil fizeram parte do que está acontecendo na Venezuela hoje. Essa esquerda gosta de tanto de pobre que acabou multiplicando-os, e a igualdade buscada por eles foi por baixo. Queremos uma igualdade para cima, na prosperidade”, afirmou.
+O presidente brasileiro pediu permissão para chamar Guaidó de “irmão” e afirmou que continuará apoiando as decisões do Grupo de Lima em favor da mudança de política no país vizinho, “por liberdade e democracia”. Ao final de seu pronunciamento, apertou a mão do colega.
+Em seu pronunciamento, o presidente autoproclamado da Venezuela – que é o presidente da Assembleia Nacional, equivalente ao Congresso Nacional venezuelano, – agradeceu o apoio do governo brasileiro na ajuda humanitária ao país vizinho e classificou o encontro com Bolsonaro como um marco no resgate das relações entre os dois países.
+“É um marco para resgatar um relacionamento positivo que beneficie nossa gente. Na Venezuela, estamos lutando por eleições livres, no marco da Constituição, democráticas”, afirmou o líder opositor, reconhecido por mais de 50 países, incluindo o Brasil, como presidente legítimo do país.
+Guaidó citou também o número de 300 mil venezuelanos em situação de “emergência de morte” e outros 3 milhões em risco humanitário em decorrência da crise política e econômica que afeta o país. Para o presidente interino, a Venezuela não vive um dilema entre dois grupos ou duas ideologias, mas sim entre ditadura e democracia, entre miséria e prosperidade.
+Guaidó chegou ao Brasil na madrugada desta quinta-feira (28). Em sua conta pessoal no Twitter, ele disse que veio ao Brasil em busca de apoio para a transição de governo na Venezuela. Antes do encontro com Bolsonaro, ele esteve com representantes diplomáticos de outros países no escritório da delegação da União Europeia, em Brasília.

@@ -1,0 +1,35 @@
+---
+layout: post
+title: "Dilma defende consulta para que população decida se quer novas eleições"
+date: 2016-06-10
+tags: Bento Alquerque,Dilma,eleições,população
+author: None
+---
+Da ABr - A presidente afastada Dilma Rousseff defendeu, nessa quinta-feira (9), em entrevista especial concedida à TV Brasil, uma consulta popular caso o Senado não decida pelo seu impedimento. Ao apresentador Luís Nassif, Dilma disse que é a população que tem que dizer se quer a continuidade de seu governo ou a realização de novas eleições. “O pacto que vinha desde a Constituição de 1988 foi rompido e não acredito que se recomponha esse pacto dentro de gabinete. Acredito que a população seja consultada”, disse.
+LEIA MAIS:
+&gt;&gt; Após viajar em voo fretado pelo PT, Dilma diz que governo Temer quer silenciá-la
+&gt;&gt; Humberto Costa diz que acusação não prova que Dilma cometeu crime de responsabilidade
+Para ela, o País não conseguirá superar a crise com o governo interino. Dilma acredita que o povo não terá confiança no comando de Temer pelo fato de ele não ter passado pelo crivo das urnas. “Como você acha que alguém vai acreditar que os contratos serão mantidos se o maior contrato do País, que são as eleições, foi rompido?", indagou. “Não acho possível fazer pacto nenhum com o governo Temer em exercício”, completou.
+Dilma criticou uma vez mais a admissibilidade do processo de afastamento usando como o argumento o fato de que, embora a Constituição preveja o impeachment, ela também estipula que é preciso haver crime para que se categorize o impedimento. “Não é possível dar um jeitinho e forçar um pouquinho e tornar esse artigo elástico e qualificar como crime aquilo que não é crime. Os presidentes que me antecederam fizeram mais decretos do que eu. O senhor Fernando Henrique [Cardoso] fez entre 23 e 30 decretos do mesmo tipo”, disse, referindo-se aos decretos de suplementação orçamentária que embasaram o pedido de impeachment feito pelos advogados Hélio Bicudo, Miguel Reale Jr. e Janaína Pascoal.
+&gt;&gt; Delator diz que pagou US$ 4,5 milhões para campanha de Dilma Rousseff
+&gt;&gt; Auditor do TCU diz que práticas fiscais do governo Dilma foram atos “graves”
+“Não é o meu mandato, mas as consequências que tem sobre a democracia brasileira tirar um mandato. Isso não afeta só a Presidência da República, afeta todos os Poderes”, disse ela.
+Dilma disse que reivindica voltar ao posto por compreender que não cometeu crime. Ela criticou os que defendem um semiparlamentarismo, ou eleição indireta, por considerar que isso traria um grande risco ao País. A presidente afastada defendeu que haja uma reforma política que discuta o tema. "Não temos que acabar com o presidencialismo, temos que criar as condições pela reforma política".
+&gt;&gt; Pesquisa CNT: 68,2% acham que Dilma sofrerá impeachment
+&gt;&gt; Dilma diz à Al Jazeera que faltam seis votos para barrar impeachment no Senado
+Nesse contexto, ela defendeu novamente a consulta popular. “Só a consulta popular para lavar e enxaguar essa lambança que está sendo o governo Temer”. Segundo ela, nos momentos de crise pelo qual o Brasil passou, na história da democracia recente, foi com o presidencialismo que o País superou as crises. "Foi sempre através do presidencialismo que o País conseguiu dar passos em direção à modernidade e à inclusão".
+Eduardo Cunha
+Para Dilma, no final do seu primeiro mandato, começou a se desenhar, especialmente na Câmara dos Deputados, um movimento político “do centro para a direita”, com o surgimento de pautas conservadoras, processo, segundo ela, comandado pelo então líder do PMDB e hoje presidente afastado da Casa, Eduardo Cunha (RJ). “Ele é o líder da direita no centro. O processo culmina na eleição dele”, disse.
+Com a ascensão de Cunha à presidência da Câmara, a interlocução do governo com o Casa ficou inviabilizada, de acordo com ela, porque o peemedebista tem “pauta própria”. “O grande problema de compor com o Eduardo Cunha é que ele tem pauta própria. No momento em que o centro passa ter pauta própria, uma pauta conservadora, a negociação fica difícil”. Dilma voltou a defender a tese de que o peemedebista acatou a denúncia dos advogados contra ela em retaliação ao fato de o PT não ter se comprometido a votar, no Conselho de Ética, contra a abertura do processo de cassação do mandato de Cunha.
+&gt;&gt; Temer cancela indicações feitas por Dilma para diretorias da Antaq e ANS
+"Atribui-se a mim não querer conversar com parlamentares. Agora, não tem negociação com certo tipo de práticas. Quando começa o aumento da investigação que a Procuradoria-Geral da República faz sobre ele [Cunha], qual a reação dele? Ou você me dá três votos ou eu aceito a questão do impeachment. E a imprensa relata. Trata-se de uma chantagem explícita.”
+Política externa
+A presidente afastada também criticou as ações tomadas pelo ministro das Relações Exteriores, José Serra, em relação a alguns Países vizinhos. Ela defendeu a aproximação do Brasil com Países da região e com a África, iniciada no governo Lula e mantida na sua gestão. "Fomos capazes de refazer nossas relações com a América Latina e com a África. Ter uma visão de fechar embaixada é ter uma visão minúscula da política externa".
+Lava Jato
+Perguntada sobre a Operação Lava Jato e os casos de corrupção deflagrados no País recentemente com a ação da Polícia Federal e do Ministério Público, Dilma que disse que o grande problema da corrupção é o controle privado que se faz das verbas do Estado. “Não se pode fazer a escandalização de investigações sobre o crime de corrupção. O que tem que se fazer é, doa a quem doer, investigar e punir. Quando for as empresas é aplicar multas. Há uma hipocrisia imensa em relação a essa questão das investigações”.
+&gt;&gt; Lewandowski rejeita recurso de Dilma para incluir áudios de Machado no processo
+Celso Kamura
+Sobre as denúncias de que teve despesas com cabeleireiro pagas com dinheiro de propina, Dilma disse ter comprovantes de todas gastos que teve com o cabeleireiro Celso Kamura e a cabeleireira particular que a acompanha até hoje.
+Dilma contou que conheceu Kamura após o fim do tratamento a que se submeteu para combater um linfoma, em 2009, por meio da empresa responsável por sua campanha à presidência. Kamura, segundo ela, a ajudou na fase em que seus cabelos voltaram a crescer. Para ela, esse tipo de acusação é uma tentativa intimidá-la. "Eles não vão me calar porque vão falar do meu cabelo. A sorte é que tenho todos os comprovantes do pagamento, de transporte dele [Kamura] e da minha cabeleireira particular. Também disseram que comprei um teleprompter. Já viu alguém ter um teleprompter pessoal? Para que eu quero um teleprompter? Essa eu achei fantástica", ironizou, referindo-se ao aparelho usado pelas TVs que mostra o texto a ser falado por apresentadores de telejornais e programas jornalísticos.
+Íntegra
+O vídeo com a entrevista da presidente Dilma Rousseff pode ser vista no seguinte linkhttps://bit.ly/DilmaTVBr.

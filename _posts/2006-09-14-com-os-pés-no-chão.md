@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Com os pés no chão"
+date: 2006-09-14
+tags: Apes,Riachão
+author: None
+---
+Por Inaldo SampaioNa coluna Pinga Fogo, no JC de hojeDe tudo o que arrecada de impostos, o governador de Pernambuco é obrigado a aplicar 25% em educação, 15% na saúde e 13% na amortização da d?vida. Com mais a folha de pessoal e o duodécimo dos outros poderes (Legislativo, Judiciário e Ministério Público), sobra muito pouco para investimento. Da? nenhum dos três principais candidatos ao governo estadual ter vindo a público até o momento para fazer promessas irresponsáveis. Promete-se apenas o feijão-com-arroz como, por exemplo, melhorar o aparelho policial para reduzir os ?ndices de violência, oferecer ensino profissionalizante à juventude, construir mais hospitais na área metropolitana do Recife, e vai por a?. Isso é positivo para a população e também para a democracia. Significa, na pior das hipóteses, que todos eles estão conscientes das limitações financeiras do Estado. Não adianta prometer aquilo que não se vai cumprir porque o eleitor está descrente de promessas e muito desconfiado com os pol?ticos. Afinal de contas, desde o episódio “Waldomiro Diniz??? o noticiário pol?tico está tomado por matérias de cunho policial: mensaleiros, vampiros, sanguessugas, etc. Seguramente é por essa razão que 64% dos eleitores do Brasil dizem não ter candidato para as 513 vagas da Câmara Federal. Se o futuro ocupante do Palácio do Campo das Princesas, seja ele quem for, comprometer-se a fazer um governo austero, sério e anti “Papai Noel???, já terá prestado um bom serviço ao Estado. 

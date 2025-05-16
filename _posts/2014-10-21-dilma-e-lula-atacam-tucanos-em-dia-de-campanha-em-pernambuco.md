@@ -1,0 +1,28 @@
+---
+layout: post
+title: "Dilma e Lula atacam tucanos em dia de campanha em Pernambuco"
+date: 2014-10-21
+tags: campanha,Dilma,Lula,pernambuco
+author: None
+---
+ Foto: Bobby Fabisak/JC Imagem
+Por Amanda Miranda, especial para o Blog de Jamildo
+Cada um do seu jeito, mas ambos dentro da estratégia para tentar levar o segundo turno no único estado onde perderam no Nordeste, os petistas Dilma Rousseff e Lula usaram esta terça-feira (21), dia de campanha em Pernambuco, para atacar os tucanos. O candidato adversário, Aécio Neves (PSDB), e o presidente que antecedeu Lula no Palácio do Planalto, Fernando Henrique Cardoso (PSDB), foram os alvos principais nos atos em Petrolina, no Sertão; em Goiana, na Zona da Mata; e, já à noite, no Recife.
+LEIA MAIS
+» Dilma diz que tucanos vestiram “pelezinha de cordeiro”
+» Em Pernambuco, Dilma faz defesa dos bancos públicos contra auditorias
+» No Sertão de Pernambuco, Dilma critica falta de água em São Paulo
+» Em Goiana, rua que dá acesso ao palanque de Lula e Dilma tem vários cavaletes de Aécio
+» Em Goiana, Dilma bem que poderia falar algo sobre atraso no projeto do Arco Metropolitano
+» Dilma garante que não fará retaliação à gestão de Paulo Câmara
+Dilma e Lula chegaram à capital pernambucana por volta das 18h30, com as principais lideranças aliadas no Estado, como os candidatos que não conseguiram se eleger Armando Monteiro Neto (PTB) e João Paulo (PT). Os petistas foram direto para o carro aberto usado no evento com milhares de militantes pela Rua do Hospício, Avenida Conde da Boa Vista e Avenida Guararapes, terminando na Praça da Independência, onde subiram em um trio elétrico para discursar. Próximo ao carro, houve tumulto para tocar a mão da candidata e do ex-presidente - ou tirar uma "Rousselfie" - e políticos como a vereadora Marília Arraes (PSB), prima de Eduardo Campos que decidiu ir de encontro às articulações do primo morto há dois meses, e Teresa Leitão (PT), presidente da sigla em Pernambuco, preferiram acompanhar a caminhada fora da corda de isolamento, no meio do povo.
+Na Praça da Independência, diante da militância, Dilma parecia estar mais à vontade do que na última vez em que esteve no Recife, no fim de setembro. Além de repetir uma declaração de amor à militância presente, puxou o grito: "É 1, é 3, é Dilma outra vez", seguido pelas milhares de pessoas que foram à área central do Recife.
+ Foto: Bobby Fabisak/JC Imagem
+Em seguida, a presidente iniciou os ataques ao partido do adversário, sem, contudo, citar o nome de Aécio diretamente. Dilma acusou o governo do PSDB de não investir em questões básicas, como educação, emprego e saúde, frisando programas implantados na gestão petista, como o Pronatec e o Mais Médicos. "Quando eles entregaram o governo ao Lula, entregaram, sim, uma herança maldida", disse. "Nós nos orgulhamos do desenvolvimento de Pernambuco. Pernambuco e o Nordeste foram o estado e a região do País que mais cresceram. Porque era para tirar o atraso do governo dos tucanos", acrescentou.
+O mote do crescimento econômico acima da média nacional é um dos usados pelos agora adversários socialistas pernambucanos. Porém, Dilma fez questão de cobrar, indiretamente, a participação do governo federal nisso.
+"Nós estamos no rumo certo, que é aquele que quer ver o povo brasileiro crescendo, não quer só que enriqueça alguns poucos interessados apenas em ganhar dinheiro com o rentismo. Os tucanos sempre quiseram plantar dificuldade para colher juros", alfinetou, citando a inflação. "Não vamos deixar nenhuma pena de tucano presa, só voando por aí." Dilma finalizou o seu discurso fazendo um pedido para que não haja "retrocesso".
+ Foto: Bobby Fabisak/JC Imagem
+A presidente candidata à reeleição também usou parte do discurso de Lula, em que lembra as lutas libertárias no Estado. "Aqui, em 1824, nós lideramos a Confederação do Equador e eu lamento profundamente que um ex-presidente da República, sociólogo, não soubesse da história para dizer que nós, pernambucanos, somos desinformados e, por isso, votamos na Dilma", disse, quase sem voz, o cabo eleitoral petista. Lula fez críticas mais contundentes, em que chegou a chamar Aécio de "grosseiro", "mal educado" e "filhinho de papai".
+O mesmo foi usado em Goiana. Durante o comício do PT na cidade que recebeu a fábrica da Fiat, coube a Lula o papel mais agressivo de ‘bater’ no adversário tucano. Segundo Dilma, o projeto anterior ao do PT não representava as classes mais baixas, tampouco olhava para o Nordeste. A estratégia da campanha é atribuir a Aécio o perfil de elitista. “Hoje, eles vestiram uma ‘pelezinha’ de cordeiro. Uma ‘pelezinha’ que esconde todas as suas intenções. Eles têm um olhar preconceituoso com Brasil. Olham pros mais pobres e não veem nele cidadãos brasileiros", disse a candidata.
+Respondendo sobre as polêmicas espalhadas pela oposição de que diminuiria os recursos para Pernambuco com a eleição de Paulo Câmara (PSB), hoje aliado de Aécio, Dilma afirmou, em Goiana, à tarde: "Eu respeito o governador eleito porque ele foi escolhido pelo povo”.
+A primeira parada da presidente no Estado foi pela manhã, em Petrolina, sem Lula. A petista começou o dia disparando contra os problemas de abastecimento de água no Estado de São Paulo, governado pelo PSDB, no discurso em pleno Sertão.“São Paulo, o estado mais rico do país, não se preparou para a seca. Já o governo federal se preparou e trouxe água para o Nordeste”, afirmou, citando as cisternas entregues pelo Ministério da Integração Nacional - embora sejam alvo de reclamação de moradores.

@@ -1,0 +1,15 @@
+---
+layout: post
+title: "O marco legal do saneamento e o crime persistente dos lixões"
+date: 2020-09-04
+tags: Crime,Samarco,saneamento,venda ilegal
+author: None
+---
+Por Carolina Buarque, em artigo enviado ao blog
+O Marco Legal do Saneamento Básico, tão falado ultimamente, é uma atualização e modernização da Lei 14.026 de 15.07.2020, que confere atribuições à Agência Nacional de Águas e Saneamento Básico (ANA) para editar normas de regulação para o setor e, principalmente, introduzir novos conceitos à prestação de serviços de saneamento básico. O mecanismo altera os prazos para a disposição final e ambientalmente adequada dos rejeitos, fixados pela Política Nacional de Resíduos Sólidos (PNRS), instituída pela Lei nº 12.305, de 2010.
+Embora com bastante foco nos serviços de água e esgoto, o novo marco legal tem vários assuntos também aplicáveis aos serviços de limpeza urbana e de manejo de resíduos sólidos. O instrumento altera, por exemplo, a sistemática para aquele material para o qual não existe nenhuma possibilidade de reaproveitamento ou reciclagem, tratando também da eliminação dos lixões, as velhas e conhecidas áreas de disposição final de resíduos a céu aberto, sem qualquer planejamento ou medidas de proteção ao meio ambiente e à saúde pública.
+As medidas deverão ser implantadas até o final deste ano, em 31 de dezembro, com este limite só podendo ser dilatado e escalonado caso os municípios elaborem um Plano de Gestão Integrada de Resíduos (PGIRS) e disponham de mecanismos de cobrança que garantam a sua sustentabilidade econômico-financeira até esta data. Pelas novas regras, as cidades que possuírem o PGIRS e instituíram taxas ou tarifas, de rubrica específica para este fim, a ser cobrada como uma verba carimbada, deverão se ajustar a prazos distintos para a devida erradicação dos lixões.
+A promessa de um ponto final para o grave problema assinala o seguinte calendário: as Capitais e Regiões Metropolitanas deverão cumpri-lo até o mês de agosto de 2021; as cidades com mais de 100 mil habitantes, até agosto de 2022; aquelas com população entre 50 mil e 100 mil cidadãos, até agosto de 2023; e, por fim, os municípios com número inferior a 50 mil pessoas terão como limite o mês de agosto de 2024.
+É importante ressaltar que operação de lixão a céu aberto é crime ambiental, há décadas, e os prazos estipulados não conferem autorização para a prática de tais atos. O tempo determinado é para a adoção das medidas necessárias à disposição final apenas de rejeitos, o que pressupõe a realização de ações direcionadas à reutilização, reciclagem e valorização dos resíduos sólidos. É preciso consciência e ações efetivas não apenas dos gestores públicos, mas de todas as camadas da sociedade.
+
+Carolina Buarque é engenheira ambiental e diretora da Locar Gestão de Resíduos

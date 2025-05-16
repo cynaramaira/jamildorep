@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Lula: não preciso de todas as pessoas para ganhar, só de 50% mais um"
+date: 2017-06-11
+tags: animais,Lula,Naomi Campbell,quatro pessoas
+author: None
+---
+Estadão Conteúdo - O ex-presidente Luiz Inácio Lula da Silva se apresentou mais uma vez como candidato do PT nas próximas eleições presidenciais em evento de posse da nova direção do partido no Estado de São Paulo neste sábado, 10, na Assembleia Legislativa. "Se o PT deixar, serei candidato para voltar a ver uma sociedade mais igual", afirmou.
+O ex-presidente afirmou que o partido tem de voltar a dialogar com as periferias. Ele se dirigiu ao novo presidente estadual, Luiz Marinho, e disse que era preciso retornar à periferia de São Paulo. "Nada de convencer os 'não convencíveis'. Temos de voltar a falar com aqueles que se afastaram por nossos erros." E completou que não precisa de todas as pessoas para ganhar. "Só preciso de 50% mais um."
+Lula também fez menção a seus adversários políticos e sugeriu que estão enfraquecidos, como o senador Aécio Neves (PSDB), alvo das recentes delações da JBS. "O Aécio nem está mais fazendo discurso, eu estou aqui. Olhem a diferença."
+&gt;&gt; “Nunca o Brasil precisou tanto do PT como agora”, diz Lula
+Em discurso, ele exaltou as realizações sociais e econômicas da legenda durante seus anos de poder, como, segundo ele, o superávit da seguridade social, a criação de empregos e empresas e "o aumento salarial de 3,5% em todos os 12 anos em que o PT esteve no governo". "A melhor experiência de governança neste País foi do PT", afirmou.
+Alegando que o Brasil "nunca precisou tanto do PT como agora", o ex-presidente disse que o partido é o único que tem capacidade de fazer o País voltar a ser alegre novamente. E prometeu resgatar o "Lulinha Paz e Amor", reforçando que o Brasil precisa de humor para enfrentar a crise. Ele lembrou a derrota nas eleições municipais do ano passado e as notícias dizendo que o partido estava morto. "O PT continuará de pé mesmo com todos os ataques. Tivemos uma derrota muito grande na disputa para prefeito em 2016. Manchetes de jornal diziam que PT tinha acabado, mas tenho paciência."
+Joesley Batista
+Lula ironizou as denúncias contra ele na delação do dono da JBS, Joesley Batista. O ex-presidente insinuou que a menção que Joesley fez sobre uma conta em que Lula teria US$ 82 milhões em propina é falsa. "Joesley diz que tenho conta com US$ 82 milhões, mas a conta está no nome dele. Que cara de pau", afirmou.
+Criticando a condução da operação Lava Jato e o recurso de delação premiada, Lula afirmou que os empresários aprenderam a "palavra mágica": propina. "Isso porque vão fazer um acordo em que vão recuperar metade do que roubaram. Estou quase fazendo delação para pegar meus US$ 82 milhões que Joesley falou", ironizou.
+Lula ainda disse que os deputados não podem acreditar que "tudo é propina", pois o financiamento das campanhas precisa de dinheiro. "Ninguém nunca vendeu a casa para fazer campanha. Tem de pedir dinheiro para quem tem dinheiro. Mas se quiser oferecer dinheiro por fora, eu não quero, quero por dentro."
+Lula também voltou a criticar os procuradores da República integrantes da força-tarefa da Lava Jato. "Se tivesse Justiça nesse País, teríamos a exoneração dos procuradores da Lava Jato para o benefício do próprio Ministério Público", disse.
+Segundo Lula, os procuradores "inventam mentiras atrás de mentiras." Quero que se coloquem no lugar deles. Não podem passar no concurso, ganhar R$ 30 mil e mentir para o povo." Lula também afirmou que a investigação da força-tarefa tem relação ideológica, porque questiona as alianças do PT com a América Latina. "A cabeça deles funciona pelo complexo de vira-lata. Só pode ter aliança com EUA, não pode fortalecer a América Latina", disse.
+Ele ainda afirmou que o Brasil vai entrar para a história da humanidade como o País em que não se pode mais ser inocente. "Desde pequeno aprendi que precisa-se de provas para condenar alguém. Mas agora, se não tiver prova, você não pode ser inocente, tem de ser culpado", disse, referindo-se às investigações contra ele.

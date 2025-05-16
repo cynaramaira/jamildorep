@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Justiça toma importante decisão sobre votação das contas de Lula Cabral, na Câmara do Cabo. Saiba mais"
+date: 2022-08-16
+tags: jamildo, eleições 2022
+author: Jamildo Melo
+---
+O advogado de Lula Cabral, Lucas Campos, informou ao Blog de Jamildo que a Justi&ccedil;a desfez o julgamento das contas.
+"Ao analisar processo administrativo da C&acirc;mara Municipal do Cabo de Santo Agostinho, que julgou as contas de 2017 do ex-prefeito do Cabo, Lula Cabral, o Tribunal de Justi&ccedil;a de Pernambuco reconheceu que a C&acirc;mara agiu com desvio de finalidade ao engavetar as contas de 2015 e 2016 de responsabilidade do ent&atilde;o ex-prefeito do Cabo, na &eacute;poca, Vado da Farm&aacute;cia para dar prefer&ecirc;ncia a julgar as contas de Lula Cabral de 2017", afirmou ele.
+"A C&acirc;mara Municipal agiu em contrariedade ao princ&iacute;pio da impessoalidade, ao engavetar os processos de 2015 e 2016 e &ldquo;escolher a dedo&rdquo; o processo de Lula Cabral de 2017 para que fossem apreciadas em poucos dias do per&iacute;odo eleitoral. Lucas ressaltou ainda, que a maneira com que foi conduzido o processo pela C&acirc;mara Municipal, com n&iacute;tido intuito de tornar Lula Cabral ineleg&iacute;vel &ldquo;a qualquer custo&rdquo;, foi o que maculou completamente o procedimento, assemelhando-se o julgamento das contas de Lula ao julgamento do Presidente Lula pelo juiz S&eacute;rgio Moro".
+Em 18 de julho deste ano, a C&acirc;mara de Vereadores do Cabo reprovou as contas de Lula Cabral, referentes ao exerc&iacute;cio de 2017. Um parecer do Tribunal de Contas de Pernambuco recomendava a aprova&ccedil;&atilde;o.
+Na avalia&ccedil;&atilde;o do defensor, esse seria mais um ato de persegui&ccedil;&atilde;o pol&iacute;tica, realizada pelo presidente da C&acirc;mara Municipal do Cabo, Ricardo Carneiro.
+"Ele engavetou as contas do aliado pol&iacute;tico e &ldquo;pulou&rdquo; para as contas de Lula Cabral. A justi&ccedil;a reconheceu que as contas relativas &agrave; previd&ecirc;ncia municipal n&atilde;o devem ser alvo da vota&ccedil;&atilde;o do exerc&iacute;cio de 2017 das contas do Poder Executivo Municipal, em respeito a Lei Municipal n&ordm; 3342/2017, que regulamenta e institui dota&ccedil;&atilde;o or&ccedil;ament&aacute;ria e personalidade jur&iacute;dica pr&oacute;prias &agrave; Previd&ecirc;ncia Privada do ente p&uacute;blico municipal".
+&ldquo;O CABOPREV presta suas pr&oacute;prias contas ao TCE-PE e &agrave; C&acirc;mara Municipal, n&atilde;o podendo ser atrelada &agrave;s contas do prefeito por n&atilde;o terem qualquer rela&ccedil;&atilde;o entre si, al&eacute;m de n&atilde;o haver sequer rela&ccedil;&atilde;o de compet&ecirc;ncia do prefeito com as contas do Caboprev, sob pena de rasgar a lei e a seguran&ccedil;a jur&iacute;dica para atingir interesses politiqueiros do presidente da C&acirc;mara e seus aliados&rdquo;, afirmou o advogado Lucas Campos.

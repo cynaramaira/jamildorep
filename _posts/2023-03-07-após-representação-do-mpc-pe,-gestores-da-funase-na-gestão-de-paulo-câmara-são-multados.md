@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Após representação do MPC-PE, gestores da FUNASE na gestão de Paulo Câmara são multados"
+date: 2023-03-07
+tags: jamildo, TCE-PE
+author: Jamildo Melo
+---
+O site oficial do &oacute;rg&atilde;o informa que a Primeira C&acirc;mara do Tribunal de Contas do Estado (TCE) julgou irregular o objeto de uma Auditoria Especial realizada na Funda&ccedil;&atilde;o de Atendimento Socioeducativo (Funase-PE), que avaliou a contrata&ccedil;&atilde;o de servi&ccedil;os de fornecimento e preparo de refei&ccedil;&otilde;es entre 2016 e 2021.
+O processo, que teve como relator o conselheiro substituto Ricardo Rios, atendeu a uma Representa&ccedil;&atilde;o Interna do Minist&eacute;rio P&uacute;blico de Contas de Pernambuco (MPC-PE), assinada pela procuradora Germana Laureano, onde ela solicita que sejam apuradas as responsabilidades pelas sucessivas contrata&ccedil;&otilde;es emergenciais conduzidas pela Funase entre 2016 e 2021, agindo, entre outros pontos, com &ldquo;morosidade excessiva&rdquo; para processar a fase interna de licita&ccedil;&atilde;o, provocando sucessivas Dispensas Emergenciais.
+Em sua defesa, a Funase alegou situa&ccedil;&atilde;o emergencial para realizar as dispensas, todavia, a equipe de auditoria do TCE, ap&oacute;s realizar o levantamento das despesas com fornecimento de alimenta&ccedil;&atilde;o, por meio de consultas ao portal Tome Conta e ao sistema e Fisco, concluiu que a &ldquo;urg&ecirc;ncia&rdquo; foi decorrente da falta de planejamento e organiza&ccedil;&atilde;o da gest&atilde;o da pr&oacute;pria Funase, e n&atilde;o do surgimento de situa&ccedil;&atilde;o excepcional ou repentina que os tenha surpreendido, o que foi acatado na &iacute;ntegra pelo relator.
+Tamb&eacute;m que foi constatada a manuten&ccedil;&atilde;o da presta&ccedil;&atilde;o de servi&ccedil;os de fornecimento e preparo de refei&ccedil;&otilde;es ap&oacute;s o encerramento dos respectivos contratos, evidenciando a pr&aacute;tica ilegal de contratos verbais, contrariando a Lei Federal 8.666/93.Sendo assim, o relator julgou irregular o objeto da auditoria, aplicando multa para v&aacute;rios ex-gestores do per&iacute;odo denunciado.
+O relator fez uma s&eacute;rie de determina&ccedil;&otilde;es, com destaque para que sejam evitadas, imediatamente, as deflagra&ccedil;&otilde;es de dispensas emergenciais de licita&ccedil;&atilde;o, procurando agir com a anteced&ecirc;ncia necess&aacute;ria e com margem ampla de seguran&ccedil;a, no sentido de realizar os processos licitat&oacute;rios destinados a dar continuidade a todos os servi&ccedil;os considerados essenciais.
+O voto foi aprovado por unanimidade pelos conselheiros Valdecir Pascoal e Carlos Porto, durante sess&atilde;o realizada no &uacute;ltimo dia 28 de fevereiro.
+O conselheiro Marcos Loreto, por ser o relator origin&aacute;rio do processo, n&atilde;o votou.
+As partes interessadas ainda podem recorrer da decis&atilde;o no pr&oacute;prio TCE.

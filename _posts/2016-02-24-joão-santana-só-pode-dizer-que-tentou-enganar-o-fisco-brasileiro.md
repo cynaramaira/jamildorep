@@ -1,0 +1,32 @@
+---
+layout: post
+title: "João Santana só pode dizer que tentou enganar o Fisco brasileiro"
+date: 2016-02-24
+tags: brasileiros,Fisco,joão d,Leo Santana
+author: None
+---
+Fernando Castilho, da JC Negócios
+Colaboaração para o Blog de Jamildo
+O publicitário João Santana que se entregou à Federal na manhã desta terça-feira (23) em São Paulo, vai confessar que recebeu recursos irregulares no exterior, segundo a Folha de S. Paulo apurou. O marqueteiro vai ressaltar que nenhum centavo que entrou na sua conta na Suíça teve origem nos trabalhos que prestou para o PT.
+João Santana só tem esse caminho. Se conseguir provar suas afirmações estará com problemas com a Receita Federal e, em tese, pagando os impostos e as multas terá escapado de problemas maiores. Embora, além das multas, as despesas com advogados certamente vão lhe levar uma boa parte desse dinheiro legal internacional não declarado no Brasil.
+Se admitir outro crime entra de cabeça na linha de acusados por corrupção da Lava Jato e afunda junto com os demais. Vira cumplice de dinheiro roubado da Petrobras que lhe foi entregue no exterior. Pode ser condenado a vários anos de prisão pelo juiz Sérgio Moro.
+LEIA TAMBÉM:
+&gt; Após ter prisão decretada na Lava Jato, João Santana chega ao Brasil
+&gt; Em carta, João Santana diz que Brasil vive clima de perseguição
+&gt; João Santana renuncia a cargo em campanha presidencial na República Dominicana
+&gt; Moro sequestra apartamento de R$ 3 milhões de João Santana
+Curiosamente João Santana e sua mulher Monica Moura ao se apresentarem à polícia exibiram um olhar blazer meio descontraído e certamente achando que podem voltar a São Paulo esgotada as prisões temporárias nos próximos cinco dias. Pode ser, mas não há indícios de que estarão soltos até o fim do mês. E a declaração de Monica dizendo que não vai baixar a cabeça pode ter ajudado a ser mantida na prisão por mais alguns dias.
+Porque há uma distância enorme entre o que admitiu Duda Mendonça, há dez anos, quando fez o PT chorar de vergonha dizendo que recebeu sim dinheiro fora do Brasil e a possibilidade de Santana ter recebido mais que um centavo da Odebrecht.
+Porque agora, a PF tem um tera-byte de provas contra ele e contra a Odebrecht e antes de mandar chama-lo já se organizou para tentar provar que o dinheiro que Santana tem na sua conta foi depositado por um doleiro ligado a empresa de construção.
+Se a polícia o colocar na cena do crime da Lava Jato dificilmente Santana comerá o peixe de coco de que tanto gosta pelas origens baianas na Semana Santa em uma outra cidade brasileira.
+Mas há uma curiosa inter-relação entre o fato do dinheiro poder ter sido pago a João Santana e o dinheiro pago a Duda Mendonça há 10 anos: O fascínio de saber e até dizer, em privado, que tem dinheiro lá fora.
+Porque para quem entende desse negócio de ter dinheiro lá fora isso é coisa de profissional. E somente quem é amador cai na onda de achar que hoje isso não é possível de ser rastreado pelo Fisco e pela Interpol. Talvez achando que, como nas histórias de magnatas e de criminosos charmosos, isso ainda seja possível para qualquer cidadão criativo.
+Não funciona assim. Porque o problema não é ter o dinheiro lá fora. O problema é tentar gasta-lo aqui dentro. E fácil para empresas com plataformas internacionais e que desejem fazer esse tipo de pagamento pois podem, de alguma forma, comprovar recebimentos internacionais. Não estão sujeitas as mesmas leis do Brasil. É até mais fácil pagar propina lá fora pois não terão de organizar complexos sistemas contábeis para “retirar” de suas receitas o dinheiro para esse tipo de pagamento.
+O que muita gente do setor de prestação de serviços eleitorais não entendeu é que depois da legislação eleitoral de prestação de contas (a partir do CNPJ do candidato), não dá para misturar os dinheiros dados com recibos e os sem recibos. Em tese, os dinheiros dados sem recibos tem que sumir pagando as despesas que não tem recibos. Vem daí a insistência do PT em dizer que tudo que recebeu legalmente está declarado. E está mesmo. Alguém acha que uma campanha vai colocar um “vale” numa planilha para o TSE conferir?
+O problema de Santana - como foi o de Duda - foi aceitar receber esse valor sem recibo fora do Brasil. Talvez encantados pelo charme de poder dizer que tem dinheiro lá fora. E ele lá sabia, em 2006, e até no ano passado como a PF e os ministério públicos de outros países estavam vasculhando isso? A conta era, em tese, secreta. Como filmes e novelas ele achava que era só um código.
+A prisão de Fernando Migliaccio, na Suíça, também mostra claramente que não. Para qualquer Ministério Publico internacional ajudar ao Brasil nessa operação virou um charme. Mandam por e-mail e depois ajudam a pedir oficialmente ao Ministério das Relações Exteriores. O caso de Henrique Pizzolato ex-diretor de marketing do Banco do Brasil mostra isso. Todo promotor que ter no currículo a marca de ter ajudado a acabar com a corrupção no Brasil.
+Isso é o terror para os acusados, mas fará a festa de dezenas de escritórios de advocacia que já sabem, melhor que Sergio Moro, que em réus da Lava Jato perderão todas. Mas sabem que clientes aflitos aceitarão que têm alguma chance.
+Os advogados sabem que há um sentimento de justiça direta na sociedade contra os réus da Lava Jato. O STF já sinalizou claramente que vai abrigar a tese. Especialmente porque o Congresso não deu um passo na direção de criar leia que travem a portas de corrupção.
+O Congresso está preocupado é em não ajudar. Eduardo Cunha e os demais (pelo menos 148 dos 513 deputados e 30 dos 81 integrantes do Senado respondem a inquérito ou ação penal no Supremo Tribunal Federal) deputados e senadores não querem ir para a cadeia. A começar por Cunha que sabe que seu futuro pode ser o de outros réus na Lava Jato e todos sabem que a onda é do Carará (pega, mata e come). Sabem da lei da vodca Smirnoff (eu sou você amanhã).
+Talvez por isso a defesa de Santana seja tão emblemática. Tipo: devo ao Fisco não nego e pago quando receber a multa. O problema é saber se, hoje, seus problemas são - como ele tentar provar - apenas com o Fisco. Pelo personagem que foi para Lula e Dilma nos últimos anos parece claro que a última coisa que o juiz Sérgio Moura está preocupado é com o IR que ele deixou de recolher.
+Bom, pelo menos se sabe que o casal João Santana e Monica Moura não vai baixar a cabeça.

@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Entendimento"
+date: 2015-10-13
+tags: 
+author: None
+---
+Por Maurício Costa Romão, especial para o Blog de Jamildo
+O País se encontra hoje diante de uma encruzilhada. A saída da presidente Dilma Rousseff do governo - seja por meio de impeachment, seja por decisão do TSE – vai desencadear um processo legal e político demorado e traumático, com desfechos danosos para o País, em especial para a economia.
+Por outro lado, diante do desgoverno reinante, a permanência da mandatária à frente do Executivo é atestado evidente de que a grave crise política e econômica que assola o País vai continuar e se aprofundar.
+Esse impasse, paradoxalmente, torna-se, ele próprio, a saída para uma ação cooperada entre oposição e situação (solução à lá “Equilíbrio de Nash”), pois já se nota crescente percepção dos dois lados de que o conflito político está paralisando a nação e piorando todos os seus indicadores relevantes.
+Vários atores políticos e acadêmicos já se pronunciaram nessa direção, a do diálogo, como forma, talvez derradeira, de resolver a crise. Lógico que todos reconhecem as dificuldades práticas de se levar adiante tal empreitada, em face do sectarismo imperante.
+Entretanto, mesmo que de início parecessem impossíveis, diante da enorme gama de obstáculos que se antepunham à celebração de entendimentos, há sólidos exemplos de acordos de união nacional que prosperaram exitosamente.
+Os Pactos de Moncloa, celebrados em outubro de 1937, na Espanha, são a referência básica para concertos entre forças políticas antagônicas em prol da superação de dificuldades e desenho de um futuro comum. Os Pactos propiciaram à Espanha sair do atraso e tornar-se economia moderna e pujante.
+Já neste século, a Alemanha, com a economia enfrentando dificuldades, até por conta do encerramento do tumultuado processo de anexação da Alemanha Oriental, propôs um pacto nacional em torno de alguns consensos (a chamada Agenda 2010). O País aumentou sua produtividade, voltou a crescer e conseguiu perpassar as turbulências da crise financeira na zona do Euro.
+Não se pode deixar de mencionar o recente Pacto por México, em 2012. Um acordo histórico, inédito, de consenso nacional e unidade de propósitos “para el crecimiento económico, el empleo, la competitividad y la inclusión social”, envolvendo cerca de cem medidas em várias áreas, incluindo seguridade social, abertura do setor de telecomunicações, reforma educacional, etc. O acordo está em curso.
+Nestes aludidos exemplos de “concertación” houve, naturalmente, vários conflitos distributivos devidos aos significativos ajustes empreendidos, mas prevaleceu a compreensão e o desprendimento de que sacrifícios eram necessários para superar os entraves e sedimentar bases para o desenvolvimento dos países em apreço.
+No Brasil, um projeto de união nacional passaria inicialmente por debelar a crise econômica atual.
+Exigiria a construção de consensos em torno de agenda mínima de curto prazo para a retomada do crescimento, englobando três ações: (1) estabilizar a dívida pública, (2) acionar mecanismo de proteção social contra a recessão e o desemprego e (3) estabelecer programa emergencial para estados e municípios.
+Somente a partir daí criam-se então as condições para a formulação de uma antiga e reclamada agenda de transformações estruturais, compreendendo: (a) reforma previdenciária; (b) reforma tributária; (c) reforma trabalhista; (d) reforma política e (e) nova política de inserção internacional.
+A resolução da agenda de curto prazo, contudo, é imperiosa. A deterioração das contas públicas encetou um mecanismo circular da dívida que precisa ser urgentemente interrompido sob pena de o País ter seu grau de investimento rebaixado novamente e não conseguir pôr fim à recessão.
+A causação circular começa com o déficit nominal crescente, que pressiona o aumento do dólar (devido ao risco-Brasil). As importações ficam mais caras e a inflação aumenta. Os juros sobem para conter a inflação, mas isso faz crescer o serviço da dívida. Com as receitas estagnadas ou caindo (os juros altos aprofundam a recessão), o déficit nominal aumenta mais ainda e o círculo vicioso continua...
+O mercado já percebeu a incapacidade do governo de estabilizar a trajetória da dívida (vide as revisões frequentes da meta de superávit primário e o ajuste “fake” que está parado no Congresso). O caminho natural é o concerto (com c) para desmontar essa engrenagem circular e devolver a confiança de que os agentes econômicos precisam.
+Maurício Costa Romão, Ph.D. em economia, é consultor da Cenário Inteligência e do Instituto de Pesquisas Maurício de Nassau.

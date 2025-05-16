@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Marília Arraes promete fiscalizar gestão de João Campos na Prefeitura do Recife"
+date: 2020-12-30
+tags: João Campos,Marília Arraes,Prefeitura,Recife
+author: None
+---
+A deputada federal Marília Arraes (PT) disse nesta quarta-feira que, para o ano de 2021, além de dar continuidade a sua atuação na Câmara dos Deputados, se prepara para "encabeçar um trabalho ostensivo de fiscalização e acompanhamento dos governos de Pernambuco e da Prefeitura do Recife com o objetivo de cobrar melhorias e avanços para o todo o Estado e para a capital", conforme suas palavras.
+“Esse foi um ano desafiador, o período em que mais aprendi na vida, um ano de muita reflexão e muito trabalho. Tivemos todos os enfrentamentos do legislativo, contra um governo negacionista, que teve uma péssima atuação diante da maior crise sanitária da história recente do mundo. Além disso, disputamos a mais dura de todas as eleições. Fui escolhida pelo eleitorado recifense para disputar o segundo turno para a Prefeitura do Recife, quando 70% da população disse “não” à continuidade da gestão do PSB. Fizemos uma campanha dialogando diretamente com as pessoas, sem intermediários. Enfrentamos uma máquina gigantesca que jogou pesado com o poder econômico e através de todo tipo de ataques baixos e mentirosos, que incrementou a prática bolsonarista e colocou as Fake News na TV. Ganhamos força e ainda mais energia. Estou pronta para 2021. Estarei na linha de frente contra quaisquer que forem os desafios e seguirei do lado certo da história, onde sempre estive”, destacou Marília Arraes, nesta tarde, em mensagem enviada ao blog.
+"Vamos seguir, no Legislativo Federal, em defesa do desenvolvimento econômico de estados e municípios, da geração de emprego e renda, dos direitos dos trabalhadores, da saúde, da educação, da democracia e de muitas outras áreas."
+A promessa de acompanhar de perto a gestão do adversário no pleito passado ocorre no mesmo dia que o prefeito eleito comemorou a indicação de metade do quadro de secretarias da PCR com mulheres, conforme havia prometido na campanha.

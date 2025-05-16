@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Sem Fliporto, Antônio Campos critica Governo de Pernambuco e PCdoB por política cultural"
+date: 2016-11-16
+tags: Antonio Conte,crítica,governo,João Campos,PCdoB,pernambuco,Política,setor cultural
+author: None
+---
+Horas depois de anunciar o cancelamento da Fliporto, a Festa Literária Internacional de Pernambuco, acusando o Governo de Pernambuco por falta de apoio, o presidente do conselho cultural do evento, Antônio Campos, reafirmou as críticas à gestão Paulo Câmara (PSB). O alvo da vez, em nota enviada por ele após a Empresa de Turismo de Pernambuco (Empetur) negar que a organização da feira tenha solicitado recursos, foi a política cultural da gestão Paulo Câmara (PSB) - duas semanas depois de denúncias do advogado contra do governador provocarem um racha entre os socialistas. O secretário da pasta é Marcelino Granja, do PCdoB, partido que está na Prefeitura de Olinda há 16 anos e, assim como Antônio, de oposição à legenda, foi derrotado nas eleições municipais.
+LEIA TAMBÉM
+» Fliporto é cancelada e Antônio Campos responsabiliza governo Paulo Câmara
+» Após cancelamento da Fliporto, Empetur diz que não recebeu pedido de apoio
+"(A política cultural) Está entregue ao PCdoB, que é a mesma força que colocou Olinda, Patrimônio Cultural da Humanidade e 1ª Capital da Cultura Brasileira, na situação em que se encontra", afirmou Antônio Campos. "Falta uma política cultural sistemática à Secretaria de Cultura e à Fundarpe. São muitas as reclamações da classe artística. Vejo um privilégio, também, ao Turismo em detrimento da Cultura", acrescentou o irmão do ex-governador Eduardo Campos (PSB), padrinho político de Paulo Câmara.
+» Maciel Melo sai em defesa de Irah Caldeira e cobra a Paulo Câmara nova política cultural
+» Irah Caldeira denuncia falta de pagamento do Governo de Pernambuco por shows no São João
+Além de criticar a gestão estadual, Antônio Campos voltou a fazer acusações à Prefeitura de Olinda, que tem Renildo Calheiros (PCdoB) como prefeito agora. "A Prefeitura de Olinda nunca entrou com um centavo e nunca tentou buscar um apoio para o evento. Achavam um verdadeiro favor nos aceitar em Olinda", disse. Renildo apontou erros na gestão do comunista.
+O curador da Fliporto reclamou que a organização da festa pagava despesas de manutenção, limpeza e segurança da Praça do Carmo nos anos em que o evento foi realizado lá. "Em 2014, notamos dificuldades para obter a cessão e decidimos locar um espaço privado, o Colégio São Bento, para realização do evento. As fiscalizações da Prefeitura aos parceiros eram acima da razoabilidade, especialmente em 2015", relatou.
+» Depois de racha no PSB, Antônio Campos vai discutir eleições de 2018 com Ciro Gomes
+» Em carta ao presidente do PSB, Antônio Campos fala em resistência e critica lideranças em Pernambuco
+» Alvo de Antônio Campos, PSB diz que é princípio da democracia respeitar resultado das urnas
+"Sempre lutarei pela melhoria de Olinda e pelas causas que ajudem a cidade, que muito amo. Essa decisão (de cancelar a Fliporto) não tem nada a ver com resultado eleitoral", afirmou, após questionamentos sobre a sua derrota para Lupércio (SD) no segundo turno. Após o resultado, Antônio Campos acusou Paulo Câmara, a cunhada Renata Campos e outras lideranças locais do PSB de se articularem contra a sua candidatura na cidade.
+» Derrotado, Antônio Campos pede impugnação das contas de Lupércio
+» Aconselhado por João de Deus a se candidatar, irmão de Eduardo Campos não cumprirá “missão” em Olinda
+O advogado criticou o apoio dado à Feira Nordestina do Livro (Fenelivros) este ano. "O Governo do Estado, no lugar de apoiar a Bienal do Livro e a Fliporto, optou por uma nova feira de livros inclusive buscando a associação que produzia a Fliporto até recentemente, que esse ano preferiu não participar da Fliporto", afirmou. "Quisemos protocolar o projeto Fliporto, esse ano, com outra produtora executiva, uma vez que faço apenas a parte cultural e diante de algumas exigências, inviabilizaram o protocolo e mesmo o projeto", acusou a Empetur. Em nota, o órgão afirmou que "não recebeu qualquer solicitação de apoio para a edição deste ano".
+Antônio Campos classificou a Fliporto como uma das três festas literárias mais importantes do Brasil, sem citar quais são as outras duas, e garantiu o evento voltaria a ser realizado no próximo ano. Em documento à Empetur, também oficializou a previsão para 2017 e, nesta quarta-feira (16), confirmou o cancelamento da edição deste ano, que seria realizada entre os dias 2 e 4 dezembro e homenagearia os 150 anos de nascimento do escritor Euclides da Cunha, autor de 'Os Sertões'.

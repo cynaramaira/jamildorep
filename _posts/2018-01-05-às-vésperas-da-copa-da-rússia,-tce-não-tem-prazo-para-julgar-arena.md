@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Às vésperas da Copa da Rússia, TCE não tem prazo para julgar Arena"
+date: 2018-01-05
+tags: Arena Pernambuco,Copa,Naomi Campbell,prazo
+author: None
+---
+Quatro anos depois da Copa do Mundo, o Tribunal de Contas do Estado (TCE) ainda não tem prazo para julgar a economicidade da Arena Pernambuco, construída para o campeonato e envolvida em investigações de corrupção. De acordo com o novo presidente do órgão, Marcos Loreto, que toma posse na próxima quarta-feira (10) e foi entrevistado no Resenha Política desta sexta-feira (5), o conselheiro Dirceu Rodolfo, responsável pelo caso, não tem data para elaborar seu voto e levá-lo para análise dos outros integrantes do tribunal.
+"O relator tem total autonomia para definir os prazos", afirmou, seis meses antes da Copa da Rússia.
+Na elaboração do seu voto, o conselheiro leva em consideração inclusive documentos do Supremo Tribunal Federal (STF) referentes à Operação Fair Play, que investiga indícios de superfaturamento na construção da Arena Pernambuco.
+Até 2016 o estádio foi administrado pela Odebrecht, empreiteira responsável também pela sua construção. O governo, porém, rompeu o contrato de concessão e adquiriu uma dívida de R$ 246 milhões, a ser paga em 15 anos ao Banco do Nordeste à construtora. No ano passado, ao expedir medida cautelar suspendendo os pagamentos do Governo do Estado para a Odebrecht, Dirceu Rodolfo citou o inquérito do STF e afirmou que há suspeitas de conluio entre a empreiteira e a Andrade Gutierrez na licitação, o que foi apontado por essa empresa no acordo de leniência fechado com o Conselho Administrativo de Defesa Econômica (Cade).
+De acordo com Loreto, o relator vai apresentar o caso para votação quando tiver convicção sobre o caso. "Está andando e no momento certo vai levar a julgamento", afirmou.
+Hoje, a Arena Pernambuco recebe menos eventos que era esperado, desde shows a jogos de futebol. Questionado sobre a escolha do local da Arena Pernambuco, fora do Recife, e sem o Ramal da Copa para acessá-la, o novo presidente do TCE ressaltou que deve ser analisado o contexto da época de escolha, antes da competição. "O momento histórico era de euforia", lembrou. Loreto resgatou que o Estado vivia um boom na economia e setores privados chegaram a investir em condomínios e empreendimentos para a área, que não vingaram. "Imagine Pernambuco ficar de fora, com a Bahia e o Ceará no evento, por preverem um elefante branco", disse ainda. "Como a economia imbicou para baixo, a gente sabe o resultado."
+Previdência
+O novo presidente do TCE também falou sobre a reforma da Previdência e disse ser favorável a mudanças no sistema de aposentadorias, mas não à proposta do presidente Michel Temer (PMDB). Para ele, "o governo passou a etapa das discussões e foi direto". "Fica esquisito para a população aceitar a proposta só para salvar a Previdência", afirmou. "Tem que ser discutir com todos os setores da sociedade, inclusive com o servidor publico", defendeu.

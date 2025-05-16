@@ -1,0 +1,18 @@
+---
+layout: post
+title: "São Mateus encerra produção, conforme antecipou o Blog de Jamildo. Indústria foi abatida pela concorrência com a Sadia e Perdigão"
+date: 2011-08-11
+tags: blogs jc,Mateus Solano,produção,são
+author: None
+---
+
+No caderno de Economia do JC de hoje
+A esperan&ccedil;a morreu ontem para os funcion&aacute;rios do S&atilde;o Mateus Frigor&iacute;fico Industrial. Depois de duas promessas de retorno &agrave; produ&ccedil;&atilde;o &ndash; a &uacute;ltima prometida para ontem &ndash;, a diretoria da empresa chamou dois representantes de vendedores e dois de oper&aacute;rios para comunicar que vai fechar a conta de todos os colaboradores.
+&ldquo;Eles conversaram com o departamento pessoal da firma, com uma funcion&aacute;ria chamada Vera. Ela informou que o frigor&iacute;fico chamaria de 15 a 15 funcion&aacute;rios para fazer as rescis&otilde;es. Para os vendedores, o recado foi o de que ter&iacute;amos de procurar nossos direitos na Justi&ccedil;a&rdquo;, informou Paulo Miranda, vendedor da empresa durante 11 anos. Ele reivindica dois meses de sal&aacute;rios atrasados, fora os benef&iacute;cios sociais.
+Segundo o funcion&aacute;rio, todos os 11 vendedores da S&atilde;o Mateus no Recife levaram o calote da empresa, fora os profissionais de venda do Cear&aacute;, Rio Grande do Norte e Para&iacute;ba. A empresa foi procurada, mas nem mesmo a gerente de marketing do grupo n&atilde;o foi localizada. &ldquo;Fernanda foi desligada hoje (ontem)&rdquo;, disse Miranda. &ldquo;No m&ecirc;s passado foram 350 demiss&otilde;es. Agora &eacute; o resto. A f&aacute;brica tinha 1.200 funcion&aacute;rios e n&atilde;o vai ficar ningu&eacute;m&rdquo;, informa o ex-funcion&aacute;rio, que j&aacute; entrou na Justi&ccedil;a e agora passou a procurar outro emprego. &ldquo;&Eacute; dif&iacute;cil para quem tem mais de 40 neste Pa&iacute;s&rdquo;, aflige-se.
+O presidente do sindicato dos trabalhadores da ind&uacute;stria, Francisco Marinho, confirmou as demiss&otilde;es. &ldquo;A partir de hoje (ontem) a empresa n&atilde;o funciona mais. Mandou dizer que afastou todo mundo e orientou os trabalhadores a procurarem o sindicato ou a Justi&ccedil;a&rdquo;, disse. Entre os funcion&aacute;rios, o temor &eacute; o de que a empresa n&atilde;o honre com os seus compromissos trabalhistas. &ldquo;Nunca depositaram o FGTS e dos acordos que fazem na Justi&ccedil;a, pagam a primeira parcela e depois param&rdquo;, acusa Miranda.
+A crise na S&atilde;o Mateus come&ccedil;ou a dar sinais h&aacute; cerca de um ano, quando a empresa passou a atrasar sal&aacute;rios. Em julho, as incertezas tomaram corpo quando a diretoria do frigor&iacute;fico suspendeu a produ&ccedil;&atilde;o da ind&uacute;stria e deu f&eacute;rias coletivas aos trabalhadores. A expectativa era que as opera&ccedil;&otilde;es fossem retomadas na segunda-feira, mas a data foi postergada para ontem, o que, de fato, n&atilde;o aconteceu. Al&eacute;m do afastamento tempor&aacute;rio, 356 empregados j&aacute; foram demitidos.
+O grupo familiar tem mais de 40 anos e o seu patriarca, Jos&eacute; R&eacute;gis Cavalcanti, morreu h&aacute; seis anos. Depois de sua morte, segundo Paulo Miranda, seus filhos passaram a se desfazer do patrim&ocirc;nio da empresa, vendendo caminh&otilde;es e todos os ve&iacute;culos e a terceirizar os servi&ccedil;os.
+Leia o que o blog j&aacute; publicou sobre a queda da empresa
+S&atilde;o Mateus para e demite pelo menos 350. Ser&aacute; que volta&#63;
+Ind&uacute;stria de alimentos S&atilde;o Mateus foi abatida pela concorr&ecirc;ncia com a Sadia e Perdig&atilde;o

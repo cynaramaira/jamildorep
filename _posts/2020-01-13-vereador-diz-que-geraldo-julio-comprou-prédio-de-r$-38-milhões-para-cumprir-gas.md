@@ -1,0 +1,27 @@
+---
+layout: post
+title: "Vereador diz que Geraldo Julio comprou prédio de R$ 38 milhões para cumprir gastos mínimos com a educação"
+date: 2020-01-13
+tags: Educação,gastos,Geraldo Julio,vereador
+author: None
+---
+O vereador Renato Antunes (PSC) subiu o tom contra a Prefeitura do Recife, ao comentar a compra do imóvel da antiga FAUPE na Avenida Norte, avaliada em R$38 milhões.
+De acordo com o parlamentar,  líder da oposição na capital pernambucana, não há um planejamento de gastos efetivo para a educação municipal e a compra foi realizada no final de 2019 para evitar que a gestão municipal não cumprisse os gastos mínimos com a educação, previstos em lei.
+“O que me chama atenção é que essa compra aconteceu no apagar das luzes, restando poucos dias para encerramento de 2019. A Prefeitura emite um decreto para desapropriação de um prédio, mas em caráter de urgência. Que urgência é essa? Este valor é correspondente ao de mercado? Ao que tudo indica foi mais uma manobra da gestão municipal, que não tinha atingido a meta de gastos com educação, referente a 25% de sua receita. Parece uma compra realizada sem planejamento, para evitar que o prefeito fosse responsabilizado pelo crime de improbidade administrativa ”, afirmou o vereador Renato Antunes.
+LEIA TAMBÉM
+» Prefeitura do Recife compra prédio para Secretaria de Educação por R$ 38 milhões
+» Prefeitura do Recife comprou outros dois imóveis no fim de 2019
+» Líder do Governo na Câmara do Recife rebate críticas de Renato Antunes
+A PCR fez contato com o blog e garantiu que não há pedido de urgência para o projeto.
+Segundo o vereador, um pedido de informação será protocolado à secretaria de educação do município para que sejam prestados os devidos esclarecimentos.
+“Eles vão ter que esclarecer o porquê do pedido de urgência, pois é preciso gerir educação com muita seriedade. Parece que para bater a meta estipulada por lei, eles vão fazer qualquer coisa. Mas o povo do Recife quer respostas, e nosso pedido de informação vai buscar esclarecer todos estes questionamentos, inclusive se foi feito o laudo de avaliação do imóvel. Será que vale mesmo R$38 milhões?”, questionou o parlamentar.
+ Foto: Manoel Medeiros Neto/Cortesia
+Veja abaixo a explicação oficial da PCR
+Veja a nota oficial, enviada ao blog nesta tarde
+"A Secretaria de Educação do Recife informa que no edifício localizado na avenida Norte Miguel Arraes de Alencar nº 80 funcionará uma escola pública municipal, a primeira do bairro voltada para os Anos Finais do Ensino Fundamental, uma demanda antiga da comunidade, além da nova sede administrativa da Secretaria de Educação do Recife".
+"A nova sede abrigará todos os setores da Secretaria de Educação em um único local, garantindo maior integração e boas condições de trabalho para os gestores e educadores da secretaria".
+"Já o imóvel localizado no IPSEP, onde funcionava uma escola particular, vai abrigar um complexo educacional com duas escolas e uma creche, também atendendo a uma demanda por vagas da região."
+A Secretaria de Educação reforça ainda que a área é prioridade desta gestão, que já inaugurou 19 novas unidades escolares e requalificou outras 18. Por meio do Programa Novo Clima, 95% da rede já foi climatizada e chegará a 100% ainda este ano.
+Além disso, Recife teve o maior crescimento percentual das capitais brasileiras no último IDEB. Entre as chaves para o sucesso, ações e programas que incentivam o protagonismo e a atenção dos jovens, como por exemplo, a Robótica na Escola, que fez com que os alunos do Recife conquistassem o tricampeonato nacional e participassem de quatro campeonatos mundiais de robótica."
+"Também é destaque a Educação Especial. Nos últimos cinco anos a rede municipal do Recife detectou um aumento de 59,67% de matriculas de alunos com deficiência, autismo e altas habilidades/superdotação.
+A rede conta com uma série de recursos de tecnologia assistiva que auxiliam no desenvolvimento desses alunos, tornando Recife uma referência na área."

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Gilmar Mendes questiona proibição de doações empresariais sem reforma do sistema eleitoral"
+date: 2016-08-15
+tags: Doações,fundo eleitoral,Gilmar Mendes,proibição,reformas,sistema prisional
+author: None
+---
+"Acabamos colocando o carro na frente dos bois. Mudamos o sistema de financiamento sem mudar o sistema eleitoral". Essa é a opinião do presidente do Tribunal Superior Eleitoral (TSE), Gilmar Mendes, sobre a minirreforma política que mudou as regras de doações de campanha para estas eleições. Desde a lei sancionada em setembro do ano passado, os candidatos estão proibidos de receber dinheiro de empresas. O ministro do Supremo Tribunal Federal (STF) esteve no Recife nesta segunda-feira (15) para um seminário no Tribunal Regional Federal da 5ª Região (TRF5) sobre as regras do novo Código de Processo Civil.
+"Nós continuamos a ter os candidatos disputando cada qual com suas próprias forças, o que acaba sendo um estímulo para uso de recursos até ilícitos, indevidos", alegou Gilmar Mendes. "Nós precisamos investir energia no novo sistema eleitoral", defendeu. Veja os argumentos do ministro:
+
+Antes de lei ser sancionada pela presidente afastada Dilma Rousseff (PT), o próprio STF, do qual Gilmar Mendes faz parte, havia considerado a doação por empresas inconstitucional.
+"Certamente haverá uma tentação de se fazer o chamado caixa dois, a distribuição de recursos por vias informais", afirmou o ministro. Gilmar Mendes reconhece que o monitoramento ficará mais difícil devido à quantidade de candidatos. Os partidos haviam registrado 330 mil nomes até a tarde desta segunda-feira (15), horas antes de o prazo acabar.
+O presidente do tribunal advertiu, porém, que a equipe de inteligência do TSE vai fiscalizar as doações principalmente através de um software desenvolvido para cruzar informações de órgãos como o Banco Central, o Tribunal de Contas da União, a Receita Federal e o Conselho de Controle de Atividades Financeiras (COAF). "Certamente se obtiverem o mandato em situações irregulares ou usando de meios ilícitos muito provavelmente poderão ter a candidatura já imediatamente impugnada ou depois poderão sofrer também sanções."
+Apesar de criticar  a mudança no financiamento de campanhas, Gilmar Mendes ressaltou que um avanço da nova lei foi com relação ao limite de gastos por município, agora definido pelo TSE - no caso do Recife, cada postulante à prefeitura pode ter despesas de até R$ 6,6 milhões. O presidente do tribunal frisou que em 62% dos municípios os custos não poderão passar de R$ 100 mil para candidatos a prefeito e de R$ 10 mil no caso de vereadores.

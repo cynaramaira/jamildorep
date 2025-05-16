@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Bolsonaro define superministério da Economia e junta Agricultura e Meio Ambiente"
+date: 2018-10-30
+tags: agricultura,Bolsonaro,Economia,juntas (político),meio ambiente,undefined
+author: None
+---
+Estadão Conteúdo - O deputado federal Onyx Lorenzoni (DEM-RS), que chefiará a Casa Civil no governo de Jair Bolsonaro (PSL), confirmou nesta terça-feira, 30, que a gestão terá entre 15 e 16 ministérios. Após uma reunião da cúpula de Bolsonaro, na casa do empresário Paulo Marinho, Onyx também anunciou a fusão dos ministérios do Meio Ambiente com o da Agricultura. Já o da Economia unirá o da Fazenda, o do Planejamento e o da Indústria e Comércio.
+A questão estava sendo reavaliada por Bolsonaro durante a campanha. "O presidente não recuou em nada. Ele sempre disse que, assim como tem experiência em alguns Estados, como Mato Grosso, Agricultura e Meio Ambiente ficarão juntos", disse Lorenzoni. Um dos ministros já anunciados, o economista Paulo Guedes, comentou a proposta de criação de um superministério da Economia. "No programa, os três já estavam juntos", disse o economista.
+Braço direito de Bolsonaro, o ex-presidente do PSL, Gustavo Bebianno, disse que as conversas do núcleo duro do novo governo não chegaram às (indicações para) estatais. Ele disse que houve um significativo avanço, em torno de 80% dos ministérios na reunião desta terça. "Hoje, já foram decididos alguns dos nomes (ministérios). Por uma questão estratégica, nós vamos divulgar os nomes um pouquinho mais para frente", completou.
+Onyx também ressaltou que será um governo "de absoluta união" e que irá trabalhar em sintonia. O deputado informou que Bolsonaro deve ir na próxima terça-feira a Brasília para começar a transição. "O presidente já tem uma lista de nomes (de ministros) e está fazendo a definição final. Acredito que nos próximos dias Bolsonaro deva liberar mais alguns nomes. Na segunda-feira, o presidente, depois de tomar decisão, vai nos permitir divulgar toda a estrutura", declarou.

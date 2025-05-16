@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Plebiscito bianual para presidência da República é defendido em simpósio da Câmara dos Deputados"
+date: 2021-07-10
+tags: meio ambiente
+author: Jamildo
+---
+Na esteira do debate sobre impeachment, reelei&ccedil;&atilde;o e dura&ccedil;&atilde;o do mandato presidencial, um estudo defende uma mudan&ccedil;a radical no sistema pol&iacute;tico brasileiro: mandato de oito anos corridos para o presidente da Rep&uacute;blica com um plebiscito de avalia&ccedil;&atilde;o do chefe de governo realizado a cada dois anos.
+A proposta inovadora foi apresentada essa semana pelo pesquisador do Instituto de Matem&aacute;tica Pura e Aplicada (IMPA) Luciano Irineu de Castro no "Simp&oacute;sio Interdisciplinar sobre o Sistema Pol&iacute;tico Brasileiro &amp;XI Jornada de Pesquisa e Extens&atilde;o da C&acirc;mara dos Deputados" .
+No artigo "Dura&ccedil;&atilde;o de Mandatos, Reelei&ccedil;&atilde;o e Plebiscito de Destitui&ccedil;&atilde;o", Castro aponta, a partir de conceitos e f&oacute;rmulas da matem&aacute;tica, o plebiscito de destitui&ccedil;&atilde;o como o ideal para os cargos de presidente da Rep&uacute;blica, governador de Estado e prefeito no Brasil.
+O formato defendido pelo estudo &eacute; uma adapta&ccedil;&atilde;o para o Brasil de um modelo j&aacute; existente, o recall, atrav&eacute;s do qual eleitores podem destituir um representante eleito de seu cargo antes do t&eacute;rmino do mandato.
+Usando c&aacute;lculos e probabilidade, o pesquisador chegou at&eacute; o modelo que considera ideal para o atual sistema pol&iacute;tico brasileiro.
+"Assim, o eleitorado poder&aacute; limitar os danos de um governante incompetente ou corrupto, ao mesmo tempo em que poder&aacute; se beneficiar de um governo eficaz com um mandato mais longo", detalha o pesquisador.
+A proposta foi debatida nesta sexta-feira (9) na mesa de encerramento do Simp&oacute;sio com a participa&ccedil;&atilde;o dos juristas Modesto Carvalhosa e Ives Gandra Martins e do deputado federal J&uacute;lio Lopes (PP-RJ).
+"O plebiscito de destitui&ccedil;&atilde;o &eacute; algo um pouco mais simples e mais pr&oacute;ximo do sistema atual, tendo em conta o aspecto da instabilidade. Se um governante n&atilde;o estiver satisfazendo o povo, ele ser&aacute; destitu&iacute;do e substitu&iacute;do por outro. Caso ele seja um bom governante, ele pode ficar os oito anos. E a ideia &eacute; que ele ganhe um refor&ccedil;o de respaldo pol&iacute;tico a cada dois anos", explicou Castro na sess&atilde;o de encerramento.
+Na segunda-feira (5), o ministro do Supremo Tribunal Federal (STF) e presidente do Tribunal Superior Eleitoral (TSE), Lu&iacute;s Roberto Barroso, participou da primeira mesa do encontro, e tamb&eacute;m apresentou propostas de mudan&ccedil;as para o chefe de governo do pa&iacute;s.
+Ele sugeriu um modelo semipresidencialista a partir de 2026, com a elei&ccedil;&atilde;o direta de um presidente e indireta de um primeiro-ministro, similar ao que j&aacute; acontece em pa&iacute;ses como Portugal e Fran&ccedil;a.
+Organizado pelo IMPA, pela C&acirc;mara dos Deputados, pela Universidade de Bras&iacute;lia (UnB) e pelo Economics and Politics Research Group (EPRG), o "Simp&oacute;sio Interdisciplinar sobre o Sistema Pol&iacute;tico Brasileiro &amp; XI Jornada de Pesquisa e Extens&atilde;o da C&acirc;mara dos Deputados", realizado de 5 a 9 de julho, debateu propostas para a pol&iacute;tica do pa&iacute;s a partir de estudos de pesquisadores, economistas e cientistas pol&iacute;ticos. 

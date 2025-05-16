@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Memorial da tragédia"
+date: 2011-09-11
+tags: memorial,tragédia
+author: None
+---
+Por Samb&eacute;, especial para o Blog de Jamildo
+Passaram-se dez anos desde o atentado do 11 de setembro em Nova Iorque. O que parecia uma trag&eacute;dia anunciada me chocou quando assisti a segunda colis&atilde;o em tempo real, numa vitrine de eletrodom&eacute;sticos, nas ruas do bairro do Recife. Depois de tanto &ldquo;choror&ocirc;&rdquo;, os escombros est&atilde;o se transformando num memorial em homenagem as v&iacute;timas. Hoje cedo fazendo meu zapping fren&eacute;tico pelas informa&ccedil;&otilde;es de TV e internet, comecei a confabular uma nova teoria conspiracionista sobre o esp&iacute;rito americano. 
+No museu haver&atilde;o fotos, v&iacute;deos e partes dos destro&ccedil;os das torres. Depoimentos emocionados e no fundo de tudo a m&aacute;goa e a tristeza inesquec&iacute;vel do desastre. Um simples &ldquo;touch screen&rdquo; e pronto qualquer um estar&aacute; novamente vivenciando os horrores do maior atentado da hist&oacute;ria. O meu medo &eacute; que os novos filhos dos filhos e netos dessa na&ccedil;&atilde;o, permane&ccedil;am alimentando todo esse &oacute;dio que j&aacute; sabemos, foi a causa de tudo e ainda &eacute; motivo de p&acirc;nico e tens&atilde;o nos dias de hoje. O mesmo a&ccedil;o usado para erguer essa constru&ccedil;&atilde;o tamb&eacute;m fortalecer&aacute; a intoler&acirc;ncia do mundo em seu processo acelerado de autodestrui&ccedil;&atilde;o. De um lado estamos vendo a queda de grandes ditadores e do outro o caminhar da m&aacute;xima natural da lei do mais forte. O esmagamento humano e cultural de na&ccedil;&otilde;es e povos desgarrados em terras estrangeiras, sempre ser&aacute; a p&oacute;lvora para explodirmos em novos conflitos com os mesmos velhos motivos.
+O que pensar disso tudo&#63; Que a grandeza geogr&aacute;fica do mundo continue nos protegendo e anulando nossa parte de responsabilidade&#63; Ou que somos um pequeno retalho de tudo que acontece ao nosso redor&#63;  Intoler&acirc;ncia e viol&ecirc;ncia gratuita n&atilde;o &eacute; exclusividade americana nem isl&acirc;mica. Est&aacute; acontecendo todo dia em todo lugar, seja no Oriente M&eacute;dio, Nova Iorque, S&atilde;o Paulo, ou qualquer cidadezinha de interior. Gays, negros, estrangeiros, pobres.... O que mais podemos odiar enquanto cultivamos esse orgulho desvalido e egoc&ecirc;ntrico sobre os costumes e a cultura milenar dos outros povos.
+Talvez a propor&ccedil;&atilde;o hist&oacute;rica, cronol&oacute;gica e financeira das causas que envolvem estes pa&iacute;ses, os tenham feito chegar &agrave;s vias de fato. Pra mim toda guerra &eacute; est&uacute;pida e n&atilde;o h&aacute; raz&atilde;o que a justifique. Sempre haver&aacute; um l&iacute;der lun&aacute;tico promovendo cat&aacute;strofes e mortes mundo afora. Sempre haver&aacute; diferen&ccedil;a entre os povos, entre as pessoas, entre as fam&iacute;lias. Na diferen&ccedil;a reside nossa maior riqueza, o conhecimento, a diversidade e a  troca. Aprender com isso pode nos levar a outro patamar social e animal na escala evolutiva.
+Talvez ainda esteja por vir nosso apocalipse tropical. Mas n&atilde;o acredito nisso pra n&oacute;s! Acho que o nosso suingue nos reserva tantos prazeres que nunca vamos nos dispor a tais medidas.
+Somos o pa&iacute;s do samba, do futebol, do MMA (mix marcial arts)! Somos o Brasil &ldquo;bundalel&ecirc;&rdquo; conhecido do mundo inteiro. E temos nossa guerra di&aacute;ria contra a injusti&ccedil;a social, nossos problemas de natalidade, de educa&ccedil;&atilde;o, m&aacute; distribui&ccedil;&atilde;o de renda entre tantos j&aacute; conhecidos.
+Acho estranho e m&oacute;rbido pensar que essas lembran&ccedil;as estar&atilde;o confortavelmente dispostas para  visita&ccedil;&atilde;o do grande p&uacute;blico, no melhor modelo americano, ganhando dinheiro com isso.
+Que nossas mazelas nunca sejam expostas num museu constru&iacute;do no cora&ccedil;&atilde;o de nosso pa&iacute;s.
+E que nossos problemas n&atilde;o sejam tamb&eacute;m eternos como os dos nossos vizinhos.
+Nesse caso a grama mais verde &eacute; a nossa.
+&nbsp;
+Rio de janeiro 10 de setembro de 2011.
+&nbsp;
+Samb&ecirc;, cantor, compositor, pensador perif&eacute;rico, pernambucano flutuante em terras fluminenses.

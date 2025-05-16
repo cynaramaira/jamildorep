@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Saiba quanto vão custar as câmaras corporais que serão usadas por PMs de Pernambuco"
+date: 2021-10-26
+tags: Segurança, violência em Pernambuco, Paulo Câmara
+author: JAMILDO MELO
+---
+O Governo de Pernambuco abriu a licita&ccedil;&atilde;o para "C&acirc;meras Filmadoras Corporais Policiais Individuais (Body Cam), Baterias Extras e Equipamentos de Inform&aacute;tica Esta&ccedil;&otilde;es Dock Station" a serem usadas pelos policiais militares de Pernambuco.
+A revela&ccedil;&atilde;o de que os PMs do Estado passariam a usar o equipamento foi feita pela Secretaria de Defesa Social (SDS) de Pernambuco em setembro de 2021.
+A previs&atilde;o, na &eacute;poca, era que os PMs come&ccedil;arem a usar os equipamentos em dezembro deste ano.
+A licita&ccedil;&atilde;o foi aberta pela Pol&iacute;cia Militar, na forma de preg&atilde;o eletr&ocirc;nico.
+
+  
+  Veja extrato da licita&ccedil;&atilde;o oficializada nesta ter&ccedil;a-feira - Di&aacute;rio Oficial
+
+O valor estimado total da licita&ccedil;&atilde;o ficou em R$ 1.874.147,52. O custo poder&aacute; diminuir com a disputa entre as empresas interessadas.
+O Governo do Estado j&aacute; marcou a data para as empresas disputarem o pre&ccedil;o na licita&ccedil;&atilde;o. Ser&aacute; em 29 de outubro.
+O Minist&eacute;rio P&uacute;blico do Estado de Pernambuco (MPPE) tinha sugerido o uso do equipamento para o Poder Executivo do Estado, ap&oacute;s os eventos que resultaram em viol&ecirc;ncia no protesto contra Bolsonaro, no Recife, em maio de 2021.
+LEIA O PUBLICADO NO SITE OFICIAL DO MPPE EM SETEMBRO:
+O Minist&eacute;rio P&uacute;blico de Pernambuco est&aacute; engajado em tratativas para a implanta&ccedil;&atilde;o de um projeto que visa a utiliza&ccedil;&atilde;o de c&acirc;meras corporais nas pol&iacute;cias. O promotor de Justi&ccedil;a e coordenador do Centro de Apoio Operacional de Defesa Social e Controle Externo da Atividade Policial (CAO de Defesa Social), Rinaldo Jorge, reuniu-se com a Secretaria de Defesa Social (SDS) e com a Pol&iacute;cia Militar de Pernambuco (PMPE) para firmar parceria com as institui&ccedil;&otilde;es.
+A iniciativa tem como objetivo garantir a prote&ccedil;&atilde;o dos policiais e dos cidad&atilde;os no exerc&iacute;cio das abordagens e j&aacute; est&aacute; em atividade em outros estados. &ldquo;Santa Catarina e S&atilde;o Paulo j&aacute; fazem uso das bodycams. Minas Gerais, Bahia, Amap&aacute;, Rio de Janeiro e Rio Grande do Sul est&atilde;o com projetos em tramita&ccedil;&atilde;o nas suas respectivas assembl&eacute;ias legislativas. Nosso intuito de criar uma comiss&atilde;o &eacute; para garantir o acompanhamento, a evolu&ccedil;&atilde;o do sistema de uso de bodycams, a fonte de custeio e o planejamento da implanta&ccedil;&atilde;o do projeto&rdquo;, explica o coordenador do CAO de Defesa Social.
+Em visita &agrave; SDS, o promotor de Justi&ccedil;a conversou com o secret&aacute;rio executivo de Defesa Social, Rinaldo de Souza, para firmar parceria e discutir os benef&iacute;cios do uso das c&acirc;meras em Pernambuco. Para o secret&aacute;rio, o projeto tem muito a agregar no dia a dia da pol&iacute;cia. &ldquo;A chegada das c&acirc;meras traz maior seguran&ccedil;a &agrave; atua&ccedil;&atilde;o do policial no cumprimento do seu dever. Na medida que isso permite o controle de qualidade do atendimento da ocorr&ecirc;ncia, d&aacute; uma seguran&ccedil;a para o policial que est&aacute; realizando um procedimento correto. Vai facilitar aqueles momentos em que o profissional est&aacute; sendo testado pelo pr&oacute;prio flagrado ou preso, dizendo que est&aacute; havendo algum uso excessivo da for&ccedil;a. Com a c&acirc;mera mostrando o procedimento, fica mais f&aacute;cil a comprova&ccedil;&atilde;o das evid&ecirc;ncias&rdquo;, explica.
+J&aacute; na PM, o promotor de Justi&ccedil;a, Rinaldo Jorge, esteve com o comandante-geral Cel Roberto Santana, com o Cel Gadelha (chefe do Estado Maior), com o tenente-cel Marcelo (chefe da se&ccedil;&atilde;o de projetos) e com o tenente-cel Vila&ccedil;a (chefe da se&ccedil;&atilde;o de apoio jur&iacute;dico da diretoria de planejamento operacional). &ldquo;J&aacute; estamos em fase final de aquisi&ccedil;&atilde;o do projeto no 17&ordm; batalh&atilde;o da PM. A contribui&ccedil;&atilde;o do Minist&eacute;rio P&uacute;blico, com todo o arcabou&ccedil;o jur&iacute;dico que o Dr Rinaldo traz nos ajuda bastante. Assim, podemos ter uma ideia mais aprofundada das experi&ecirc;ncias e legisla&ccedil;&otilde;es dos estados que j&aacute; utilizam a bodycam no policiamento. Isso vai nos ajudar bastante na realiza&ccedil;&atilde;o das nossas normas, que chamamos de POP, que quer dizer Procedimento Operacional Padr&atilde;o&rdquo;, comenta o comandante.
+A expectativa para o uso das bodycams na Pol&iacute;cia Militar de Pernambuco &eacute; ainda em dezembro de 2021.

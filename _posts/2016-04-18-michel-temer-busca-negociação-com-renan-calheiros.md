@@ -1,0 +1,28 @@
+---
+layout: post
+title: "Michel Temer busca negociação com Renan Calheiros"
+date: 2016-04-18
+tags: Michel Temer,Renan Calheiros,renegociação
+author: None
+---
+Estadão Conteúdo - O vice-presidente Michel Temer ainda vai ter de superar uma série de desafios para assumir a Presidência da República e montar seu governo. Seus aliados mais próximos já listaram alguns dos obstáculos e sabem que não terão muito tempo para comemorar a aprovação do pedido impeachment ocorrida neste domingo (17) pelo plenário da Câmara dos Deputados.
+O primeiro passo é abrir uma linha direta de negociação com o presidente do Senado, Renan Calheiros (PMDB-AL). Antigo desafeto de Temer, Renan já adiantou que não vai acelerar os prazos do processo de impeachment contra a presidente Dilma Rousseff na Casa, o que poderia ajudar o vice-presidente. No Senado, o vice apostará suas fichas nas articulações de Romero Jucá (RR) e Eunício Oliveira (CE), líder da bancada.
+LEIA TAMBÉM:
+&gt; Temer e Cunha impõem derrota a Dilma. Impeachment é aprovado na Câmara dos Deputados
+&gt; Aécio Neves quer apressar decisão do Senado e promete que PSDB vai dar apoio a eventual governo Temer
+De passagem pela Câmara dos Deputados, Jucá, que assumiu a presidência do PMDB de forma interina, ressaltou neste domingo, 17, que espera que Renan conduza de forma "institucional" o processo de impeachment no Senado.
+"Não é o perfil do senador Renan Calheiros, ele vai ser juiz, um presidente institucional do Senado. É claro que pessoalmente ele até pode ter a torcida dele, mas ele representa uma instituição que é maior do que qualquer processo de impeachment", ressaltou Jucá. Na avaliação dele, a decisão dos deputados teve como principal ingrediente a pressão realizada nos respectivos Estados. "Aqui não está votando a pessoa jurídica, o partido. O que pesa na votação é a prestação de contas do deputado junto às bases", considerou.
+LEIA TAMBÉM:
+&gt; Ministro do STF nega pedido para unir impeachment de Temer ao de Dilma
+&gt; Acompanhe os próximos passos do processo de impeachment
+A preocupação com os avanços do impeachment no Senado chegou a ser alvo de conversas realizadas na véspera da votação na Câmara por um pequeno grupo de deputados do PMDB e Michel Temer. Na avaliação do grupo, o regimento do Senado apresenta alguns pontos "ambíguos", o que só aumenta o poder de Renan na condução do processo. "Já há contagem de votos no Senado, mas há uma preocupação com o rito. Outro ponto também discussão é o de ampliar a nossa base entre os senadores", afirmou à reportagem o deputado e ex-ministro de Dilma Edinho Araújo (PMDB-SP).
+Fator Cunha
+Temer também terá de manter seu bom relacionamento com o presidente da Câmara, Eduardo Cunha (PMDB-RJ). O deputado fluminense teve papel decisivo na vitória do impeachment ontem. Foi ele quem articulou a escolha do relator do processo na Casa e garantiu que o texto do relatório seria a favor do afastamento da petista do cargo.
+Cunha sabia que qualquer relator seria pressionado pelo Palácio do Planalto, por isso queria uma pessoa de sua extrema confiança Ele escolheu o deputado Jovair Arantes (PTB-GO), que estava reticente e só foi convencido a cumprir a tarefa depois que o peemedebista sinalizou que poderia indicar o petebista como seu sucessor na Presidência da Câmara.
+"O Eduardo disse para o Jovair: 'estou aqui decidindo o futuro da Câmara'", contou o deputado Paulinho da Força (SD-SP), que acompanhou a conversa. "O Eduardo saiu da sala e eu completei: 'viu que ele vai te indicar presidente? Ele pediu um tempinho para pensar, e aceitou'", afirmou.
+Cobrança
+Aliados de Cunha vão cobrar os compromissos firmados por Temer. Neste domingo, o deputado André Moura (PSC-SE) fez questão de acompanhar o ex-ministro Eliseu Padilha, braço direito de Temer, na visita que ele fez na Câmara para seu último corpo a corpo com as lideranças.
+Além das cobranças dos espaços e cargos negociados nos bastidores, a expectativa entre os partidos que deixaram da base aliada de Dilma é de que Temer apresente propostas concretas para discussão no Congresso, logo após a conclusão do impeachment. "Temer tem mais habilidade porque é da área, mas vai pegar uma situação muito complicada na política e na economia. Não vai ter vida fácil", considerou o ex-ministro de Dilma e líder do PP, Aguinaldo Ribeiro.
+Expectativa
+A votação na Câmara foi acompanhada por Michel Temer, familiares e aliados no Palácio do Jaburu, residência oficial da Vice-Presidência. Eles usaram uma um pequena sala de cinema que fica no subsolo do prédio. Temer passou a tarde o tempo todo na companhia do ex-ministros Eliseu Padilha e Henrique Eduardo Alves. Ele almoçou salada, arroz, frango e lagarto. Inicialmente, não estava prevista a presença dele na capital federal, que decidiu deixar São Paulo na noite da última sexta-feira após ser pressionado por aliados e diante da "guerra psicológica" instaurada nos dias que antecederam a votação.
+No domingo, a ansiedade do vice-presidente com a votação do impeachment se mostrou no número de ligações feitas ao longo do dia a Eliseu Padilha, responsável pela tabulação dos votos. No fim da manhã, Temer já havia telefonado pelo menos quatro vezes para Padilha. O Estado de S. Paulo acompanhou uma das ligações. "É mentira, é mentira. Ele está com a gente", disse o ex-ministro, referindo-se à suposta mudança de voto do deputado Alberto Filho (PMDB-MA). As informações são do jornal O Estado de S. Paulo.

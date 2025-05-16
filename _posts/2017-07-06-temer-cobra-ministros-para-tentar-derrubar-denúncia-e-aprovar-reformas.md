@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Temer cobra ministros para tentar derrubar denúncia e aprovar reformas"
+date: 2017-07-06
+tags: cobra,Michel Temer,ministros,reformas
+author: None
+---
+Estadão Conteúdo - Na reunião de emergência convocada para a noite desta quarta-feira (5), no Palácio do Planalto, com 22 ministros e representantes dos titulares de pastas que não estavam em Brasília, o presidente Michel Temer (PMDB) cobrou de todos que trabalhem junto às suas bancadas para garantir os votos para derrubar na Câmara a denúncia apresentada contra ele pelo procurador-geral da República, Rodrigo Janot. "Agora é um momento em que todos têm de dar provas efetivas do seu engajamento", cobrou o presidente, de forma enérgica, conforme relatou um dos ministros presentes.
+Temer quer que todos mostrem ação para mostrar que o governo não está parado, como ele mesmo está tentando assegurar, ao embarcar para a Alemanha nesta quinta-feira (6), para a reunião do G-20. A reunião foi convocada no mesmo dia em que o presidente apresentou, no Congresso, sua defesa à denúncia de Janot. Temer quer apoio não só político para derrubar a peça de acusação, mas também para garantir votações importantes, como a reforma trabalhista, que considera fundamental para dar um "fôlego político" ao seu governo.
+Ao pedir o engajamento total de cada um, Temer lembrou que, como eles são ministros políticos, têm de trabalhar junto a seus partidos para garantir os votos que o governo precisa para ter continuidade. Lembrou que os ministros são "lideranças expressivas" das suas legendas e que, portanto, "têm autoridade política pra cobrar o partido".
+Os recados foram dirigidos principalmente ao PSDB, que tem sete votos na Comissão de Constituição e Justiça (CCJ) da Câmara, onde a denúncia será analisada antes de ir ao plenário. Estima-se que apenas um tucano votará a favor de Temer no colegiado, apesar de o partido contar com quatro ministros no governo.
+O presidente quer reduzir ao mínimo possível o número de traições. Para isso, pediu que todos passam a agir efetivamente desde já para tentar conquistar votos para barrar a denúncia, seja na CCJ, seja no plenário. O governo estima ter 34 dos 66 votos na comissão assegurados - apenas um acima do necessário. Com o argumento de que as provas são "frágeis", o Planalto espera convencer os parlamentares a votarem contra a denúncia.
+Segundo relato de outro presente ao encontro, Temer fez muitas críticas ao procurador-geral da República, Rodrigo Janot.

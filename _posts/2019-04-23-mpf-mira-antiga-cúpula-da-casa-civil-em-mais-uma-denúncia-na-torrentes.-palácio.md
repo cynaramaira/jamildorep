@@ -1,0 +1,50 @@
+---
+layout: post
+title: "MPF mira antiga cúpula da Casa Civil em mais uma denúncia na Torrentes. Palácio responde"
+date: 2019-04-23
+tags: animais,casa civil
+author: None
+---
+O Ministério Público Federal (MPF) apresentou a décima denúncia no âmbito da Operação Torrentes, que investiga supostas irregularidades em contratos firmados pelo Governo de Pernambuco com recursos federais após as enchentes de 2010 e 2017. Catorze pessoas foram acusadas de fraudar a licitação para a locação de embarcações para transporte de pessoas no Rio Una, na Mata Sul, entre 2010 e 2013, na chamada Operação Reconstrução, ainda no governo Eduardo Campos (PSB). Entre os alvos está o coronel Mário Cavalcanti, ex-secretário da Casa Militar, e outros policiais que atuavam na pasta.
+"Seu status de secretário de Estado, do primeiro escalão do Governo Estadual, com ascendência em relação aos demais membros do núcleo criminoso da Casa Militar, garantia-lhe poder para assegurar internamente o sucesso da complexa empreitada criminosa. Ele tinha o poder para exonerar ou nomear livremente outros integrantes do esquema em postos estratégicos", afirma na denúncia o procurador da República André Estima de Souza Leite. As acusações foram levadas à 13ª  Vara Federal no último dia 15 e a informação veio a público nesta terça-feira (23).
+LEIA TAMBÉM
+ » TRF5 concede habeas corpus para empresário acusado na operação Torrentes
+ » MPF oferece nova denúncia na Operação Torrentes
+ » Em debate, Armando usa Operação Torrentes contra Paulo
+ » Empresário envolvido na Operação Torrentes sofre derrota no STJ
+ » Operação Torrentes: MPF oferece quinta denúncia
+ » Torrentes: presos tentaram interferir através de assessor de Sarney, diz PF
+Cavalcanti foi ainda interventor de Gravatá, no Agreste, e secretário-executivo de Recursos Hídricos, cargo que deixou em dezembro de 2017, cerca de um mês após a deflagração da Operação Torrentes. Na operação, Cavalcanti não chegou a ser preso, mas foi ouvido pela Polícia Federal.
+Foram denunciados também Waldemir José Vasconcelos de Araújo e Laurinaldo Félix Nascimento e Roberto de Melo Filho, que ocupavam, na Casa Militar, respectivamente, os postos de secretário-executivo e presidente da Comissão Permanente de Licitação e coordenador administrativo.
+Ainda são acusados Eduardo José Pereira da Silva, então secretário-executivo de Segurança Institucional; Carlos Alberto D'Albuquerque Maranhão Filho, que foi secretário-executivo de Defesa Civil e secretário-executivo da Camil à época; Ivan Fredovino Ramos Júnior, ex-coordenador da Defesa Civil; Cássio Sinomar de Santana, sucessor de Ivan Ramos Júnior na coordenação da Defesa Civil de Pernambuco e atual secretário de Defesa Civil do Recife; e Adriano Alves da Silva, ex-gerente de apoio administrativo da Defesa Civil do Estado.
+No que o MPF chama de núcleo empresarial, há acusados também denunciados nas outras ações, como o empresário Ricardo Padilha, que chegou a ser preso quando a Polícia Federal deflagrou a Operação Torrentes, em novembro de 2017. Padilha é dono da FJW, contratada pela Casa Militar para prestar o serviço.
+Integram o grupo de empresários denunciados, além dele, Ítalo Henrique Silva Jaques, Taciana Santos Costa, João Henrique dos Santos e Fernando José Wanderley da Cunha Filho.
+R$ 1,9 milhão
+O MPF calcula em R$ 1,9 milhão, em valores atualizados, o suposto dano ao patrimônio público. Em valores da época, o primeiro contrato foi de R$ 240,6 mil para a locação de embarcações. Em seguida, foram feitos aditivos.
+"Durante o ano de 2010, o Estado de Pernambuco foi atingido por fortes chuvas e enchentes, que destruíram várias cidades situadas na Zona da Mata e Agreste e deixaram mais de 80.000 pessoas desabrigadas. Em razão dessa tragédia, o Ministério da Integração Nacional firmou 11 Termos de Compromisso com o Estado de Pernambuco, por meio dos quais repassou à Casa Militar, à qual estava subordinada a Coordenadoria de Defesa Civil de Pernambuco (Codecipe), o total de R$ 445.647.202,62, para financiar a assim denominada “Operação Reconstrução”, a qual tinha por objetivo prestar ampla assistência à população dos diversos municípios afetados", relata a denúncia.
+ Foto: Luiz Pessoa/JC Imagem
+"Ainda nos primeiros dias da crise, quando milhares de pessoas estavam desabrigadas e chorando suas perdas, os investigados Mário Cavalcanti, Waldemir José, Roberto Gomes, Laurinaldo Félix e outros oficiais da Polícia Militar e do Corpo de Bombeiros Militar lotados na Casa Militar, deram início às ações previstas nos Termos de Compromisso, no bojo das quais acabaram por favorecer grupos de empresas ligadas entre si, em processos licitatórios variados e na execução dos contratos deles decorrentes, por meio de diversas modalidades de fraudes, em troca de vantagens indevidas. Algumas dessas pessoas jurídicas participantes das licitações eram empresas de fachada ou fantasmas, via de regra, constituídas em nome de 'testas de ferro'".
+O procurador enfatiza que as empresas supostamente ligadas ao esquema foram contratadas para o fornecimento de diversos materiais para atender às vítimas da enchente, como colchões e banheiros químicos, contratações que já foram alvos das primeiras denúncias. "No âmbito desses contratos, os agentes públicos desviaram enorme parcela dos recursos repassados pela União, mediante prática de sobrepreço, dispensas indevidas de licitação, celebração de aditivos irregulares, concessão disfarçada de reajustes vedados, pagamentos por mercadorias não recebidas e serviços não prestados em sua completude", acusa. 
+Carnaval
+Ao afirmar que havia uma ligação de Ricardo Padilha com os militares, o procurador argumentou que foram encontradas fotos em um HD do empresário durante um bloco de Carnaval organizado pelo militar Roberto Gomes, em que eles aparecem abraçados. "Nas fotos, os mencionados estão fantasiados num baile de carnaval. O denunciado Roberto Gomes é visto fantasiado de 'La Ursa', Ricardo Padilha de 'presidiário n.º 171' e Rafaela Padilha (casada com o empresário) de 'agente do FBI'". 
+"Por exemplo, nos dados de movimentação financeira da FJW LTDA, há operações em favor de Roberto Gomes e da Troça Carnavalesca Barriga de Fora, que este preside, nos valores de R$ 10.584,00, em 6/10/2011; R$ 10.680,00, em 17/10/2011; R$ 20.000,00, 9/12/2011; e R$ 30.000,00, em 16/12/2011; R$ 2.000,00, em 23/1/2013. Algumas dessas operações deram-se em datas próximas a pagamentos da Camil em favor da FJW, pelo contrato de locação de embarcações. Os dados de movimentação financeira de Roberto Gomes revelam grande quantidade de operações entre sua conta pessoal e a conta da entidade carnavalesca", aponta a denúncia.
+» Torrentes: PF prende um advogado, um pastor e um coronel da PM
+ » Torrentes: em 4ª denúncia, MPF aponta irregularidade em R$ 2,6 mi para colchões
+ » Mãe paga fiança de R$ 300 mil e acusado na Torrentes ganha liberdade
+ » Justiça concede habeas corpus a Ricardo Padilha, preso na Torrentes
+ » Torrentes: acusado tem habeas corpus, mas fica preso por nova operação
+ » Segunda fase da Torrentes aponta desvio de recursos do combate à seca
+O procurador também cita o depoimento de um praça da Polícia Militar que trabalhou como motorista do coronel Waldemir José "e que, cumprindo determinações deste, dirigiu-se mais de uma vez ao escritório de Ricardo Padilha para buscar cheques destinados a Waldemir José, havendo sacado esses e outros cheques em agências bancárias em favor deste, inclusive pagando boletos".
+A denúncia fala ainda em conversas entre o coronel Mário Cavalcanti e o Ítalo Jaques, ligado a Padilha, pelo WhatsApp.
+
+A denúncia usou como base ainda um relatório de apreensão de um computador de Ricardo Padilha em que estariam salvas senhas das empresas que participaram de licitações da Casa Militar investigadas na Operação Torrentes. "Foram encontrados nesse computador do denunciado Ricardo Padilha minutas de documentos públicos, para expedição por agentes públicos, ainda sem timbre e sem cabeçalho, o que indica que parte dos documentos oficiais relativos aos processos licitatórios era redigida pelo próprio núcleo empresarial e apenas chancelada pelos agentes públicos", diz ainda.
+Resposta
+Em nota, o Palácio do Campo das Princesas afirmou:
+"O Governo do Estado de Pernambuco reitera o seu apoio a todas as investigações e sempre colabora com a Justiça no combate a desvios ou à má utilização dos recursos públicos. Nesse sentido, como sempre fez, o Governo reforça a disposição em prestar esclarecimentos e cooperar, prestando as informações que foram ou venham a ser solicitadas pelos órgãos de controle.
+Nesse caso especifico, é importante relembrar da excepcionalidade que Pernambuco viveu após a enchente de 2010, que afetou de forma dramática a vida de milhares de pernambucanos da Zona da Mata. 
+Por outro lado, é recomendável manter a devida cautela e deixar a Justiça seguir seu curso, dando o espaço para a defesa dos citados, evitando condenar de forma antecipada servidores públicos estaduais sem o necessário processo legal."
+Em nota, a Prefeitura do Recife ressaltou a "atuação séria, ética" do hoje secretário-executivo de Defesa Civil do Recife, o coronel Bombeiro Militar Cássio Sinomar.
+"A Prefeitura do Recife informa que a carreira pública de 23 anos do secretário-executivo de Defesa Civil do Recife e coronel Bombeiro Militar Cássio Sinomar, é marcada pela atuação séria, ética e de profundo compromisso com a população e o interesse público. Diante disto, expressa a certeza de que a devida apuração dos fatos concluirá, respeitado o direito de ampla defesa, que seus atos foram praticados de acordo com a lei".
+Leia a íntegra de denúncia
+? 
+ MPF mira antiga cúpula da Casa Civil em mais uma denúncia na Torrentes  from Portal NE10

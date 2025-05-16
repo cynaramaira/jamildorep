@@ -1,0 +1,30 @@
+---
+layout: post
+title: "No Recife, Marília Arraes anuncia apoio a Dilma e Armando Monteiro com críticas a Eduardo Campos e o PSB"
+date: 2014-07-18
+tags: Armando Monteiro,Dilma,eduardo campos,Marília Arraes,Recife
+author: None
+---
+Marília Arraes deu coletiva nesta sexta para falar da mudança de lado. Foto: Paulo Veras/BlogImagem
+Por Jamildo Melo, editor do Blog. Com Paulo Veras, repórter.
+A vereadora do Recife Marília Arraes, do PSB, prima do presidenciável Eduardo Campos, depois de reclamar de falta de apoio e desistir de disputar um mandato federal pelo partido, anunciou, nesta manhã de sexta-feira (18), em um hotel de Boa Viagem, que fará campanha em favor da candidata do PT, Dilma, no plano nacional, além de pedir votos, no plano local, para o petebista Armando Monteiro Neto, adversário do candidato socialista Paulo Câmara (PSB). A socialista também avisou que vai apoiar o petista João Paulo, deputado federal, para a disputa ao Senado.
+Marília Arraes chegou ao hotel acompanhada do senador Humberto Costa, líder do governo no Senado e coordenador da campanha de Dilma em Pernambuco. Na entrevista, ela disse que não pretende sair do partido e emendou uma série de críticas ao ex-governador e primo. “Não acho que a candidatura de Eduardo Campos seja a melhor para o Brasil”, opinou.
+“Não sei como Eduardo vai explicar a população que o projeto que Lula defende não é o melhor para o Brasil”, comentou. Em várias oportunidades, o socialista tem dito que Lula não é candidato e que não iria criticá-lo, uma vez que a concorrente era Dilma. “As críticas a Dilma são infundadas”.
+“O PSB passou do limite da coerência”, afirmou, numa referência às alianças feitas no Estado, depois do fim da aliança com o PT, na disputa pela Prefeitura do Recife. Marília se disse incapaz de votar em Câmara para o governo do Estado, dado o modo como ele foi escolhido candidato. "Os critérios usados para se escolher o governador nunca se viram", disse.
+ No Facebook, a vereadora dá sinais da mudança de postura que pode assumir nas eleições 2014.
+Por várias vezes, a vereadora atacou o discurso de "nova política" utilizado nacionalmente por Campos e afirmou que a política que vem sendo feita no PSB é mais velha que aquela que era empregada pelo avô, Miguel Arraes, falecido em 2005. "A política do PSB está de candidatos biônicos", bateu, ao afirmar que muita gente concorda obedece a decisão da Direção sem discutir.
+Sobrou crítica, inclusive, para o prefeito do Recife, Geraldo Julio (PSB), de quem ela foi secretária da Juventude, ao comentar que ela foi uma das primeiras pessoas a defender candidatura própria do partido na cidade. "Uma pena que não se concretizou com um companheiro que tivesse se preparado para ter uma militância política", alfinetou.
+Além de se colocar a disposição das campanhas do PT e PTB, a vereadora do Recife disse que pedirá votos para o candidato a deputado federal petista Dilson Peixoto, ex-presidente do PT no Estado. Não vai defender um nome para deputado estadual alegando que já havia se comprometido em ajudar vários nomes.
+O candidato oposicionista ao governo recebeu a informação oficialmente quando participava de debate na JC News. “Louvo a dissidência no partido, pela coragem de enfrentar a hegemonia do partido. Marília Arraes revela muita fibra”, declarou. Armando Monteiro negou que o PT ou sua campanha vá usar a prima para atacar o adversário de Dilma no cenário nacional.
+O candidato da situação não se posicionou até o momento. O presidente do PSB no Estado, Sileno Guedes, minimizou a mudança de lado da vereadora, afirmando que da mesma forma que ela declarou apoio ao petebista, aliados de Armando já aderiram a campanha socialista. Depois disso, a ligação caiu e o Blog não conseguiu mais entrar em contato.
+Segundo Humberto Costa, a aproximação com a vereadora começou há alguns dias. Ele chegou, inclusive, a comunicar o presidente nacional do PT, Rui Falcão, e o ministro de Relações Institucionais, Ricardo Berzoini, sobre a possibilidade de ela apoiar Dilma.
+Humberto disse que ainda não há definição de como ela vai se engajar nas campanhas. Marília se dispôs a integrar alguma coordenação ou mesmo atuar como militante. "Nem que seja para colar cartaz e balançar bandeira", garantiu.
+Leia também
+&gt;&gt; Insatisfeita com PSB, Marília Arraes retira pré-candidatura a deputada federal
+&gt;&gt; Espólio de Ana Arraes provoca racha no PSB
+ Foto: BlogImagem
+FAMÍLIA - Durante a coletiva, Marília Arraes fez questão de afirmar que a divergência política não interfere na relação pessoal da família. "Ele foi no meu casamento, eu vou na casa dele", afirmou, em referência ao primo. No mesmo período, vários emissários do PSB a procuraram para dizer que a candidatura à deputada federal não era conveniente ao PSB.
+A vereadora revelou, porém, que desde o ano passado tentou conversar com Campos sobre a possibilidade de ser candidata a deputada federal e não teve os telefonemas atendidos, ou as mensagens respondidas.
+Marília chegou a procurar o chefe de gabinete do primo, no Governo do Estado, para intermediar a conversa, mas não obteve sucesso. "Talvez eu tivesse até a ilusão de que tocando a minha candidatura eu poderia ser recebida por ele", justificou, sobre a insistência em ser candidata.
+A vereadora também contou que chegou a procurar integrantes da Direção Nacional do PSB, em Brasília, para tentar intermediar a conversa com o primo; sem sucesso. Em junho, começou a reagir publicando uma carta aberta contra a nomeação do filho de Eduardo, João Campos, para o comando da Juventude do PSB em Pernambuco.
+A crítica elevou o mal estar dentro do partido e quatro dias depois ela anunciou a decisão de não concorrer mais. Marília Arraes tem 30 anos e há pelo menos 10 milita no PSB. Em 2012, foi reeleita vereadora para o segundo mandato com 8.481 votos.

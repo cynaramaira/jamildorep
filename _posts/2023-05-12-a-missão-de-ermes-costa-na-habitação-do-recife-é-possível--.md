@@ -1,0 +1,17 @@
+---
+layout: post
+title: "A missão de Ermes Costa na habitação do Recife é possível? "
+date: 2023-05-12
+tags: jamildo, Recife, HABITAÇÃO, saneamento básico
+author: Jamildo Melo
+---
+Nos 60 dias do Partido dos Trabalhadores &agrave; frente da Secretaria de Habita&ccedil;&atilde;o do Recife (SEHAB), o secret&aacute;rio Ermes Costa tem se notabilizado no cotidiano da pasta. Engenheiro de carreira da Compesa e professor da UPE, ele tem sido apontado como um quadro t&eacute;cnico que a Prefeitura do Recife precisava para fazer andar um verdadeiro &ldquo;calo&rdquo; da gest&atilde;o de Jo&atilde;o Campos, a entrega de habitacionais.
+Incumbido da miss&atilde;o de entregar 1.600 moradias em 2023, Costa precisa provar que a miss&atilde;o &eacute; poss&iacute;vel.
+Com efeito, nos dois primeiros meses na Habita&ccedil;&atilde;o do Recife, Ermes abriu di&aacute;logo com os movimentos sociais; se articulou junto ao Governo Federal, onde tem bom tr&acirc;nsito com a vice&ndash;presidente de Habita&ccedil;&atilde;o da Caixa Econ&ocirc;mica Federal, In&ecirc;s Magalh&atilde;es e com o atual secret&aacute;rio Nacional de Habita&ccedil;&atilde;o, Hailton Madureira, tendo ido tr&ecirc;s vezes a Bras&iacute;lia-DF; debateu com ADEMI-PE, CREA-PE e SINDUSCON-PE a constru&ccedil;&atilde;o de habitacionais de interesse social e para o mercado popular; e participou da entrega do habitacional Ruy Fraz&atilde;o, a&ccedil;&atilde;o do programa Minha Casa, Minha Vida Entidades que entregou 336 moradias.
+Al&eacute;m de construir novas casas, Ermes tem como outra miss&atilde;o fazer a gest&atilde;o condominial e manuten&ccedil;&atilde;o dos conjuntos que j&aacute; foram entregues pela Prefeitura do Recife. Nos seus perfis das redes sociais, ele &eacute; visto frequentemente em visitas a habitacionais, colhendo as demandas com os moradores. O PT espera que esta aten&ccedil;&atilde;o se reflita em a&ccedil;&otilde;es, para que os pr&eacute;dios permane&ccedil;am conservados e evite incidentes como o que vimos recentemente em Olinda.
+No radar do secret&aacute;rio, a SEHAB est&aacute; para lan&ccedil;ar os programas Bom de Morar, que oferece loca&ccedil;&atilde;o social para fam&iacute;lias com at&eacute; tr&ecirc;s sal&aacute;rios e que comprometem mais de 30% da renda com aluguel; Morar Bem, que oferece 30% de subs&iacute;dios para novos habitacionais; Requalifica&ccedil;&atilde;o de Edif&iacute;cios sem uso ou desocupados, articulando com a Caixa, que promete fazer do Recife um modelo, no programa Minha Casa, Minha Vida Retrofit, para a viabiliza&ccedil;&atilde;o de recursos para a transforma&ccedil;&atilde;o de im&oacute;veis no centro em habitacionais.
+Como foi promessa de campanha, a Prefeitura do Recife precisa entregar moradia digna a quem precisa. Dinheiro tem, pois o ProMorar, que recebeu R$ 2 bilh&otilde;es do BID, prev&ecirc; o investimento de R$ 500 milh&otilde;es em habita&ccedil;&atilde;o. Se a meta da gest&atilde;o at&eacute; 2024 &eacute; de 3 mil casas, &eacute; preciso trabalho e a&ccedil;&atilde;o em pouco mais de um ano e meio.
+O petista Ermes tem curr&iacute;culo e demonstra ser bem articulado pol&iacute;ticamente. Caso passe na miss&atilde;o, n&atilde;o ser&aacute; pe&ccedil;a descart&aacute;vel em uma cidade que precisa de novos quadros pol&iacute;ticos.
+
+  
+  Ermes Costa &eacute; uma das apostas t&eacute;cnicas do PT no Recife - Habita&ccedil;&atilde;o

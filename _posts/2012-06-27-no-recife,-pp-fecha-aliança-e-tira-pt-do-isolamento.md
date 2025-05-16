@@ -1,0 +1,14 @@
+---
+layout: post
+title: "No Recife, PP fecha aliança e tira PT do isolamento"
+date: 2012-06-27
+tags: Fechamento,isolamento,Recife
+author: None
+---
+Foto: divulga&ccedil;&atilde;o/Heinrich Aikawa
+Em conversa na tarde desta quarta-feira (27), em S&atilde;o Paulo, com o senador e pr&eacute;-candidato &agrave; Prefeitura do Recife, Humberto Costa (PT), e o ex-presidente Lula (PT), em S&atilde;o Paulo, o deputado federal Eduardo da Fonte fechou o apoio do PP aos petistas, passando a ser a primeira legenda a apoiar a candidatura de Humberto. Tamb&eacute;m participou do evento o ministro das Cidades, Aguinaldo Ribeiro. A alian&ccedil;a foi um pedido de Lula a Eduardo da Fonte.
+Motim do PP de Maluf no Recife pede que Eduardo da Fonte rume com o PT de Humberto Costa
+&quot;Como pernambucano, eu tenho que ficar ao lado do ex-presidente Lula. Ele me fez este pedido e, por tudo que ele fez pelo Recife, vamos estar juntos. Ficou claro que ele s&oacute; ter&aacute; um candidato, que &eacute; Humberto&quot;, destacou Eduardo da Fonte.
+Por causa da alian&ccedil;a, o PP inclusive j&aacute; entregou os cargos que ocupava no Instituto de Recursos Humanos de Pernambuco (IRH-PE), vinculado ao Governo do Estado. Na semana passada, o PSB, do governador Eduardo Campos, lan&ccedil;ou a candidatura do ex-secret&aacute;rio de Desenvolvimento Econ&ocirc;mico Geraldo J&uacute;lio. Entretanto, a secret&aacute;ria de Esportes do governo e filiada ao PP, Ana Cavalcanti, continuar&aacute; no comanda da pasta, j&aacute; que &eacute; &quot;da cota pessoal do governador&quot;, como explicou Eduardo da Fonte.
+Em entrevista ao Blog de Jamildo na semana passada, o presidente do PP no Recife, Jos&eacute; Fernandes, conhecido como Boc&atilde;o, informou em primeira m&atilde;o que pr&eacute;-candidatos a vereador nas elei&ccedil;&otilde;es de outubro estavam pressionando Eduardo da Fonte, que tamb&eacute;m &eacute; presidente estadual dos pepistas, para caminhar junto com o PT, partido com o qual o PP &eacute; aliado h&aacute; 12 anos, quando os petistas assumiram o comando da Prefeitura. Na ocasi&atilde;o, o apoio ao PT ganhou 49 votos e o rompimento, apenas quatro. Sobre isso, Eduardo da Fonte garante que n&atilde;o houve resist&ecirc;ncia de sua parte. &quot;Pelo contr&aacute;rio, eu que mandei fazer a consulta aos pr&eacute;-candidatos&quot;.
+Mesmo com a alian&ccedil;a, o posto de vice na chapa petista ainda est&aacute; incerto. Segundo Humberto, as conversas sobre a quest&atilde;o v&atilde;o come&ccedil;ar nesta quinta (28). &quot;N&atilde;o houve reivindica&ccedil;&atilde;o [por parte do PP]. O pedido de Lula foi pol&iacute;tico&quot;, resumiu.

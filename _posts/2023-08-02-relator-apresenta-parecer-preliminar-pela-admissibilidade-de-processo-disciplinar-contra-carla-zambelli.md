@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Relator apresenta parecer preliminar pela admissibilidade de processo disciplinar contra Carla Zambelli"
+date: 2023-08-02
+tags: jamildo, Carla Zambelli
+author: Jamildo Melo
+---
+O deputado Jo&atilde;o Le&atilde;o (PP-BA), relator no Conselho de &Eacute;tica e Decoro Parlamentar de processo contra a deputada Carla Zambelli (PL-SP), apresentou nesta quarta-feira (2) parecer preliminar pela admissibilidade da Representa&ccedil;&atilde;o 1/23 apresentada pelo PSB. O partido acusa a deputada de quebra de decoro parlamentar por ter xingado e constrangido o deputado Duarte Jr. (PSB-MA) durante audi&ecirc;ncia p&uacute;blica com o ministro da Justi&ccedil;a, Fl&aacute;vio Dino, em 11 de abril.
+O comportamento, segundo o PSB, "reduz o Parlamento a uma roda de conversas informais, onde qualquer pessoa pode ofender sem ser repreendido". A representa&ccedil;&atilde;o acrescenta que a imunidade parlamentar &eacute; uma prote&ccedil;&atilde;o &agrave; democracia e n&atilde;o deve ser usada de forma "imoral e zombeteira".
+
+      Leia Também
+      
+	    				
+                                              		             
+                                                                                            Carla Zambelli é alvo de operação da Polícia Federal na manhã desta quarta-feira (2)
+                                      
+	          
+
+&ldquo;Voto pela admissibilidade da representa&ccedil;&atilde;o, com consequente continuidade do processo para apresenta&ccedil;&atilde;o da defesa no prazo regimental&rdquo;, disse o relator. Ele sugeriu que Carla Zambelli apresentasse sua defesa por escrito. Na sess&atilde;o, ela fez discurso se defendendo. O deputado Domingos S&aacute;vio (PL-MG) apresentou pedido de vista para ter mais tempo para an&aacute;lise do relat&oacute;rio. A vista foi concedida pelo presidente do conselho, Leur Lomanto J&uacute;nior (Uni&atilde;o-BA), por dois dias &uacute;teis.
+Jo&atilde;o Le&atilde;o defendeu &ldquo;comportamento civilizado entre os congressistas&rdquo;, e que o conselho seja rigoroso com qualquer parlamentar que n&atilde;o venha cumprir a &eacute;tica e o decoro. Segundo o relator, o conselho tem arquivado representa&ccedil;&otilde;es an&aacute;logas, em situa&ccedil;&otilde;es de agress&otilde;es verbais. &ldquo;Cumpre inaugurar inst&acirc;ncia para que a instru&ccedil;&atilde;o seja realizada, concretizando a ampla defesa e o contradit&oacute;rio, e ao final venha se decidir se o comportamento imputado veio ou n&atilde;o ferir o decoro parlamentar, aplicando-se a pena necess&aacute;ria, adequada e proporcional &agrave; esp&eacute;cie&rdquo;, afirmou.
+Jo&atilde;o Le&atilde;o defendeu comportamento civilizado entre congressitas
+Carla Zambelli alega que proferiu o xingamento, mas n&atilde;o contra o deputado Duarte Jr. &ldquo;A audi&ecirc;ncia [com o ministro Fl&aacute;vio Dino] estava barulhenta. Existe um v&iacute;deo de mim falando a palavra que n&atilde;o vou repetir aqui, mas eu n&atilde;o mandei a pessoa para aquele lugar&rdquo;, argumentou a deputada.
+Ela argumenta que estava sendo ofendida pelo parlamentar e outros. &ldquo;Eles estavam em tr&ecirc;s pessoas, eu fui chamada de espanhola, de pistoleira. E por que espanhola? Porque uma vez a [ex-deputada] Joice Hasselmann disse que fui prostituta na Espanha. Ent&atilde;o, eles me chamam de espanhola querendo me chamar de prostituta. Eu queria que o senhor se colocasse na minha posi&ccedil;&atilde;o, tendo um filho de 15 anos, um marido militar e nordestino, que escuta as pessoas me chamando de prostituta. Se eu tivesse sido n&atilde;o teria problema em assumir, mas eu n&atilde;o fui&rdquo;, completou.
+Conforme ela, o deputado Duarte tamb&eacute;m disse: &ldquo;A senhora n&atilde;o est&aacute; em S&atilde;o Paulo, n&atilde;o pode sair dando tiro n&atilde;o.&rdquo; Ela afirmou que na ocasi&atilde;o em S&atilde;o Paulo sacou a arma - &agrave; &eacute;poca ela tinha porte de arma - ap&oacute;s sofrer viol&ecirc;ncia pol&iacute;tica. Carla Zambelli alega que falou a um colega &ldquo;agora s&oacute; falta ele me mandar tomar naquele lugar&rdquo;, referindo-se &agrave; Duarte.
+&ldquo;Eu n&atilde;o deveria ter feito, porque uma mulher n&atilde;o deveria ficar xingando desta forma, apesar de ter sido criada por fam&iacute;lia italiana e, sabe como &eacute; que, as nonas [av&oacute;, em italiano] gostam de falar um palavr&atilde;o&rdquo;, acrescentou. &ldquo;Mas n&atilde;o houve quebra de decoro contra o deputado, eu estava comentando um fato, eu falei que agora s&oacute; faltava ele fazer isso, porque ele j&aacute; estava falando h&aacute; muito tempo contra mim. E n&oacute;s, mulheres, &agrave;s vezes a gente fica se sentindo sozinha, porque eram tr&ecirc;s homens falando besteira de mim. Eu deveria ter dito outra coisa, mas eu j&aacute; tinha pedido para eles pararem por favor.&rdquo; Ela alega ainda que h&aacute; v&aacute;rias testemunhas de que ela n&atilde;o ofendeu o deputado. E observou que se arrepende do palavr&atilde;o, mas argumenta que estava sendo provocada.
+&nbsp;

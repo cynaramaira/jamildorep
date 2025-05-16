@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Promotora de Água Preta recomenda redução de cargos comissionados"
+date: 2008-11-01
+tags: água,Preta Gil,Recomendações,redução
+author: None
+---
+A Prefeitura do munic&iacute;pio de &Aacute;gua Preta tem 90 dias para apresentar um projeto de Lei &agrave; C&acirc;mara Municipal com a inten&ccedil;&atilde;o de reduzir o n&uacute;mero de cargos de provimento em comiss&atilde;o e fun&ccedil;&otilde;es comissionadas. A medida foi recomendada pela promotora Carla Ver&ocirc;nica Pereira ap&oacute;s ser informada de que o organograma funcional do munic&iacute;pio conta com um n&uacute;mero acentuado de cargos comissionados e contratados temporariamente ocupados por amigos e correligion&aacute;rios pol&iacute;ticos. A Prefeitura estava desrespeitando a Lei de Responsabilidade Fiscal (LRF), que determina que a despesa com pessoal n&atilde;o pode ser superior a 54% de sua receita.
+O Tribunal de Contas do Estado (TCE/PE) informou ao Minist&eacute;rio P&uacute;blico de Pernambuco (MPPE) que o munic&iacute;pio de &Aacute;gua Preta vem excedendo o limite da LRF. No primeiro quadrimestre de 2007, a Prefeitura gastou 57,48% de sua receita com pessoal. No segundo e no terceiro quadrimestre, tamb&eacute;m foram constatados um alto &iacute;ndice de gatos, foram utilizados 57,13% e 59,99% da receita, respectivamente. O pior registro foi feito no primeiro quadrimestre de 2008, foram utilizados 61,90% da receita corrente do munic&iacute;pio para pagamento de pessoal.
+A promotora Carla Ver&ocirc;nica recomendou ao prefeito de &Aacute;gua Preta que tome as medidas cab&iacute;veis para adequar os gastos municipais &agrave; LRF. Al&eacute;m do Projeto de Lei enviado C&acirc;mara Municipal para diminuir o n&uacute;mero de cargos comissionados e tempor&aacute;rios, a promotora tamb&eacute;m recomendou, caso seja necess&aacute;rio, que seja feita a abertura de concurso p&uacute;blico para o preenchimento dos cargos ocupados irregularmente por amigos e correligion&aacute;rios pol&iacute;ticos.&nbsp;&nbsp;&nbsp; 

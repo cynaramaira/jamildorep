@@ -1,0 +1,23 @@
+---
+layout: post
+title: "PDT entra com novo pedido de impeachment de Bolsonaro por causa do perdão a Daniel Silveira"
+date: 2022-04-22
+tags: jamildo, PDT
+author: JAMILDO MELO
+---
+O PDT n&atilde;o gostou do indulto concedido por Bolsonaro ao deputado federal Daniel Silveira e entrou com um novo pedido de impedimento na C&acirc;mara dos Deputados. O pedido &eacute; assinado pelo presidente Carlos Lupi. Ele &eacute; o principal incentivador da campanha do candidato Ciro Gomes.
+"Depois de conceder a gra&ccedil;a constitucional, falta s&oacute; a parte do Congresso. O Congresso agora vai discutir apenas os direitos pol&iacute;ticos, mas ningu&eacute;m em tese vai poder dizer algo al&eacute;m disso. O efeito da puni&ccedil;&atilde;o j&aacute; era. A partir de amanh&atilde; (hoje) devem estar apresentando o pedido de anistia no Congresso", analisou uma fonte don blog, no meio bolsonarista.
+
+    
+            Indulto para Daniel Silveira é jogada para plateia, diz advogado
+            STF pode revogar indulto dado a Daniel Silveira, diz jurista
+        
+
+O Supremo Tribunal Federal, em sess&atilde;o realizada no dia 20 de abril de 2022, condenou o Deputado Daniel Silveira (AP 1044) &agrave; pena de oito anos e nove meses de reclus&atilde;o, em regime inicial fechado, pelo cometimento de crimes de amea&ccedil;a ao Estado Democr&aacute;tico de Direito (art. 23, inciso IV, combinado com o artigo 18 da Lei n&ordm; 7.170/1983) e coa&ccedil;&atilde;o no curso do processo (art. 344).
+"J&aacute; n&atilde;o &eacute; nenhuma novidade que o Presidente da Rep&uacute;blica manifesta profundo desprest&iacute;gio ao Poder Judici&aacute;rio. Foram in&uacute;meras as not&iacute;cias, no curso do mandato, que d&atilde;o conta da prolifera&ccedil;&atilde;o de diversos atos acintosos ao livre exerc&iacute;cio do Poder Judici&aacute;rio, especificamente quando a Corte Constitucional perfilha entendimento que aponta para uma dire&ccedil;&atilde;o diferente da que fora tra&ccedil;ada pela vontade do Chefe do Poder Executivo. Atualmente, o Presidente da Rep&uacute;blica utilizou-se do instrumento constitucional da gra&ccedil;a (art. 84, inciso XII, da CF/88) para beneficiar o Senhor Daniel Silveira, seu aliado pol&iacute;tico", afirma Carlos Lupi no arrazoado.
+"O deputado Daniel Silveira proferiu diversos improp&eacute;rios criminosos contra esta Suprema Corte e seus Ministros, bem como tamb&eacute;m ao regime democr&aacute;tico, no que demonstra ser um indiv&iacute;duo de pouco apre&ccedil;o &agrave; democracia e seus apan&aacute;gios".
+"O ato foi soerguido com esteio em motiva&ccedil;&otilde;es no sentido de que, sob a &oacute;tica do presidente da Rep&uacute;blica, houve viola&ccedil;&atilde;o ao direito de liberdade de express&atilde;o conferido ao Senhor Daniel Silveira e &agrave; inviolabilidade de opini&atilde;o enquanto parlamentar. Em complemento, o senhor Jair Messias Bolsonaro justifica a edi&ccedil;&atilde;o do referido decreto como forma de zelar pelo interesse p&uacute;blico.Por certo, constata-se o n&iacute;tido desvio de finalidade na edi&ccedil;&atilde;o de um ato eminentemente autorit&aacute;rio, na medida em que questiona a decis&atilde;o encaminhada por este Supremo Tribunal fora da ambi&ecirc;ncia dial&oacute;gica do processo, que tem os meios recursais e processuais de insurg&ecirc;ncia pr&oacute;prios".
+"Evidencia-se, nesse ponto, que o ato em apre&ccedil;o, para al&eacute;m de afrontar a supremacia da Constitui&ccedil;&atilde;o Federal de 1988, revela um espectro de odiosos acintes aos princ&iacute;pios da separa&ccedil;&atilde;o dos poderes, do devido processo legal, da moralidade administrativa, na vertente do desvio de finalidade e da impessoalidade."
+Perda do cargo
+"Pelo fio do exposto, requer a Vossa Excel&ecirc;ncia o recebimento da den&uacute;ncia em face do Presidente da Rep&uacute;blica, com o prosseguimento do feito nos termos dos ritos prescritos na Lei n&ordm; 1.079/1950 e no Regimento Interno da C&acirc;mara dos Deputados, para, posteriormente, encaminh&aacute;-la &agrave;s inst&acirc;ncias competentes para process&aacute;-la e julg&aacute;-la procedente, com a decreta&ccedil;&atilde;o da perda do cargo, bem a inabilita&ccedil;&atilde;o tempor&aacute;ria para o exerc&iacute;cio de fun&ccedil;&atilde;o p&uacute;blica", escreve, no pedido.
+"Junta-se, na oportunidade do protocolo inaugural, todos os documentos que comprovam o cometimento dos crimes de responsabilidade narrados nesta den&uacute;ncia".

@@ -1,0 +1,16 @@
+---
+layout: post
+title: "EUA informa que Brasil recebe alocação adicional para vender 80 mil toneladas de açúcar ao mercado americano"
+date: 2020-09-22
+tags: brasil,fbl-americano,informática,Mercado
+author: None
+---
+Em 22 de setembro de 2020, o Escritório do Representante de Comércio dos Estados Unidos (USTR) informou as alocações de quantidades adicionais do Ano Fiscal de 2020 em cotas tarifárias (TRQ) para o açúcar bruto importado, conforme anunciado pelo secretário de Agricultura dos EUA em 10 de setembro de 2020. Dessa quantidade adicional, o USTR destina 10.718 toneladas de valor bruto à Austrália e 80.000 ao Brasil.
+Em 10 de setembro, o secretário de Agricultura dos EUA anunciou uma quantidade adicional dentro da cota do TRQ para açúcar bruto de cana para o restante do ano fiscal de 2020 na quantidade de 90.718 toneladas de valor bruto.
+De acordo com o cronograma de tarifas americano, os EUA mantêm TRQs para importação de açúcar bruto e refinado. Essa quantidade se soma à quantidade mínima de 1.117.195 toneladas de valor bruto com o qual os EUA se comprometem sob a Rodada Uruguai da Organização Mundial do Comércio e, além do aumento de 317.515 toneladas de valor bruto em 3 de abril de 2020.
+O Departamento de Agricultura também determinou que permitirá que todo o açúcar que entrar nos EUA sob o TRQ de açúcar bruto do ano fiscal de 2020 entre em território aduaneiro americano até 31 de outubro de 2020, um mês depois da data habitual de 30 de setembro.
+
+Ganhe o mundo
+O governador Paulo Câmara recebeu, nesta terça-feira (22), no Palácio do Campo das Princesas, o embaixador dos Estados Unidos, Todd Chapman que, em sua primeira visita oficial ao Estado, apresentou a nova cônsul geral no Recife, Jessica Simon. O governador discutiu com os diplomatas as possibilidades de cooperação no cenário pós-pandemia do novo coronavírus e mostrou as potencialidades de Pernambuco nas áreas dos polos automotivo, de confecções, informática e fruticultura irrigada.
+O embaixador também sinalizou ao governador para a ampliação de parcerias na área de Educação, com o Ganhe o Mundo, maior programa de intercâmbio para estudantes da educação pública na América Latina, implementado pelo Governo de Pernambuco. "Combinamos de aprofundar as parcerias e buscar cada vez mais um conjunto de ações favoráveis a Pernambuco em áreas que são muito importantes para o nosso futuro. Seja na economia, na segurança pública ou na educação. O governo americano é um parceiro do Ganhe o Mundo. O embaixador e a nova cônsul se mostraram muito animados com a possibilidade de ampliar essas relações do aprendizado da língua inglesa em Pernambuco", destacou Paulo Câmara.
+No encontro, as equipes de Relações Internacionais do Estado e do Consulado Geral participaram do início da elaboração de um Memorando de Entendimento (MOU) nas áreas de Educação, Segurança e Desenvolvimento Econômico. Participaram da reunião também o presidente do Tribunal de Justiça de Pernambuco, Fernando Cerqueira, e os secretários Fred Amancio (Educação e Esportes), Bruno Schwambach (Desenvolvimento Econômico) e Antônio de Pádua (Defesa Social).

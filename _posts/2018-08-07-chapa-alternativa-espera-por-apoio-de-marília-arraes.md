@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Chapa alternativa espera por apoio de Marília Arraes"
+date: 2018-08-07
+tags: Alternativas,Marília Arraes
+author: None
+---
+A coligação "O Pernambuco que você quer" - formada por PROS, PDT e Avante - anunciou nesta terça-feira (7) o último nome para fechar a composição da chapa majoritária da chamada 'frente alternativa'. Ao anunciar o nome da coordenadora estadual do Movimento dos Trabalhadores Sem Teto (MTST) Lídia Brunes (PROS) como postulante ao Senado, Silvio Costa (Avante) e Maurício Rands (PROS) revelaram que espera o apoio da vereadora Marília Arraes (PT) que teve sua candidatura ao governo rifada por conta da aliança entre PT e PSB.
+Perguntado se ainda espera o apoio da petista, Silvio Costa - que era um dos nomes para o Senado em uma possível chapa de Marília e que agora é um dos candidatos ao Senado na chapa de Rands - disse repeitar o tempo da vereadora. "Vamos respeitar, se depender de mim, o tempo político da vereadora Marília Arraes", disse.
+LEIA TAMBÉM
+ » Terceira via sai com Rands, Isabella de Roldão, Silvio Costa e Jayme Asfora
+ » Horas após ser anunciado, Jayme Asfora não será mais candidato na chapa de Rands
+ » MTST de Pernambuco declara apoio à reeleição de Geraldo Julio
+Maurício Rands, ex-deputado federal pelo PT e agora candidato ao governo, comparou a pré-candidatura da vereadora a sua em 2012. "A candidatura de Marília surgiu e eu faço uma analogia com minha pré-candidatura a prefeito do Recife em 2012. A candidatura surgiu com uma demanda de baixo para cima nos partidos populares e essa candidatura em 2012 começou a conectar, aí veio a burocracia, o autoritarismo e fizeram a intervenção e tiraram a minha candidatura e de João da Costa. Agora Marília também veio de baixo para cima dentro do PT, com os movimentos sociais, conectando com a sociedade, interpretando o descontentamento que tinha com essas cúpulas partidárias e aí a burocracia fez uma intervenção e tirou a candidatura dela", contou Rands. 
+Sobre um possível apoio de Marília à sua candidatura, Maurício acompanhou Silvio Costa dizendo esperar. "Eu ratifico, nós estamos bem alinhados e apenas acrescento, que a candidatura de Marília foi interprete de um descontentamento muito forte que há em Pernambuco com essa política convencional", falou emendando que a chapa 'alternativa' se parece com a candidatura de Marília Arraes (PT). "Essas candidaturas aqui tem analogia com 2012, tem analogia com a candidatura de Marília e representa esse anseio da sociedade. Por isso que a gente tem que respeitar o tempo de Marília, mas a gente está vendo que muitas pessoas que estavam animadas com a alternativa que Marília tava apresentando e agora estão animadas com essa alternativa que estamos apresentando" finalizou.  
+A chapa formada por PROS, PDT e Avante foi fechada na noite do último domingo (5), nas últimas horas para o fim do prazo para a realização de convenção. Com a retirada de sua candidatura ao governo, Marília Arraes (PT) anunciou que é candidata a deputada federal mas não declarou apoio a nenhum candidato a governador.

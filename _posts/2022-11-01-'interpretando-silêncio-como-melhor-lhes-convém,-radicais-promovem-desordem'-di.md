@@ -1,0 +1,26 @@
+---
+layout: post
+title: "'Interpretando silêncio como melhor lhes convém, radicais promovem desordem' diz advogado"
+date: 2022-11-01
+tags: jamildo, eleições 2022, PRF, DEMOCRACIA
+author: Jamildo Melo
+---
+Francisco Gomes Junior, advogado e Presidente da Associa&ccedil;&atilde;o de Defesa de Dados Pessoais e do Consumidor (ADDP), escreve ao blog sobre o p&oacute;s elei&ccedil;&atilde;o, criticando em especial a situa&ccedil;&atilde;o nas estradas, responsabilidade federal. Veja os termos abaixo.
+
+    
+            PROTESTO CAMINHONEIROS: Governadores vão usar polícia contra bloqueios em rodovias; CONFIRA
+            BLOQUEIO DOS CAMINHONEIROS: PRF faz uso de GÁS DE PIMENTA nos manifestantes
+            PARALISAÇÃO CAMINHONEIROS: ministro do STF culpa BOLSONARO e o chama de "moleque"? Entenda caso
+        
+
+Crimes contra a democracia
+Este n&atilde;o &eacute; um texto de vi&eacute;s pol&iacute;tico, mas sim em defesa do Estado de Direito. Encerradas as elei&ccedil;&otilde;es presidenciais e proclamado o resultado pelo TSE (Tribunal Superior Eleitoral), eventual diverg&ecirc;ncia quanto ao resultado do pleito deve ser arguida atrav&eacute;s de recurso para a corte eleitoral.
+Como mencionado, ap&oacute;s a proclama&ccedil;&atilde;o do resultado pelo Ministro Alexandre de Moraes, presidente do TSE, qualquer eventual recurso ser&aacute; processado e julgado na forma da lei. Provas podem ser produzidas para comprovar eventuais alega&ccedil;&otilde;es de erros ou diverg&ecirc;ncia nos resultados. Este &eacute; o caminho correto e legal para contesta&ccedil;&atilde;o de um resultado eleitoral, caminho ali&aacute;s que foi tomado pelo candidato A&eacute;cio Neves ap&oacute;s a derrota em elei&ccedil;&otilde;es presidenciais no ano de 2014, sendo o primeiro presidenci&aacute;vel a pedir auditoria do sistema.
+No Direito, al&eacute;m das leis positivadas, formalmente escritas e proclamadas, temos o reconhecimento de usos e costumes como fonte an&aacute;loga &agrave;s leis, ou seja, ainda que n&atilde;o formais, certos comportamentos s&atilde;o aguardados, como tratando-se de um compliance eleitoral, uma demonstra&ccedil;&atilde;o de boa f&eacute; e aceita&ccedil;&atilde;o das regras do jogo.
+Com base nesse costume, a cada elei&ccedil;&atilde;o presidencial, o candidato derrotado reconhece a derrota, afinal as urnas s&atilde;o soberanas, e faz uma liga&ccedil;&atilde;o ao candidato vencedor, manifestando-se que ir&aacute; cumprir com seus deveres legais de facilitar um governo de transi&ccedil;&atilde;o. S&atilde;o normas de civilidade e de afirma&ccedil;&atilde;o da democracia.
+Nas elei&ccedil;&otilde;es presidenciais realizadas no domingo e vencidas pelo candidato da oposi&ccedil;&atilde;o, isso n&atilde;o ocorreu at&eacute; o momento, mais de 24 horas ap&oacute;s a proclama&ccedil;&atilde;o do resultado pelo TSE. Ao resistir para reconhecer o resultado, transmite-se uma relut&acirc;ncia de aceita&ccedil;&atilde;o da vontade das urnas e d&aacute;-se vaz&atilde;o a v&aacute;rios tipos de rea&ccedil;&atilde;o, inclusive &agrave;quelas mais radicais, o que j&aacute; est&aacute; ocorrendo. Interpretando o sil&ecirc;ncio da forma que melhor lhes conv&eacute;m, grupos radicais promovem a desordem, atrav&eacute;s do bloqueio das estradas, de convoca&ccedil;&otilde;es para bloqueio tamb&eacute;m de vias locais (como a Marginal Tiet&ecirc; e Pinheiros em S&atilde;o Paulo) e da prolifera&ccedil;&atilde;o de teorias conspirat&oacute;rias e golpistas nas m&iacute;dias sociais.
+Lembramos que nos Estados Unidos, Donald Trump permaneceu algumas horas em sil&ecirc;ncio e somente depois de algum tempo manifestou-se pedindo a desocupa&ccedil;&atilde;o do Capit&oacute;lio, invadido por radicais que contestavam o resultado das elei&ccedil;&otilde;es. Agora, parece que a estrat&eacute;gia se repete, faz-se o silencia e aguarda-se a marcha dos acontecimentos. Ao que tudo indica, como n&atilde;o h&aacute; indica&ccedil;&otilde;es de que outras institui&ccedil;&otilde;es queiram embarcar em aventuras n&atilde;o democr&aacute;ticas, ao final haver&aacute; um pronunciamento, mas com um certo caos j&aacute; instalado.
+De se ressaltar que estradas federais s&atilde;o de responsabilidade da Uni&atilde;o Federal e que o chefe do Executivo &eacute; o &uacute;ltimo respons&aacute;vel pela gest&atilde;o dessas vias e pela garantia constitucional de ir e vir de todos os cidad&atilde;os. E a Pol&iacute;cia Rodovi&aacute;ria Federal &eacute; a respons&aacute;vel pelo desbloqueio das vias, n&atilde;o necessitando, como ressaltou a pr&oacute;pria Advocacia Geral da Uni&atilde;o, de autoriza&ccedil;&atilde;o judicial para atuar.
+O que se espera &eacute; a mais r&aacute;pida resolu&ccedil;&atilde;o dessa situa&ccedil;&atilde;o de amea&ccedil;a ao caos, com cada figura da Rep&uacute;blica assumindo suas responsabilidades. E que &agrave;queles que assim n&atilde;o o fizerem sejam punidos na forma da lei, seja por a&ccedil;&atilde;o ou omiss&atilde;o.
+Por fim, no exemplo norte-americano os invasores do Capit&oacute;lio foram processados, julgados e condenados criminalmente e o Congresso americano agora apura a responsabilidade do ex-Presidente Trump nos eventos. Que o exemplo seja seguido.
+Confira as interdi&ccedil;&otilde;es nas estradas de Pernambuco nesta ter&ccedil;a-feira (1&ordm;)

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Partidos nanicos pedem ao STF mudanças na cláusula de barreira "
+date: 2006-11-23
+tags: barreiras,Mudanças,partidos liberais
+author: None
+---
+
+Da Folha Online
+Integrantes do PV, PSOL, PC do B e PRB foram nesta quinta-feira ao STF (Supremo Tribunal Federal) defender mudanças na cláusula de barreira --regra que restringe a representação partidária de legendas que não conseguiram alcançar 5% dos votos válidos para a Câmara dos Deputados e 2% em pelo menos nove Estados brasileiros. O STF julga há mais de dez anos duas Adins (Ações Diretas de Inconstitucionalidade) sobre a cláusula de barreira.Segundo o deputado Chico Alencar (PSOL-RJ), o STF marcou o julgamento das Adins para o dia 7 de dezembro. A expectativa do deputado é que os ministros flexibilizem as regras da cláusula para evitar que os pequenos partidos desapareçam do cenário pol?tico. \"A cláusula é de asfixia. Ela não só impede a nossa existência, mas o nosso crescimento. Alguns partidos, como o PRB e o PSOL, querem o direito de nascer. Outros, como o PC do B e o PV, querem poder existir\", disse o deputado à Folha Online.Alencar afirmou que os quatro partidos não vão seguir o caminho das fusões, adotado por legendas como o PPS, para superar a cláusula. \"Nós não vamos usar esse expediente para nos fundirmos a toque de caixa. Nós não nos fundimos para não confundir os nossos eleitores e filiados\", afirmou.Os parlamentares se reuniram com a presidente do STF, ministra Ellen Gracie, e com os ministros Cezar Peluso e Ricardo Lewandowski. Apesar de manter os votos sob sigilo, os ministros sinalizaram aos deputados que podem promover mudanças na cláusula. \"A ministra Ellen disse que respeita a nossa reivindicação. Já o Lewandowski afirmou que a cláusula deveria ter sido aprovada junto com a reforma pol?tica, no contexto geral das mudanças\", afirmou Alencar.(...) O desempenho eleitoral é necessário para que o partido tenha acesso ao fundo partidário e ao horário gratuito em rádio e TV, entre outros direitos importantes para o funcionamento e a para própria existência das legendas. (...) 

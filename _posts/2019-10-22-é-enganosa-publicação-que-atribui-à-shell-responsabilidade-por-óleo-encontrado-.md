@@ -1,0 +1,77 @@
+---
+layout: post
+title: "É enganosa publicação que atribui à Shell responsabilidade por óleo encontrado em praias do Nordeste"
+date: 2019-10-22
+tags: nordeste,ÓLEO,praias,Responsabilidade
+author: None
+---
+Do Projeto Comprova
+Enganoso
+
+	Postagem responsabiliza a companhia pelo petróleo encontrado em praias do Nordeste e cita laudo da UFS, mas pesquisador não chegou a esta conclusão
+
+É enganosa a publicação compartilhada nas redes sociais que atribui à Shell a responsabilidade pelo óleo encontrado nas últimas semanas em praias do Nordeste. Apesar de a petrolífera estar prestando esclarecimentos ao governo sobre barris descobertos em praias de Sergipe e Rio Grande do Norte, não existe hoje qualquer laudo ou outro documento oficial divulgado até a data de publicação desta verificação que atribua responsabilidade dos vazamentos à empresa.
+O texto verificado pelo Comprova foi publicado em um site e compartilhado no Facebook e no Twitter em 14 de outubro. O site embasa a acusação com um laudo da Universidade Federal de Sergipe (UFS) sobre o conteúdo de dois barris encontrados em 26 de setembro no município de Barra dos Coqueiros, no litoral sergipano. Segundo a publicação, o laudo indicaria que o “óleo vazado no Nordeste é da Shell, amiga do ministro Sergio Moro (Justiça e da Segurança Pública) e do presidente Jair Bolsonaro (PSL)”.
+LEIA TAMBÉM
+» Notícia antiga sobre vazamento de petróleo circula como se fosse atual
+» 'Não é momento de politizar', diz Salles sobre óleo em praias do Nordeste
+» Voluntários esbarram em falta de orientação técnica para retirar óleo das praias de Pernambuco
+» Voluntários retiram grandes resíduos de óleo, mas poluição persistirá por anos
+» Saiba para onde vai e o que é feito do óleo do desastre ambiental do Nordeste
+» Entenda por que as manchas de óleo não atingiram Porto de Galinhas
+Procurado pelo Comprova, no entanto, o técnico responsável pelo laudo negou a informação. Conforme explica [aqui e aqui] o professor Alberto Wisniewski Júnior, do Departamento de Química da UFS, o laudo da instituição foi repassado ao Instituto Brasileiro do Meio Ambiente (Ibama) e apenas não descarta a hipótese de os barris, que foram encontrados com o logo da Shell, estarem associados ao evento que levou ao vazamento de óleo.
+Wisniewski destaca que há indícios de que os contêineres foram reutilizados, por isso ainda não se pode relacionar o óleo dos vazamentos com a Shell.
+Segundo o sócio-fundador e diretor do Centro Brasileiro de Infraestrutura (CBIE), Adriano Pires, há grande probabilidade de que o material caiu ou foi lançado ao mar no mesmo acontecimento que provocou o vazamento – seja ele um naufrágio ou outra eventualidade.
+ Foto: Divulgação
+O único outro laudo oficial divulgado até agora sobre os barris, elaborado pela Marinha do Brasil, também aponta que o “conteúdo desses contêineres difere do encontrado nas demais praias do litoral nordestino”. Diretor-presidente da Administração Estadual do Meio Ambiente de Sergipe (Adema), Gilvan Dias também apontou a não existência de provas que possibilitem responsabilizar a Shell pelos vazamentos.
+O Comprova verificou postagens da página Esquerda Diário no Facebook e no Twitter. Os links publicados nas redes sociais direcionavam para um texto publicado no site do Esquerda Diário, que foi retirada do ar na tarde da segunda-feira, 14 de outubro. No mesmo dia, o site republicou o conteúdo, com outro título, mas também afirmando que há vínculo entre parte da poluição e os barris da Shell. As publicações nas redes sociais permaneceram inalteradas até o fechamento desta verificação.
+Enganoso para o Comprova é o conteúdo que confunde ou que seja divulgado para confundir.
+Como verificamos
+Para verificar a publicação, o Comprova utilizou, inicialmente, a ferramenta de busca reversa do Google para localizar a foto que acompanha as postagens. A ideia era verificar a existência de imagens anteriores ou em outro contexto e, então, atestar sua veracidade. A pesquisa levou os verificadores a uma nota oficial do Governo de Sergipe, de 26 de setembro, registrando a descoberta dos barris.
+Depois de descobrir o contexto por trás da história, procuramos todos os órgãos envolvidos no caso, como a Universidade Federal de Sergipe (UFS), a Marinha do Brasil e a Administração Estadual do Meio Ambiente de Sergipe (Adema). Dados da UFS foram obtidos por meio de uma conversa em aplicativo de mensagens com o professor Alberto Wisniewski Júnior. Já a nota da Marinha está divulgada em uma página da instituição sobre o caso do óleo no Nordeste.
+Também foram enviados questionamentos sobre o caso ao Ibama e ao Ministério do Meio Ambiente (MMA). Nenhum dos e-mails, no entanto, foi respondido. O Comprova buscou ainda a série histórica do preço do petróleo no site Investing.
+O óleo dos barris é o mesmo encontrado nas praias?
+Não. O link divulgado nas redes sociais direcionava o leitor para uma reportagem publicada no site Esquerda Diário. A publicação foi removida do site em 14 de outubro. No texto, a denúncia contra a Shell era baseada na informação de que o conteúdo dos barris descobertos em Sergipe seria o mesmo que foi encontrado nas praias do Nordeste. Segundo o site, tal afirmação estaria presente no laudo da UFS, em tese que contraria documento da Marinha sobre o caso.
+O Comprova enviou o material para o professor Alberto Wisniewski, que negou a tese. “Essa informação, da forma como está, é equivocada. Isso não foi afirmado. São produtos com diferentes aspectos físico-químicos, porém com indícios a nível molecular de que tenham relação de origem”, diz.
+A informação de que o conteúdo dos barris seria o mesmo óleo encontrado nas praias nordestinas circula desde 12 de outubro, em publicação do blog de Diogo Schelp no UOL. Na tarde de 18 de outubro, no entanto, o mesmo blog publicou outra matéria retificando a informação.
+A informação falsa sobre o conteúdo dos barris chegou a ser repercutida pelo próprio ministro Ricardo Salles (Meio Ambiente), que em 11 de outubro pediu que o Ibama cobrasse explicações da Shell sobre o caso. Alguns dias depois, em 16 de outubro, Salles voltou atrás da acusação em visita feita ao Departamento de Química da UFS. Na ocasião, ele destacou não haver divergência entre o laudo produzido pela universidade e o documento feito pela Marinha, e destacou que os dois órgãos estão “trabalhando em conjunto”.
+ Fotos: Wellington Lima/TV Jornal
+Em 17 de outubro, a Shell divulgou nota dizendo que o conteúdo original das embalagens com a marca da empresa encontrados em praias do Sergipe não possui relação com o óleo cru presente no litoral do Nordeste. Segundo a empresa, os barris são embalagens de Argina S3 30, um lubrificante para embarcações, de lote não produzido no Brasil. “A coloração e as características do produto em questão são bem diferentes do óleo cru encontrado nas praias”, diz a empresa.
+A Shell também destaca que não transporta óleo cru em rotas transatlânticas e que o adesivo em um dos tambores encontrados em Sergipe traz a data de 17 de fevereiro de 2019, enquanto as manchas de óleo cru começaram a surgir no litoral apenas em setembro deste ano. “Os fatos apontam para uma possível reutilização da embalagem em questão – reutilização esta que não foi feita pela Shell”, afirma a nota.
+A mesma tese é reforçada pelo diretor-presidente da Administração Estadual do Meio Ambiente de Sergipe (Adema), Gilvan Dias. “Todo mundo sabe que esses barris são reutilizáveis, isso é comum. A pessoa compra o barril e depois usa para outra coisa e reaproveita uma, duas, várias vezes”, disse, concluindo, portanto, que não se pode responsabilizar a empresa no caso. “O ideal é que se deixe a investigação prosseguir”, diz.
+Apesar disso, a Shell ainda presta esclarecimentos ao governo sobre os barris encontrados em praias do Nordeste. Em 17 de outubro, outro tambor com a marca da empresa foi encontrado pela Marinha em Rio Grande do Norte. O barril, que estava fechado e não apresentava sinais de vazamento, já foi encaminhado para análise.
+A Shell realmente é "amiga de Moro e Bolsonaro"?
+A publicação original do Esquerda Diário acusava ainda a Shell de ser “amiga de Moro e Bolsonaro” e de ter se beneficiado com “o golpe e a Operação Lava Jato” na “entrega a preço de banana do petróleo brasileiro”. A associação parece partir do fato de a Shell ter sido uma das maiores vencedoras nos leilões do pré-sal feitos no governo Michel Temer (MDB), em 2017 e em 2018, após o impeachment da ex-presidente Dilma Rousseff (PT).
+A publicação sugere, portanto, uma relação de causa e efeito entre a Lava Jato e o impeachment da petista com a venda dos lotes do pré-sal para exploração de petróleo, embora não apresente provas dessa acusação ou de que o interesse da Shell pelo petróleo brasileiro tenha qualquer relação com o esquema de corrupção revelado na Petrobras.
+A vitória da Shell nos leilões também não é surpreendente, visto que a empresa é hoje uma das maiores companhias do ramo no mundo, segundo a Forbes. Além disso, a multinacional obteve vitórias semelhantes em outros leilões recentes, em países como Argentina, México e Egito. Até mesmo o leilão do campo de Libra, realizado 2013 ainda pelo governo Dilma Rousseff, teve a Shell entre os vencedores.
+Ao Comprova, a Shell disse por e-mail que “não mantém e nunca teve relação institucional próxima com o ministro Sergio Moro, e jamais teve qualquer relação com a operação Lava Jato”.
+O petróleo brasileiro está sendo entregue a "preço de banana"?
+Essa afirmação, presente no texto, também parece oriunda da tese de cooperação entre as empresas petrolíferas e os defensores do impeachment de Dilma Rousseff. Mais uma vez, a acusação é feita sem qualquer tipo de evidência que suporte a acusação. O Comprova fez uma verificação sobre os leilões do petróleo brasileiro.
+Observando os valores dos últimos leilões realizados pelo governo de lotes do pré-sal, não há muita diferença nos valores obtidos em concessões semelhantes feitas durante os governos petistas.
+» Em cinco dias, 257 toneladas de óleo são recolhidas em praias de Pernambuco
+» União é notificada e analisa que medidas tomar sobre óleo em Pernambuco
+» Veja onde doar materiais de proteção para voluntários que limpam óleo nas praias
+» Manchas de óleo no Nordeste se concentram em Pernambuco, diz Marinha
+» Óleo em praias do Nordeste é dano 'para o resto da vida', diz especialista
+» A união da população para conter óleo em Maracaípe, no Litoral Sul
+Já o petróleo em si é uma commodity, ou seja, está entre o grupo de produtos que têm preço definido pelo mercado internacional. O valor de cada barril sofre influência de vários fatores, como, por exemplo, produção de petróleo mundial (quanto tem disponível no mercado e se isso vai ser suficiente para suprir a demanda) e o preço do dólar.
+Existem duas cotações para o preço do petróleo: o Brent e o WTI. O Brent é o tipo de petróleo que é mais usado como referência. É negociado na bolsa de Londres e é referente ao petróleo extraído no mar do norte. Já o WTI é negócio na bolsa americana e é referente ao petróleo extraído principalmente no golfo do México.
+O site Investing reúne a série histórica do Brent (veja aqui) de novembro de 2017 a outubro 2019. É possível perceber que não houve grande variação nos preços mensais nesse período. O valor médio do barril foi de R$ 68,17.
+Os ministros realmente atacaram a Venezuela com relação ao petróleo?
+O ministro do Meio Ambiente, Ricardo Salles, afirmou no dia 9 de outubro que o óleo visto em praias do Nordeste era, “muito provavelmente”, da Venezuela. Depois disso, o governo venezuelano divulgou uma nota oficial em que chamava Salles de “tendencioso”. Após a declaração de Salles, viralizou uma publicação enganosa cuja legenda dizia que um vídeo mostrava um navio venezuelano despejando petróleo no Nordeste brasileiro, mas o Comprova verificou que se trata de imagens gravadas em Portugal.
+Na manhã do dia 10 de outubro, o presidente Jair Bolsonaro chegou a dizer, durante o Fórum de Investimentos Brasil 2019, em São Paulo, que o derramamento de óleo no litoral do Nordeste brasileiro tinha sido criminoso. No mesmo evento, o próprio Bolsonaro afirmou que não tinha bola de cristal para apontar quem era o responsável pelo “ato criminoso”.
+No mesmo dia, o ministro da Defesa, Fernando Azevedo, disse que a origem do óleo estava sendo apurada e que o vazamento pode ter sido um “incidente ou acidente”, mas que tinha que ter sido comunicado ao Brasil.
+O vice-presidente Hamilton Mourão disse que embarcações “fantasmas” – sem autorização legal para navegar na costa brasileira e que às vezes fazem contrabando de mercadorias – podem estar envolvidas no despejo de óleo no mar. A declaração foi feita no dia 11 de outubro, em Roma.
+Ainda não se sabe as causas do derramamento de óleo no litoral do Nordeste.
+Análises do Ibama e da UFBA (Universidade Federal da Bahia) indicam que o material seria similar ao extraído na Venezuela. No entanto, ainda não foi comprovado que o vazamento do óleo foi mesmo provocado pelo país vizinho, nem se o vazamento foi intencional.
+Saiba quais são as áreas atingidas pelo óleo no Nordeste
+?
+Quais foram as providências tomadas pela Justiça? Foi estipulada mesmo uma multa?
+Em 12 de outubro, a 1ª Vara da Justiça Federal de Sergipe concedeu uma liminar em que determinava que o governo federal e o Ibama tomassem providências em um prazo de 48h para criar uma barreira marítima a fim de proteger os rios de Sergipe – São Francisco, Japaratuba, Sergipe, Vaza-Barris e Real. A multa, em caso de descumprimento da ordem judicial, é de R$ 100 mil ao dia.
+Na decisão, o juiz plantonista Fábio Cordeiro de Lima destaca que é “fundamental proteger a cabeceira dos rios para que não haja uma maior contaminação das águas, principalmente dos rios utilizados para o consumo da população” e autoriza que o Poder Executivo remaneje verbas do orçamento e dispense licitações para a aquisição dos equipamentos necessários ao cumprimento da decisão, desde que observado o preço do mercado. Ele não menciona, no entanto, “interesses entreguistas” de ministros, a serviço dos EUA –- como sugere a postagem do Esquerda Diário – como uma motivação para conceder a liminar.
+Após os comentários, o juiz acatou em partes o pedido que havia sido feito pelo Ministério Público Federal (MPF) em Sergipe. Na petição original, a Procuradoria solicitava que as medidas fossem tomadas em 24 horas, sob multa diária de R$ 1 milhão em caso de descumprimento. O foco da ação era proteger áreas sensíveis de mangue e da foz do Rio São Francisco.
+O governo de Sergipe instalou as barreiras em 11 de outubro, após reunião do gabinete de crise do governo do estado.
+Uma decisão semelhante foi tomada pela Justiça Federal em Pernambuco no domingo, 20.
+Repercussão nas redes
+O Comprova verifica conteúdos duvidosos sobre políticas públicas do governo federal que tenham grande potencial de viralização.
+O texto verificado foi publicado na página “Esquerda Diário” no Facebook, em 14 de outubro, e teve 7,1 mil compartilhamentos e 1,5 mil curtidas até a tarde de 21 de outubro.

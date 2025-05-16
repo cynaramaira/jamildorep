@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Paulo Câmara começa mais uma rodada do Pernambuco em Ação"
+date: 2017-07-13
+tags: ação,Paulo Câmara,pernambuco
+author: None
+---
+O governador Paulo Câmara (PSB) volta nesta sexta-feira (14) a viajar pelo interior com o Pernambuco em Ação, programa que ele iniciou a um ano e meio das eleições de 2018 para justificar o não cumprimento de promessas de campanha de 2014. O socialista vai a Petrolina, no Sertão, cidade onde o prefeito é Miguel Coelho, filho do senador Fernando Bezerra Coelho, cuja família tem se aproximado do Democratas por divergências sobre a posição do PSB em relação ao governo Michel Temer (PMDB).
+A primeira atividade de Paulo Câmara será às 9h, em uma escola estadual onde vai anunciar a liberação de recursos para obras.
+O governador vai assinar ordem de serviço para o reinício do projeto da PE-635 e para a construção e ampliação de Sistemas Adutores em Santa Maria da Boa Vista, Lagoa Grande, Dormentes e Afrânio; liberar R$ 1.061.479,95 para a execução de pavimentação e recapeamento asfáltico de ruas, recuperação de prédios, praças e iluminação públicas de seis municípios da região; lançar o processo licitatório da PE-550, da conclusão das obras de reforma e ampliação da sede da Área Integrada de Segurança 26 (AIS-26) de Petrolina e da abertura do processo licitatório para a contratação dos serviços de georreferenciamento de imóveis rurais para regularização fundiária.
+O modelo é inspirado no Todos Por Pernambuco, implantado pelo ex-governador Eduardo Campos (PSB), seu padrinho político.
+Paulo Câmara iniciou as viagens em fevereiro, a um ano e meio das eleições de 2018. O governador começou por Afogados da Ingazeira e outras cidades do Sertão. Em abril, levou a equipe para Garanhuns, no Agreste, onde o prefeito Izaías Régis (PTB) não participou do evento e foi criticado pelos aliados do socialista. A terceira rodada passou por Araripina, novamente no Sertão, em maio, onde o clima ficou chato com o prefeito, Raimundo Pimentel (PSL), que afirmou não ter sido convidado.
+Nas idas para essas agendas no interior, Paulo Câmara tem admitido que não vai cumprir promessas de campanha, "repactua metas" - termo usado por ele - e assina a liberação de verbas para empreendimentos nos municípios visitados.
+A resposta da oposição às viagens a um ano do período eleitoral foi com a criação do Pernambuco de Verdade, programa em que parlamentares da bancada contrária ao governo Paulo Câmara na Assembleia Legislativa do Estado (Alepe) têm viajado também para municípios do interior para apontar problemas da gestão socialista nessas localidades.

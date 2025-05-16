@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Geraldo Julio: precisamos que política não seja confundida com má conduta"
+date: 2017-06-19
+tags: Geraldo Julio,Naomi Campbell,Política
+author: None
+---
+Ao participar do seminário "Brasil, desafio para a governabilidade", na manhã desta segunda-feira (19), o prefeito do Recife, Geraldo Julio (PSB), defendeu que a política não pode ser o problema da sociedade, mas a 'solução'.
+"Precisamos chegar a um momento em que a política não seja mais confundida com a má conduta de políticos e de outros atores do serviço público ou do setor privado. A política precisa ser parte da solução dos problemas de uma sociedade, esse é o nosso sonho e que a gente possa levar para as próximas gerações um País melhor", disse o socialista.
+Durante o evento, Geraldo Julio afirmou que o Brasil precisa de 'atitudes' como as do ministro do Supremo Tribunal Federal (STF) Gilmar Mendes, que foi o palestrante do seminário. "Faço um registro da coragem com que o ministro Gilmar Mendes se coloca sobre  qualquer situação colocada à sua frente. Acho que é deste tipo de firmeza que o Brasil está precisando nesse momento. Estamos vivendo um tempo muito duro que vai ser falado daqui a cem anos do tamanho da crise econômica que o Brasil passa nesse momento. E personagens como o ministro Gilmar Mendes são importantes nesse momento de mudanças", defendeu.
+ Foto: Diego Nigro / JC Imagem
+Mendes, durante sua fala, já havia defendido o Congresso Nacional que passa por uma grave crise política. "É preciso respeitar o Congresso. Vamos sim condenar as más práticas, mas não faremos política sem políticos", ressaltou.
+O presidente do TSE também disse que é preciso impor "limites nas investigações" em curso no País. Sem citar diretamente as gravações feitas por Joesley Batista, da JBS, com o presidente Michel Temer (PMDB), Gilmar disse que "não podemos cogitar investigações feitas na calada da noite".
+"Expandiu-se demais as investigações, além do limite. Qual o objetivo? Colocar medo nas pessoas. É preciso colocar limites. Não podemos cogitar investigações feitas na calada da noite. Arranjos. Que tem alvo autoridades, como o presidente da República", ressaltou Gilmar Mendes.
+CRISE ECONÔMICA
+O prefeito Geraldo Julio ainda falou sobre o momento de crise econômica pela qual passa o País. "Sabemos a dureza que está sendo para todas as organizações privadas, públicas e o povo também. O povo tem lutado muito nesse momento em que mais da metade dos 14 milhões de desempregados está assim a mais de dois anos e o desemprego por dois anos seguidos causa consequências sérias. E os gestores também sentem. Eu recebi em fevereiro cinco mil alunos, 6%, dos alunos da rede municipal vieram da escola particular só em 2017. Já nos últimos dois anos recebemos 43 mil pessoas  no Recife que perderam o plano de saúde e utilizam o SUS", disse.
+O seminário "Brasil, desafio para a governabilidade" foi realizado pelo Grupo de Líderes Empresarias de Pernambuco (Lide Pernambuco) e contou com a presença de políticos, empresários, juristas e autoridades. Entre eles, o presidente da OAB Pernambuco Ronnie Duarte e o deputado federal Jarbas Vasconcelos (PMDB-PE), que articulou a vinda de Gilmar Mendes à capital pernambucana.

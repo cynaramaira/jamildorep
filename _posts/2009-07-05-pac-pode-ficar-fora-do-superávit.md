@@ -1,0 +1,17 @@
+---
+layout: post
+title: "PAC pode ficar fora do superávit"
+date: 2009-07-05
+tags: Superávit
+author: None
+---
+Deu no Estad&atilde;o
+O governo quer ganhar uma margem adicional de R$ 5,5 bilh&otilde;es a R$ 6 bilh&otilde;es para investir em 2010, ano eleitoral. Para tanto, negocia com o Congresso a exclus&atilde;o do Programa de Acelera&ccedil;&atilde;o do Crescimento (PAC) do c&aacute;lculo do super&aacute;vit prim&aacute;rio, a exemplo do que j&aacute; foi feito com os investimentos da Petrobr&aacute;s. Assim, haver&aacute; verbas para investir mesmo num quadro de crescimento econ&ocirc;mico moderado e de gastos correntes em alta.
+A &quot;m&aacute;gica&quot; que permitir&aacute; liberar o PAC do super&aacute;vit prim&aacute;rio ser&aacute; igual&aacute;-lo ao Projeto Piloto de Investimento (PPI) - conjunto de investimentos estrat&eacute;gicos, principalmente em infraestrutura, que podem ser &quot;descontados&quot; do resultado das contas p&uacute;blicas. Praticamente todos os projetos do PPI fazem parte do PAC. Por&eacute;m, o PPI envolve projetos no valor de 0,5% do Produto Interno Bruto (PIB), enquanto a parcela do PAC a cargo do governo federal em 2010 &eacute; de 0,65% do PIB. Se forem igualados, a parcela que poder&aacute; ser descontada do prim&aacute;rio aumentar&aacute; em 0,15% do PIB - entre R$ 5,5 bilh&otilde;es e R$ 6 bilh&otilde;es.
+&quot;Vamos igualar o PPI ao PAC&quot;, disse a ministra-chefe da Casa Civil, Dilma Rousseff, ap&oacute;s a reuni&atilde;o da Junta Or&ccedil;ament&aacute;ria. Participaram o presidente Luiz In&aacute;cio Lula da Silva e os principais ministros da &aacute;rea econ&ocirc;mica.
+O ministro do Planejamento, Paulo Bernardo, informou que a mudan&ccedil;a foi negociada com o relator da Lei de Diretrizes Or&ccedil;ament&aacute;rias (LDO), Wellington Roberto (PR-PB). &quot;Se tivermos dificuldade de cumprir a meta, vamos abater (os investimentos do PAC).&quot;A meta de resultado prim&aacute;rio para 2010 foi fixada em 3,3% do PIB. Desses, 2,15% s&atilde;o de responsabilidade do governo federal, 0,20% do PIB das estatais e 0,95% do PIB de Estados e munic&iacute;pios.
+Setores da equipe econ&ocirc;mica se mostraram preocupados com a iniciativa. A falta de sinais claros do governo para barrar press&otilde;es por aumento de gastos acende um sinal amarelo sobre as proje&ccedil;&otilde;es de queda na d&iacute;vida no ano que vem.
+&Eacute; a mesma preocupa&ccedil;&atilde;o do economista Felipe Salto, da Tend&ecirc;ncias Consultoria Integrada. &quot;Vemos essa mudan&ccedil;a como oportunista. N&atilde;o &eacute; uma medida para ampliar investimentos, e sim para tornar mais f&aacute;cil o cumprimento das metas sem tocar nos pontos sens&iacute;veis do ponto de vista eleitoral.&quot; Em 2010, avalia ele, o governo continuar&aacute; a enfrentar dificuldades para manter as contas na trajet&oacute;ria desejada.
+Na reuni&atilde;o de ontem, Lula mandou pagar os reajustes do funcionalismo. Tamb&eacute;m foi discutido o reajuste do Bolsa-Fam&iacute;lia.
+&quot;Estamos falando de investimentos adicionais de R$ 5 bilh&otilde;es a R$ 6 bilh&otilde;es&quot;, disse o economista-chefe do banco Fator, Jos&eacute; Francisco de Lima Gon&ccedil;alves. &quot;Se eles realmente investirem e n&atilde;o gastarem com assessores do Senado e motoristas do Judici&aacute;rio, vou aplaudir.&quot; 
+&nbsp; 

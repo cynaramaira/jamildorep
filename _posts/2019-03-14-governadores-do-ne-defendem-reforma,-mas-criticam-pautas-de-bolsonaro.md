@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Governadores do NE defendem reforma, mas criticam pautas de Bolsonaro"
+date: 2019-03-14
+tags: Bolsonaro,GOVERNADORES,reformas
+author: None
+---
+Reunidos em São Luís (MA) para a assinatura da criação do Consórcio Nordeste, ferramenta jurídica para que os nove estados da região possam fazer projetos e compras conjuntas, os governadores divulgaram nesta quinta-feira (14) uma carta em que criticam bandeiras do governo Jair Bolsonaro (PSL). Os gestores afirmaram não concordar com a proposta de desvinculações de receitas do Orçamento, proposta pelo ministro da Economia, Paulo Guedes. Além disso, saíram em defesa do Estatuto do Desarmamento. Apesar de enfatizarem que a reforma da Previdência é um "debate necessário", pontuaram trechos do projeto aos quais são contrários.
+Para defender o atual Estatuto do Desarmamento, que restringe o acesso ao porte de armas de fogo, os governadores do Nordeste usaram como argumentos o assassinato da vereadora do Rio de Janeiro Marielle Franco (PSOL), há um ano, a tragédia ocorrida em Suzano (SP), em que dois ex-alunos de uma escola mataram oito pessoas, entre estudantes e funcionários, e morreram em seguida, nessa quarta-feira (13).
+"Tragédias como o assassinato da vereadora Marielte e a de Suzano, no
+ Estado de São Paulo, mostram que armas servem para matar e aumentar
+ violência na sociedade. Somos solidários à dor das famílias, destas e de outras
+ tragédias com armas, e é em respeito à memória das vítimas que assim nos
+ manifestamos", afirma a carta.
+O documento foi assinado pelos governadores de Pernambuco, Paulo Câmara (PSB); do Maranhão, Flávio Dino (PCdoB); da Bahia, Rui Costa (PT); do Ceará, Camilo Santana (PT); da Paraíba, João Azevedo (PSB); do Piauí, Wellington Dias (PT); do Rio Grande do Norte, Fátima Bezerra (PT); de Sergipe, Belivaldo Chagas (PSD); e pelo vice-governador de Alagoas, Luciano Barbosa (MDB).
+Na eleição do ano passado, Bolsonaro foi derrotado em todos os estados do Nordeste. Além disso, os nove governadores eleitos eram aliados do PT.
+"Consideramos que flexibilizar regras de posse e porte de armas, longe de gerar paz, vai gerar mais violência", disse Flávio Dino em coletiva de imprensa após a reunião. "A agenda da segurança pública não é essa, é sobretudo da parceria do governo federal com os estados. As polícias melhor qualificadas e equipadas é que podem garantir de fato a diminuição da criminalidade".
+Pacto federativo
+Por unanimidade, os governadores ainda foram contrários à chamada PEC do Pacto Federativo, uma proposta de emenda constitucional que retira as "amarras" do Orçamento e retirava a necessidade de haver investimentos mínimos para  áreas como saúde e educação. Pelo risco de afetar a reforma da Previdência, Paulo Guedes adiou a apresentação do projeto, antes previsto para abril.
+"Consideramos que o debate sobre o pacto federativo é outro, sobre a repartição de receitas e competências. Todos nós exemplificamos que houve nas últimas décadas uma hiper concentração de recursos do governo federal, enquanto as atribuições foram descentralizadas para estados e municípios", disse Flávio Dino.
+Na carta, os governadores afirmam: "registramos que não concordamos com a ideia de desvinculações de receitas para fazer face ás despesas obrigatórias com saúde, educação e fundos constitucionais, que resultariam em redução de importantes políticas públicas. Em vez disso, desejamos discutir realmente o Pacto Federativo, inclusive no tocante à repartição constitucional de receitas e competências".
+Reforma da Previdência
+Com a instalação da Comissão de Constituição e Justiça (CCJ) e o início da tramitação da PEC da reforma da Previdência na Câmara dos Deputados, os governadores defenderam as mudanças no sistema de aposentadoria, mas ponderaram sobre pontos como o Benefício de Prestação Continuada (BPC). "Em relação a esses itens, temos uma posição de ressalva. Desejamos que esses pontos sejam retirados para que possamos dialogar com o governo federal sobre os demais itens", afirmou Flávio Dino.
+"Quanto à Reforma Previdenciária, consideramos que se trata de um debate necessário para o Brasil, contudo posicionamo-nos em defesa dos mais pobres, tais como beneficiários da Lei Orgânica da Assistência Social, aposentados rurais e por invalidez, mulheres, entre outros, pois o peso de déficits não pode cair sobre os que mais precisam da proteção previdenciária", defende a carta.
+"Também manifestamos nossa rejeição a proposta de desconstitucionalizar a Previdência Social, retirando da Constituição garantias fundamentais aos cidadãos. Do mesmo modo, consideramos ser imprescindível retirar da proposta a previsão do chamado regime de capitalização, pois isso pode inclusive piorar as contas do sistema vigente, além de ser socialmente injusto com os que têm menor capacidade contributiva para fundos privados. Em lugar de medidas contra os mais frágeis, consideramos ser fundamental que setores como o capital financeiro sejam chamados a contribuir de modo mais justo com o equilíbrio da Previdência brasileira".

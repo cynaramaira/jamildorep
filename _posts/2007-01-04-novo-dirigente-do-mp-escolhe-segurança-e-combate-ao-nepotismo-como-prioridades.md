@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Novo dirigente do MP escolhe segurança e combate ao nepotismo como prioridades"
+date: 2007-01-04
+tags: combate,novos,Segurança
+author: None
+---
+O novo procurador-geral de Justiça, Paulo Varejão, falou agora há pouco ao Blog do JC com exclusividade. Explicou os motivos pelos quais acha que foi escolhido para o cargo pelo governador Eduardo Campos, mesmo tendo ficado em segundo lugar. “Acho que meu perfil é mais adequado. Tenho uma visão pró-estado e com visão social. Eduardo uniu o útil ao agradável???, afirmou.
+Além de prometer dar continuidade à campanha contra o nepotismo, Paulo Varejão diz que uma de suas prioridades será a luta para combater a violência no Estado, uma das promessas do novo governo. “Vamos cobrar ações mais efetivas da pol?cia???, prometeu.
+Veja o resumo da conversa.
+Parcerias e luta contra a violênciaVamos tentar estabelecer parcerias com o Estado. Uma delas será com a segurança pública, que é a questão mais grave. Vamos ajudar fazendo levantamentos espec?ficos e cobrando mais da Pol?cia, preventivamente, ações efetivas. Exercer um controle mais efetivo (não apenas repressivo, com ações, posteriores).
+Nota do Blog do JC: a esposa do procurador, Ana Elizabeth, foi&nbsp;v?tima de assalto, recentemente, em um cruzamento da Abdias de Carvalho com a Estrada dos Remédios. Traumatizada, está se recuperando do susto em uma praia do litoral alagoano.
+Pressão no Judiciário localVamos atuar junto ao Judiciário para tentar atenuar o problema da violência. Não se deve favorecer bandidos. O que acontece muito é que a pol?cia prende e a Justiça solta. Sempre se diz que o mordomo é o culpado. A pol?cia é o mordomo na maioria das vezes, mas não deve ser assim. Vamos conversar mais com o Judiciário.
+Mudanças na legislação criminalVamos nos esforçar para contribuir com o esforço da categoria, no plano nacional, para restringir a progressão de penas, por exemplo. Veja o caso da garota La?s (em Limoeiro). O criminoso estava solto, apesar de já ter sido condenado.
+Combate ao NepotismoVou continuar com certeza (a combatê-lo). Vamos respeitar todas as prescrições constitucionais e legais. A administração pública tem que ter impessoalidade, não se restringindo apenas ao aspecto do parentesco. Vamos dar prosseguimento a todas as boas ações da atual administração, no que for do interesse da sociedade. Vamos sentar e conversar com o TCE. O que vai diferenciar a minha gestão é a busca do entendimento e pedir a colaboração do TCE. No meu perfil, antes da medida, sou pelo entendimento. Vamos ouvir o Ministério Público de outros Estados, para ver se há decisões recentes
+Surpresa na escolhaNão quero
+ falar nada sobre a não-indicação da procuradora Lais Teixeira (mais votada no pleito, realizado quarta-feira). Acho que fui escolhido porque eu me adequo mais ao perfil que ele deseja. Por minhas propostas. Ele sabe da minha vida, como todo mundo sabe. Sou muito pró-estado e com visão social. Houve uma coincidência. Acho que ele uniu o útil ao agradável. O fato de ter sido o segundo não incomoda. Romero Oliveira de Andrade já foi o segundo na votação e Jarbas Vasconcelos o indicou para o cargo.
+Prest?gio do sogro AglailsonIsso não tem nada a ver. Eduardo Campos tem graves responsabilidades frente ao povo de Pernambuco e não iria me nomear só porque eu sou genro do prefeito José Aglailson (PSB, de Vitória de Santo Antão). Além disso, ele foi votado em 185 munic?pios e Vitória de Santo Antão é só mais um.
+Vitória da oposiçãoEssa é a primeira vitória da oposição no MP. Nas últimas eleições, Paulo Varejão disputou e perdeu para Francisco Sales.
+Eleições mais democráticasVou trabalhar para que os promotores também possam concorrer nas eleições (e não apenas os procuradores). Em eleições anteriores, fui um dos únicos procuradores a defender isto e tive preju?zos eleitorais. Vamos tornar viável o acesso dos colegas nossos, Isso é mais democrático. Na lei estadual, infelizmente, existe um dispositivo que restringe, mas a Constituição fala em integrantes do MP e não apenas procuradores. 

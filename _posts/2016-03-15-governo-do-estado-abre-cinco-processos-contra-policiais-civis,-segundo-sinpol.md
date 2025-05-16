@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Governo do Estado abre cinco processos contra policiais civis, segundo Sinpol"
+date: 2016-03-15
+tags: cinco anos,Contran,Estado,governo,policiais,Processos,segundo turno,sinpol
+author: None
+---
+
+O presidente do Sindicato dos Policiais Civis de Pernambuco (Sinpol) e outros diretores são alvos de Processos Administrativos Disciplinares (PADs). De acordo com o Sinpol, a diretoria foi surpreendida com a publicação de cinco processos, "movidos em razão das atividades e da luta sindical".
+Além do presidente do sindicato, Áureo Cisneiros, e do vice-presidente, Rafael Cavalcanti, os diretores Douglas Lemos, Umbelino Neto, Tiago Batista, Roseno Pereira e Benoni Ozório estão sendo acusados pela Corregedoria de diversas práticas contra o funcionamento da instituição.
+Para o Sinpol, a abertura dos processos se trata de "perseguição política".
+Leia nota do Sindicato na íntegra:
+Abaixo a mordaça. Não vão calar o SINPOL
+No dia 11 de março a diretoria do Sindicato dos Policiais Civis de Pernambuco (SINPOL) foi surpreendida com a publicação de cinco Processos Administrativos Disciplinares (PADs) contra seu Presidente Áureo Cisneiros e outros diretores. Todos os processos são movidos em razão das atividades e da luta sindical dos diretores do SINPOL e caracterizam-se como perseguição política.
+Durante todo o ano de 2015, com a combatividade que lhe é característica, o Sinpol lançou a Operação Polícia Cidadã, como parte da luta por valorização dos policiais, melhoria nas condições de trabalho e ganhos salariais, denunciando a caótica situação das delegacias e institutos de polícia nos municípios pernambucanos, inclusive tendo realizado um levantamento em diversas unidades policiais em todo o Estado, apresentando ao final um Dossiê da situação de precariedade de funcionamento da Polícia Civil, escancarando a difícil realidade cotidiana dos policiais e da população que precisa do atendimento.
+O SINPOL denunciou o completo abandono das três unidades do IML (Instituto de Medicina Legal) no Estado, do Instituto Tavares Buril, do Instituto de Criminalística e demais unidades policiais e exatamente por posicionar-se em defesa dos profissionais de segurança e ao lado da população pernambucana, daqueles que precisam dos serviços policiais justamente nos
+momentos mais críticos de suas vidas, é que os diretores do SINPOL estão sendo perseguidos pela Corregedoria da Secretaria de Defesa Social, inclusive, com possibilidade de expulsão dos quadros da Polícia Civil.
+Além do Presidente Áureo Cisneiros e do vice-presidente Rafael Cavalcanti, os diretores Douglas Lemos, Umbelino Neto, Tiago Batista, Roseno Pereira e Benoni Ozório estão sendo acusados pela Corregedoria de diversas práticas contra o funcionamento da instituição.
+Contra eles foi instaurado um processo disciplinar por denunciarem que servidores administrativos poderiam estar cometendo crime de usurpação de função de polícia civil. Outro processo foi instaurado porque os diretores do SINPOL denunciaram a precária situação da unidade do IML em Caruaru. Ainda outros dois procedimentos foram instaurados por terem denunciado as precaríssimas condições de trabalho na unidade do IML no Recife.
+E como se não bastassem, diretores estão sendo processados por tecerem críticas ao combalido Pacto pela Vida, estando o Presidente Áureo Cisneiros processado pelo próprio Governador Paulo Câmara por críticas políticas feitas durante atos públicos.
+O caso de Áureo Cisneiros é mais sério, pois mesmo antes de assumir a presidência do SINPOL já havia um processo disciplinar flagrantemente de perseguição contra ele, pois ainda em 2012 ele foi transferido da zona da mata norte, onde vivia e trabalhava, para o sertão, por já estar reivindicando melhores condições de trabalho para a Polícia Civil. Também teve seus horários de trabalho modificados por diversas vezes para impedi-lo de participar de movimentos de reivindicações e foi processado por liderar um movimento grevista naquele mesmo ano.
+Por todos estes e outros motivos vimos a público externar com nossa maior veemência repúdio a estes atos governamentais que flagrantemente atentam contra os direitos à livre manifestação de consciência, de liberdade e de exercício de mandato classista, acreditando que tais atos se configuram um atentado contra o estado democrático de direito, contras os quais tomaremos todas as medidas judiciais cabíveis, responsabilizando por fim, um a um, aqueles que se prestam ao serviço de tentar amordaçar os que nada têm feito senão expor a vergonhosa situação da segurança pública no Estado de Pernambuco.
+A DIRETORIA

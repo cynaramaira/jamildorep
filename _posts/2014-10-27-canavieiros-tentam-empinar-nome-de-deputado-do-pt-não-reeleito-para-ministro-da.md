@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Canavieiros tentam empinar nome de deputado do PT não reeleito para ministro da Agricultura de Dilma"
+date: 2014-10-27
+tags: agricultura,deputado,Dilma,Ministro,Naomi Campbell
+author: None
+---
+ Foto: BlogImagem
+A União Nordestina dos Produtores de Cana (Unida) pede a mudança do ministro da Agricultura, mas defende também que a pasta seja ocupada pelo deputado federal Pedro Eugênio (PT-PE). Eles dizem que o parlamentar acumula muito conhecimento no Parlamento, na administração pública e sobre o setor agrícola dos segmentos do agronegócio e da agricultura familiar.
+A União Nordestina dos Produtores de Cana (Unida), órgão que reúne 23 mil canavieiros nos estados produtores da região, também congratulou a presidente Dilma Rousseff pela reeleição e aproveitou para reivindicar pleitos fundamentais para o setor sucroenergético e para a agricultura.
+Além de solicitar a conclusão dos trâmites burocráticos (decreto presidencial e fonte de recurso) para destravar o início do pagamento da subvenção para a cana do Nordeste, aprovada em julho pela lei 12.999, a entidade pleiteia também a nomeação de um novo ministro da Agricultura com maior sensibilidade pelos setores agrícolas nordestinos, tanto do agronegócio como da agricultura familiar.
+A Unida defende a indicação de um político do próprio Nordeste, região que apoiou integralmente a reeleição da presidente.
+A entidade defende que a pasta seja ocupada pelo deputado federal Pedro Eugênio (PT-PE) – parlamentar que acumula muito conhecimento na administração pública e sobre o setor agrícola. “O deputado foi secretário estadual de Agricultura, Planejamento e da Fazendo em Pernambuco, mantendo nestes períodos e em outros mais recentes, um vasto diálogo com o segmento do agronegócio e da agricultura familiar, conhecendo bastante o setor sucroenergético”.
+Pedro Eugênio
+“O nome do político é defendido pela Unida devido ao amplo currículo do parlamentar, que reúne três mandados de deputado federal e um de deputado estadual, além de outras experiências no poder executivo estadual e da União relativas ao fortalecimento da agricultura”, diz o presidente da Unida, Alexandre Andrade Lima.
+Em 1987, Pedro foi Secretário de Agricultura no governo Miguel Arraes, em PE, quando coordenou o Programa Chapéu de Palha. No ano seguinte, foi nomeado secretário de Planejamento. Em 1996, foi secretário da Fazendo no outro governo de Arraes. Em 2003, foi diretor do Banco do Nordeste, por indicação do presidente Lula. Na época, o político iniciou uma revolução no crédito rural, através do Pronaf.
+Já em 2010, enquanto deputado federal, foi relator do projeto de lei que criou a Lei da Assistência Técnica e Extensão Rural e o Programa Nacional de Assistência Técnica e Extensão Rural na Agricultura Familiar e na Reforma Agrária.
+"Dentre outras funções já desenvolvidas ao longo de sua trajetória, a liderança do parlamentar o levou à condição de líder da bancada dos deputados nordestinos na Câmara dos Deputados, no período de 2013 até os dias atuais. Por isso apoiamos e defendemos o político para ministro da Agricultura”, ressalta Lima, sem citar de jeito algum que o deputado não se reelegeu.
+Subvenção da cana
+“Vamos continuar trabalhando junto à presidente Dilma no sentido de sensibilizá-la para fortalecer o setor e a agricultura nordestina”, diz Lima. Ele lembra que o decreto da lei 12.999 – documento que regulamenta a legislação, falta apenas a assinatura presidencial. Todavia, além disso, a entidade ainda aguarda autorização do Ministério da Fazenda sobre a fonte de recursos de R$ 170 milhões para pagar a subvenção da cana. O dirigente reivindica da presidente o fim dessa espera. Cada produtor receberá R$ 12 por tonelada de cana fornecida ás usinas do Nordeste na safra 2012-2013 - período do auge dos efeitos da seca na Região.

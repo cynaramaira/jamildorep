@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Transporte: Sete pessoas e duas empresas são condenadas em fraude a licitação para transporte escolar "
+date: 2023-05-18
+tags: jamildo, licitações públicas
+author: Jamildo Melo
+---
+Em a&ccedil;&atilde;o movida pelo Minist&eacute;rio P&uacute;blico Federal (MPF), a Justi&ccedil;a condenou sete pessoas e duas empresas por fraudes em processo de licita&ccedil;&atilde;o para a contrata&ccedil;&atilde;o de transporte escolar para a cidade de Ferreiros, na Zona da Mata Pernambucana.
+Os envolvidos foram condenados por improbidade administrativa e al&eacute;m de multa, ficar&atilde;o proibidos de contratar com o poder p&uacute;blico
+Segundo a a&ccedil;&atilde;o apresentada pela procuradora da Rep&uacute;blica Silvia Regina Pontes Lopes, em 2009, o munic&iacute;pio iniciou licita&ccedil;&atilde;o para contratar empresa para o transporte escolar de estudantes do ensino fundamental e m&eacute;dio da cidade com recursos do Programa Nacional de Apoio ao Transporte Escolar (Pnate).
+Apenas duas empresas foram habilitadas para a concorr&ecirc;ncia estimada em R$ 36 mil, a C&amp;R Mercantil Ltda e a Mega Solu&ccedil;&otilde;es Mercantis Ltda. Sendo a primeira, declarada vencedora da licita&ccedil;&atilde;o.
+"No entanto, investiga&ccedil;&otilde;es comprovaram que as empresas atuaram juntas para fraudar a licita&ccedil;&atilde;o".
+"Documentos e provas colhidas demonstraram que os respons&aacute;veis pelas empresas simularam uma concorr&ecirc;ncia para que, no final, uma delas fosse beneficiada. A a&ccedil;&atilde;o aponta, ainda, uma s&eacute;rie de irregularidades durante o processo de habilita&ccedil;&atilde;o das empresas, como a emiss&atilde;o de atestado assinado por membro da pr&oacute;pria comiss&atilde;o de licita&ccedil;&atilde;o, laudo de vistoria de ve&iacute;culos emitida em data anterior ao estipulado pelo edital, entre outros".
+Al&eacute;m disso, documentos colhidos em busca e apreens&atilde;o realizada nas empresas ratificam a exist&ecirc;ncia de estreita liga&ccedil;&atilde;o entre o administrador da empresa Mega Solu&ccedil;&otilde;es e o administrador da empresa vencedora. Um deles chegou a ser s&oacute;cio da empresa concorrente.
+Para o MPF, os membros da comiss&atilde;o permanente de licita&ccedil;&atilde;o &agrave; &eacute;poca estavam cientes das irregularidades e, ainda assim, aceitaram e declararam, a empresa C&amp;R Mercantil Ltda vencedora do certame.
+Os tr&ecirc;s integrantes da comiss&atilde;o foram condenados a ressarcir os cofres p&uacute;blicos em dez vezes o valor da remunera&ccedil;&atilde;o percebida. Tamb&eacute;m est&atilde;o proibidos de contratar com o poder p&uacute;blico ou de receber benef&iacute;cios ou incentivos fiscais ou credit&iacute;cios pelo prazo de tr&ecirc;s anos.
+De acordo com a senten&ccedil;a, o caso evidenciou &ldquo;o car&aacute;ter meramente protocolar da atua&ccedil;&atilde;o da comiss&atilde;o de licita&ccedil;&atilde;o e dos particulares licitantes, simulando uma concorr&ecirc;ncia em verdade inexistente, vez que, apesar das irregularidades e faltas no cumprimento das exig&ecirc;ncias edital&iacute;cias, restaram ambas as empresas habilitadas para a participa&ccedil;&atilde;o do certame&rdquo;, dessa forma, as irregularidades no certame revelaram &ldquo;o conluio dos demandados no intuito de frustrar o car&aacute;ter competitivo beneficiando a vencedora&rdquo;.
+Os quatro representantes das empresas e elas pr&oacute;prias tamb&eacute;m est&atilde;o proibidos de contratar com o poder p&uacute;blico ou de receber benef&iacute;cios ou incentivos fiscais ou credit&iacute;cios pelo prazo de tr&ecirc;s anos.

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "PSDB ignora Elias Gomes e defende Bruno Araújo para presidência em PE"
+date: 2017-10-04
+tags: Bruno Covas,Ciro Gomes,PSDB
+author: None
+---
+O presidente do PSDB de Pernambuco, o deputado estadual Antônio Moraes, e outros nomes do partido como os ex-governadores Joaquim Francisco e João Lyra Neto divulgaram nesta quarta-feira (4) uma carta aberta defendendo o nome do ministro das Cidades, Bruno Araújo, para a presidência do partido. O pedido para que ele se candidate ao cargo veio após cobranças do ex-prefeito de Jaboatão dos Guararapes Elias Gomes para assumir a presidência e no mesmo dia que ele defendeu o nome de Daniel Coelho.
+A eleição da direção estadual do PSDB é em novembro. Na carta, os tucanos afirmam estar convocando o ministro para se candidatar, pensando nas eleições de 2018. O texto enfatiza que o cenário político no País e no Estado vai mudar nos próximos meses. Araújo tem interlocução com a executiva nacional.
+Elias Gomes tornou públicas desde o ano passado a insatisfação por não ter assumido o comando do partido em Pernambuco, alegando que fez um acordo com Bruno Araújo para ocupar o posto e que não foi cumprido. Antônio Moraes reafirma que o seu mandato oficialmente vai até o fim deste ano.
+"Entendemos que o ministro reúne as condições para dar continuidade ao trabalho do deputado Antônio Moraes, no sentido de fortalecer o partido com a consolidação de seus diretórios municipais, e no processo de aglutinação e ampliação de alianças visando a eleição dos candidatos do PSDB na eleição do próximo ano", afirma a carta.
+Apesar de ir na direção contrária do ex-prefeito, a carta o afaga. "Consideramos oportuno registrar a intensa colaboração dada ao partido pelo companheiro Elias Gomes. Com sua liderança, seguramente continuará a contribuir com o fortalecimento do PSDB, unindo-se a essa manifestação que tem apenas como objetivo nossa união e o somatório de forças para que, num futuro breve, resultem na vitória expressiva de nossos candidatos."
+Além de Antônio Moraes, Joaquim Francisco e João Lyra Neto, assinaram a carta o o deputado federal Guilherme Coelho; a deputada estadual Terezinha Nunes; o vereador do Recife André Régis; e o presidente da Juventude.
+Assinaram ainda os prefeitos de Caruaru, Raquel Lyra; Gravatá, Joaquim Neto; Santa Cruz do Capibaribe, Edson Vieira; Ouricuri, Francisco Ramos; São Joaquim do Monte, João Tenório; Timbaúba, Ulisses Felinto; Vicência, Guilherme Nunes; Nazaré da Mata, Doutor Nino; Vertentes, Romero Leal; São Caetano, Jadiel Braga; Lagoa do Carro, Judite Botafogo; e de Manari, Gilvan Albuquerque.

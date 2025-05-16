@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Dissuasão, prisões, right-to-carry e controle da criminalidade"
+date: 2019-05-28
+tags: prisão
+author: None
+---
+Por José Maria Pereira da Nóbrega Júnior, em artigo enviado ao blog
+Em meio a discussão sobre quais as melhores políticas de segurança pública que o Brasil deve adotar para o controle da criminalidade, é de fundamental importância trazer à baila o que a literatura especializada diz sobre os mecanismos institucionais de controle da criminalidade. Como a literatura especializada é multifacetada e o que se escreve sobre segurança pública no Brasil é diverso, tanto do ponto de vista teórico quanto do metodológico, “O que se escreve sobre segurança pública no Brasil? Uma revisão da literatura recente”.  Aqui focaremos na literatura econômica do crime e sua conexão com as políticas públicas de segurança. O que, do ponto de vista dessa literatura, podemos traçar como estratégia para os atores institucionais da segurança pública do estado brasileiro.
+O economista e prêmio Nobel de Economia, Gary Becker, tendo como base teórica a Rational Choice, atrelou o ato criminoso a um cálculo estratégico do ator social buscando a maximização utilitária de sua ação. Para o autor, o criminoso avaliava sua ação tendo em vista a perspectiva mercadológica, na qual a decisão de praticar o ato criminoso estaria atrelada às oportunidades advindas do mundo econômico e social. Becker motivou uma série de estudos sobre as causas da criminalidade e da violência que culminou em várias publicações relevantes que tiveram impacto fundamental nas políticas públicas das instituições coercitivas, principalmente as policiais.
+Essa literatura advinda com os estudos de Becker resultou em algumas importantes descobertas empíricas: 1. a oferta de crimes cairá se a probabilidade de detenção aumentar; 2. a oferta de crimes cairá se a severidade da punição aumentar; 3. a oferta de crimes cairá se o custo de oportunidade do crime aumentar; e 4. a oferta de crimes cairá se a detenção for célere. Dessa forma, se os recursos em segurança são escassos, a literatura econômica do crime aponta que é preferível investir em probabilidade de detenção do que em severidade da punição.
+Observando essa literatura, verificamos que o controle da criminalidade/violência está intimamente ligado a diminuição dos espaços de oportunidade para os criminosos, seja do ponto de vista da prevenção (dissuasão), seja do ponto de vista da incapacitação do ator criminoso (detenção/prisão). Os criminosos, segundo a literatura econômica, estariam sempre motivados a prática de crimes, sobretudo, em espaços de oportunidades amplas.
+ 
+ Dissuasão, prisões, right-to-carry e controle da criminalidade

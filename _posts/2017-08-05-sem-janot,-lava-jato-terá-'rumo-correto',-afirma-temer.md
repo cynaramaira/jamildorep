@@ -1,0 +1,47 @@
+---
+layout: post
+title: "Sem Janot, Lava Jato terá 'rumo correto', afirma Temer"
+date: 2017-08-05
+tags: Lava Jato,Michel Temer,terapia
+author: None
+---
+Estadão Conteúdo - Dois dias após a Câmara barrar a denúncia por corrupção passiva contra Michel Temer, com apoio de 263 deputados, o presidente disse que as mudanças na Procuradoria-Geral da República "darão o rumo correto à Lava Jato". Em seu gabinete, no terceiro andar do Palácio do Planalto, Temer também não descartou a possibilidade de troca de comando na Polícia Federal e afirmou que nunca pretendeu destruir a operação da qual virou alvo. "O rumo certo é o cumprimento da lei", disse, em entrevista ao Estadão/Broadcast, quando questionado sobre qual o caminho que vislumbra para a Lava Jato, de agora em diante. Autor da denúncia chamada por Temer de "ridículo jurídico", o procurador-geral da República, Rodrigo Janot, deixa o cargo em 17 de setembro.
+Em uma hora de entrevista, o presidente procurou amenizar as traições na base aliada durante a votação da denúncia e apostou na aprovação de uma reforma da Previdência mais enxuta em setembro. Temer afirmou que não haverá retaliação aos infiéis, mas sugeriu que quem não vota com o governo deveria entregar os cargos. Questionado sobre a divisão no PSDB, que ameaça deixar a Esplanada, ele disse esperar apoio dos tucanos nas próximas batalhas no Congresso. "Quem estiver sentindo-se mal no PSDB sairá do governo, não tenho dúvida. Não estou dizendo o partido como um todo, porque lá uma divisão muito grande."
+O sr. conseguiu derrubar na Câmara a denúncia de corrupção passiva, mas é possível que Rodrigo Janot, apresente novas acusações. Como governar com esta espada na cabeça?
+A Câmara cumpriu adequadamente uma missão constitucional e, ao final, o que se verificou foi uma vitória muito significativa. E o que se alardeava é que não haveria sequer quórum de 342 para que se começasse a votação. E esse quórum, para a surpresa daqueles que anteviam uma catástrofe, se deu logo ao meio-dia. Fico muito desagradado com os aspectos morais. Tenho muito orgulho do que fizemos nestes 14 meses. Agora, o que me prende ao cargo é muito mais a defesa da minha reputação moral. A denúncia é pífia, inepta. Se vier uma nova, vamos enfrentá-la. Eu me sinto muito constrangido, porque tentam imputar-me uma pecha de corruptor, de alguém que está violando os limites da lei, quando não sei bem quem é que está violando os limites da lei. Eu não sou.
+Janot pediu que o sr. e os ministros Moreira Franco e Eliseu Padilha sejam incluídos no inquérito do quadrilhão do PMDB. Como responde?
+Respondo com uma pergunta: Sabe quando o procurador fez isso, embora esse processo esteja correndo há três anos? Às vésperas da votação do Congresso, o que está a significar que, na verdade, ele passou a ter uma atuação muito mais de natureza política, e quase pessoal, do tipo "quero ver qual é o time que ganha", e não a sua função institucional. Não se trata de disputas pessoais. Nem ele deve ter disputa pessoal com o presidente da República, muito menos eu terei com ele. Jamais lhe daria essa satisfação. Lamento é que ele, a todo momento, anuncia que vai fazer uma nova denúncia, baseada nos mesmos fatos. É um gestual político, institucionalmente condenável.
+A base aliada encolheu após as delações da JBS. Hoje o sr. não tem 308 votos para aprovar a reforma da Previdência. Como vai reaglutinar a base?
+Muita gente que votou contra mim vota a favor da Previdência. Nós podemos chegar a 310 votos. O PSDB, por exemplo, teve, acho, que 20 votos e 5 ausências, uma coisa assim (na verdade, foram 22 votos a favor de Temer, 21 contra e 4 ausências). São 25 votos e eu sei que eles têm compromisso com a responsabilidade fiscal, sempre pregaram isso.
+Mas como vai rearrumar essa base?
+Dialogando.
+Sem retaliação?
+Sem retaliação. Quem vota permanentemente contra o governo e faz parte da base está a indicar aos seus eleitores que não quer participar do governo. Então, o governo diz assim: "Bom, eu vou facilitar a sua vida." Em outros episódios, alguns até tiveram a delicadeza institucional de dizer "Olha, eu não estou podendo votar com o governo, de modo que os cargos que eu tiver aí pode eliminar". Eu acho que muitos até pedirão para eliminar os seus cargos.
+O sr. pretende fazer uma reforma ministerial para rearrumar a base?
+Não penso. Estou preocupado com as reformas estruturantes do País, é isso que me preocupa. Esta (ministerial) é as circunstâncias que vão determinar, ditar o nosso comportamento.
+Não foi constrangedor negociação de emenda em plenário no dia da votação?
+Vocês vão ficar estarrecidas. (Irritado, Temer volta-se para auxiliares e pergunta: "Cadê aquela coisa das emendas, hein? Estava aqui sobre a minha mesa). Vou mostrar alguns casos do PT e vocês verão quem mais recebeu. São emendas impositivas e eu sou obediente à lei. Não posso negar e dizer "impositivas eu dou para os da base e não dou para os da oposição". Há pessoas (da oposição) que empenharam R$10 milhões, quando muitos da base empenharam R$ 4 milhões...
+Mas no dia da votação, no plenário?
+Isso não aconteceu. O que aconteceu foi que o Imbassahy (ministro da Secretaria de Governo) voltou para o plenário para votar e lá muitos foram a ele para falar de emendas, e alguém ouviu ele falar que iria empenhar livremente as emendas como tem sido liberadas. Aliás, muita gente que ganhou muito dinheiro nos empenhos votou contra.
+Como contar com o PSDB para outras votações sendo que o partido está rachado e praticamente metade da bancada votou contra o senhor?
+Mas será que eles votam contra o Brasil? Eu não acredito que eles votem contra o Brasil. O PSDB sempre diz "olha, temos compromisso com as reformas. Não interessa quem está no poder."
+O sr. está magoado ou irritado com o PSDB? Ou as duas coisas? Vai dar um prazo para os tucanos decidirem se ficam ou saem do governo?
+Não. Nem magoado nem irritado. Você sabe que presidente da República não pode ficar magoado nem irritado. Pode, muitas vezes, ficar decepcionado. Mas decepcionado, com pena daquele que votou assim ou assado, porque daí eu é que fico com pena do sujeito.
+Então o senhor ficou decepcionado?
+Não. Fico decepcionado porque eu sei que o sujeito não pensa daquela maneira, mas agiu em função de interesses eleitorais. Eu fico com pena dele, simplesmente isso...
+Com essa crise, o PMDB terá candidato próprio em 2018?
+A minha preocupação é 2017. Estou fixado em 2017 e nas reformas estruturais. 2018 chegará sua vez. Lá que vamos examinar.
+Em setembro de 2015, o sr. disse a empresários que era difícil a então presidente Dilma resistir e chegar ao fim do mandato com uma popularidade tão baixa (à época 7% a 8%). O sr. tem agora 5%. Como conseguirá governar mais um ano e meio sendo tão impopular?
+É que há uma diferença entre a impopularidade daquela época e a desta. Acredito que a minha impopularidade, para usar o vocábulo, decorre das reformas que estou fazendo. Portanto, o reconhecimento virá depois. Vejam um caso impressionante como esse, de uma autorização para processar o presidente da República. Vocês estiveram na frente do Congresso? Fotografaram na frente do Congresso? Vocês estiveram na época do impeachment? Fotografaram na época do impeachment? (com tom de voz mais elevado). A notícia que tenho é que agora tinha três pessoas lá na frente, duas saíram e daí ficou uma só. Sem graça, foi embora
+O sr. teme novas delações de Lúcio Funaro e Eduardo Cunha?
+As pessoas estão cansadas disso. Primeiro, não conheço Lúcio Funaro, segundo, não sei o que ele vai dizer. Portanto não posso falar sobre hipóteses. Não tenho nenhuma preocupação com isso. Eduardo Cunha, sim, foi líder do PMDB, foi presidente da Câmara. Às vezes me perguntam, como é que você falava com ele? Meu Deus, estou falando com o líder do PMDB, com o presidente da Câmara. E eu não devo falar com ele?
+Vai ter mudança na Polícia Federal?
+Não sei. Este é um assunto que está sendo estudado pelo Ministério da Justiça.
+E todas essas mudanças PGR, PF e STF darão um novo rumo para Lava Jato?
+Darão o rumo correto à Lava Jato. Ninguém nunca pretendeu destruir a Lava Jato. Eu não ouvi o depoimento de nenhum agente público que dissesse vamos paralisar a Lava Jato, ninguém. Muito menos de ministros do Supremo ou membros da procuradoria ou membros do governo. Ninguém disse isso.
+E qual é o rumo certo?
+O rumo certo é o cumprimento da lei. Rigorosamente o cumprimento da lei. Não há como descumprir a lei sob pena de criar instabilidade social.
+Nas denúncias contra o senhor acha que foi cumprida a lei?
+Prefiro não comentar porque tudo isso estará um dia sob a avaliação do Judiciário. Mas faço um registro: alguns deputados, quando votaram, disseram ‘O presidente será investigado’. Sabe qual é a suposição? Que o relator do STF vai ouvir testemunhas, chamar pessoas, pegar matérias. A investigação é algo que antecede a denúncia. O que se quer é o seguinte: como não se fez investigação durante o inquérito, vão agora depois da denúncia. Isso é de um ridículo jurídico que envergonha qualquer aluno do segundo ano da Faculdade de Direito.
+Dizem que o seu governo está refém do Centrão. O que o sr. diz sobre isso? Não sou refém de nenhum partido. O senhor está incluindo o PSDB?
+Quem estiver sentindo-se mal no PSDB sairá do governo, não tenho dúvida. Não estou dizendo o partido como um todo, porque lá há uma divisão muito grande e nos votantes, os que votaram a favor foram em número maior. Foi um, mas foi maior (risos).

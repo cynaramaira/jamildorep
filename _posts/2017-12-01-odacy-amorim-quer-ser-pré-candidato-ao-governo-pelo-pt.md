@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Odacy Amorim quer ser pré-candidato ao governo pelo PT"
+date: 2017-12-01
+tags: candidatos,governo,odacy amorim,pre
+author: None
+---
+Enquanto uma ala do Partido dos Trabalhadores discute o nome da vereadora do Recife Marília Arraes para o Governo de Pernambuco e outra, em âmbito nacional, se articula com o PSB, surge na própria sigla uma "terceira via". O deputado estadual Odacy Amorim marcou com a direção do PT um encontro no próximo dia 13 para se colocar à disposição da legenda para a disputa contra o governador Paulo Câmara (PSB).
+Depois disso, o parlamentar quer iniciar viagens pelos municípios, se colocando como pré-candidato. "Tenho vontade de contribuir no Executivo", disse. O petista está no segundo mandato na Assembleia Legislativa de Pernambuco (Alepe) e antes foi prefeito e vereador de Petrolina - em 2016, foi candidato, mas foi derrotado por Miguel Coelho (PSB), que obteve 38,80% dos votos, contra 25,41% dele.
+Odacy está no Sertão desde essa quinta-feira (30), onde começou por Afogados da Ingazeira, até Petrolina, conversas com dirigentes municipais do partido para se articular para 2018. A região, onde tem base eleitoral e já foi prefeito, é também reduto de Fernando Bezerra Coelho, senador hoje no PMDB que se colocou como pré-candidato de oposição - apesar da resistência dos peemedebistas Raul Henry, vice-governador, e Jarbas Vasconcelos, deputado federal e liderança histórica. Ainda de Petrolina, o ex-prefeito Júlio Lóssio pode se candidatar pela Rede, partido de Marina Silva.
+Questionado sobre a disputa com as duas outras lideranças da região, o deputado minimizou e afirmou que a intenção não é rivalizar, mas apresentar um projeto para Pernambuco. "Para isso, a tem que derrubar outros projetos que vêm destruindo o País", ponderou. "Nosso projeto é restabelecer os 
+ direitos do povo."
+O parlamentar afirmou que, se a campanha for confirmada, deverá apontar por exemplo a queda no Estaleiro Atlântico Sul, que está no vermelho e afirmou que cogita fechar em 2019. A situação, para o petista, é culpa do governo federal, do qual Fernando Bezerra é vice-líder do governo Michel Temer (PMDB) no Senado e o filho dele é ministro de Minas e Energia.
+Com indicativo de lançar o nome do candidato em dezembro - e a maior probabilidade de ser Marília Arraes -, o PT vai aguardar para definir as estratégias. Para Odacy, a espera pode estar ligada à articulação do seu grupo pela disputa. Sobre a vereadora, ele afirma que era um nome colocado, mas que deve ser discutido.
+A executiva estadual do partido tem uma reunião marcada para o dia 20, quando deve ser discutido um calendário e o rito de definição das candidaturas. Em Brasília, Gleisi Hoffmann, a presidente nacional da sigla, tem se reunido com Carlos Siqueira, à frente do PSB.

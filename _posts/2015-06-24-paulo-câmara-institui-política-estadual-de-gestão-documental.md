@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Paulo Câmara institui Política Estadual de Gestão Documental"
+date: 2015-06-24
+tags: Paulo Câmara,Política,transporte interestadual
+author: None
+---
+ Fotos: Aluísio Moreira/Sei
+O Governador Paulo Câmara (PSB) sancionou, nessa terça-feira (23), a Lei 15.529, que institui a Política Estadual de Gestão Documental, com o objetivo de aprimorar o arquivamento, digitalização, catalogação e conservação da documentação produzida pelos órgãos públicos estaduais.
+A legislação reforça o papel do Arquivo Público Estadual João Emerenciano (APEJE) como órgão coordenador dessa política e responsável pela gestão e guarda dos acervos de caráter permanente (de valor histórico); e dá à Companhia Editora de Pernambuco (Cepe), com exclusividade, a função da guarda e gestão dos documentos de caráter intermediário (administrativos).
+“A lei trará grandes benefícios à preservação da nossa história, porque a história é construída pelos documentos devidamente conservados e acessados pelas gerações”, define Paulo Câmara.
+Já o secretário da Casa Civil, Antonio Carlos Figueira, ressalta que documentos anteriormente tutelados por empresas privadas ficarão mais seguros sob a guarda do Estado, além da economia gerada pela execução dessas atividades dentro da estrutura do governo. “Por ano, havia um custo de R$ 15 milhões com empresas de digitalização e arquivamento. Essa é uma redução importante de custos, considerando quadro econômico nacional. Porém, o que é mais importante, com um salto de qualidade”, argumenta.
+Para regulamentar a lei e definir os critérios e normas de preservação de ofícios, notas fiscais, decretos, processos e projetos, foi criada uma comissão, formada por especialistas integrantes de órgãos como Casa Civil, Secretaria de Educação, Procuradoria Geral do Estado, Cepe, Arquivo Público, Universidade Federal Rural de Pernambuco, Memorial da Justiça e Instituto Ricardo Brennand. A comissão tem um prazo de 60 dias para apresentar um texto de regulamentação da política.
+INVESTIMENTOS - Segundo o presidente da Cepe, Ricardo Leitão, a companhia foi transferida por meio do decreto 41.847 para a Casa Civil. O APEJE, anteriormente ligado à Secretaria de Educação, mantém as mesmas competências e atribuições, com funcionamento na Rua do Imperador, no Centro do Recife. Os servidores da Educação serão cedidos à Casa Civil, com a garantia de seus direitos conforme o estatuto do órgão de origem. Tem, atualmente, capacidade para digitalizar 300 mil documentos por mês e espaço para armazenar 200 mil caixas de documentos, em sua sede, no bairro de Santo Amaro.
+Para assumir as novas funções, a Cepe criou uma Superintendência de Digitalização, Guarda e Gestão Documental. “Faremos, nos próximos meses, investimentos na construção de novos galpões compra de novos equipamentos, de forma a fazer da entidade uma referência, em Pernambuco, no arquivamento de documentos público-administrativos”, informa Leitão.

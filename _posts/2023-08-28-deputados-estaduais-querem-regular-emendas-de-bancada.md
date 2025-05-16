@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Deputados estaduais querem regular emendas de bancada"
+date: 2023-08-28
+tags: jamildo, deputados estaduais, raquel lyra
+author: Jamildo Melo
+---
+A Assembleia Legislativa de Pernambuco (Alepe) analisar&aacute; a Proposta de Emenda &agrave; Constitui&ccedil;&atilde;o (PEC) publicada no Di&aacute;rio Oficial que visa estabelecer a cria&ccedil;&atilde;o de emendas de bancada na Casa. A PEC, proposta pelos deputados estaduais Jos&eacute; Patriota (PSB), Luciano Duque (Solidariedade) e Coronel Alberto Feitosa (PL), busca ampliar a participa&ccedil;&atilde;o dos parlamentares na defini&ccedil;&atilde;o dos investimentos estaduais, garantindo que as demandas da popula&ccedil;&atilde;o sejam contempladas de maneira mais efetiva.
+Segundo Jos&eacute; Patriota, a inten&ccedil;&atilde;o da PEC &eacute; promover uma distribui&ccedil;&atilde;o mais equitativa dos recursos p&uacute;blicos, fortalecendo a atua&ccedil;&atilde;o dos parlamentares na defini&ccedil;&atilde;o das pol&iacute;ticas estaduais. A proposta prev&ecirc; a altera&ccedil;&atilde;o da Constitui&ccedil;&atilde;o do Estado de Pernambuco para incorporar as diretrizes do or&ccedil;amento impositivo e a cria&ccedil;&atilde;o das emendas de bancada.
+Essas emendas permitiriam que grupos de deputados apresentassem propostas conjuntas para destinar recursos a &aacute;reas espec&iacute;ficas, em linha com as necessidades da popula&ccedil;&atilde;o e as prioridades estabelecidas pelos parlamentares. A PEC prop&otilde;e altera&ccedil;&otilde;es no artigo 123-A da Constitui&ccedil;&atilde;o do Estado de Pernambuco, estabelecendo regras claras para a execu&ccedil;&atilde;o or&ccedil;ament&aacute;ria e financeira das emendas parlamentares de bancada.
+A PEC ainda precisa passar por tramita&ccedil;&atilde;o na Alepe e ser aprovada pelos parlamentares antes de se tornar efetiva. Segundo Patriota, a medida representar&aacute; um avan&ccedil;o significativo na atua&ccedil;&atilde;o dos deputados na defini&ccedil;&atilde;o dos investimentos estaduais, refletindo diretamente nas pol&iacute;ticas p&uacute;blicas direcionadas &agrave;s necessidades da popula&ccedil;&atilde;o pernambucana.

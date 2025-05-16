@@ -1,0 +1,17 @@
+---
+layout: post
+title: "STF suspende lei pernambucana que proibia operadoras de telefonia de oferecerem serviços de valor adicionado"
+date: 2019-12-06
+tags: Folia pernambucana,serviços,telefonía
+author: None
+---
+Do site oficial do STF
+O ministro Celso de Mello, do Supremo Tribunal Federal (STF), suspendeu a eficácia da Lei Estadual 16.600/2019 do Estado de Pernambuco, que proíbe a oferta e a comercialização de serviços de valor adicionado, digitais e complementares de forma onerosa ao consumidor quando agregados a planos ofrerecidos por empresas prestadoras de serviços de telecomunicações.
+O decano do STF deferiu liminar na Ação Direta de Inconstitucionalidade (ADI) 6199, ajuizada pela Associação das Operadoras de Celulares (Acel) e pela Associação Brasileira de Concessionárias de Serviço Telefônico Fixo Comutado (Abrafix).
+As autoras da ação sustentam, entre outros pontos, que a norma pernambucana invade competência privativa da União para legislar sobre telecomunicações e intervém indevidamente em serviço cuja exploração, em todo o território nacional, se submete exclusivamente às políticas setoriais definidas pelo Poder Executivo e pelo Congresso Nacional, em afronta aos artigos 21, inciso XI, e 22, inciso IV, da Constituição Federal.
+Segundo o ministro Celso de Mello, a Constituição da República, ao atribuir à União a competência para a prestação dos serviços públicos de telecomunicações, também autorizou a exploração indireta dessa atividade estatal mediante delegação a terceiros.
+No entanto, resguardou o papel normativo e regulador da União, por meio de lei federal, para editar normas a que estão submetidas as empresas concessionárias. Em razão disso, foi editada a Lei 9.472/1997, que criou a Agência Nacional de Telecomunicações (Anatel) e lhe atribuiu a função de órgão regulador, com competência para organizar e administrar a prestação dos serviços de telecomunicações em todo o território nacional.
+O relator destacou que os diversos serviços e aplicações que complementam o uso e acrescem utilidades aos serviços tradicionais de telecomunicações – serviços de valor adicionado e serviços digitais –, além de compartilharem as mesmas infraestruturas físicas de suporte, integram processo de convergência entre tecnologias que interagem, reciprocamente, no ecossistema das telecomunicações, “exigindo tratamento normativo harmônico e coerente a ser definido em âmbito nacional”.
+Para o ministro, a legislação estadual, ao impor obrigações às operadoras de serviços de telecomunicações com atuação em todo o território nacional mostra-se em desacordo com a necessidade de promover e de preservar a segurança jurídica e a eficiência indispensáveis ao desenvolvimento das telecomunicações, que demanda “um regime jurídico coerente, uniforme, estruturado e operacional”.
+Ele lembrou ainda que a jurisprudência do Supremo reconhece a inconstitucionalidade de leis estaduais que, a pretexto de exercerem a sua competência suplementar em matéria de consumo, editam normas dirigidas às empresas prestadoras de serviços de telecomunicações, dispondo sobre direitos dos usuários e obrigações das concessionárias, mas que usurpam, em consequência, a competência privativa da União Federal.
+A decisão será submetida a posterior referendo do plenário do STF.

@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Em meio à crise do coronavírus, deixar de recolher tributos ainda é crime?"
+date: 2020-04-02
+tags: Coronavírus,Crime,crise sanitária,tributos
+author: None
+---
+Por Guilherme Gueiros de Freitas Barbosa e Delmar Cunha Siqueira
+Os impactos econômicos da pandemia do Covid-19 lançam um enorme desafio para a iniciativa privada no Brasil. As medidas de isolamento social, destinadas a impedir a propagação da doença, têm como efeito colateral a interrupção das atividades e dos negócios, levando as entidades privadas a reduzir ou até mesmo suspender as suas operações.
+Dentre os desafios que compõem a adversidade do cenário, sobressalta ter a capacidade de manter a liquidez mesmo com a queda no faturamento. Diante disso, compelidos a optar pelo pagamento de funcionários e fornecedores, os gestores podem se ver forçados a deixar de recolher contribuições e tributos a fim de garantir a sobrevivência da organização.
+Nesse cenário, é relevante considerar que, para os tribunais superiores, o fato de a companhia se encontrar em dificuldade financeira, por si só, não é motivo idôneo para afastar a ocorrência de crimes tributários.
+Na maioria das vezes, o argumento invocado é a inexigibilidade de conduta diversa, um elemento da culpabilidade, sem a qual diz-se que a conduta é atípica, isto é, um irrelevante penal. Em suma, é como dizer que o administrador “não teve escolha” e que um agente só pode ser punido quando, diante de mais de uma possibilidade, optou por comportar-se em desacordo com o Direito.
+Cumpre esclarecer que o argumento tem pouca aplicabilidade nos tribunais, sobretudo quando o crime tributário é cometido por meio de fraude, o que evidencia a prévia e deliberada intenção de ludibriar a fiscalização tributária e previdenciária.
+Não significa, contudo, que se deva abandonar a tese.
+A jurisprudência dos tribunais regionais federais acolhe melhor esta excludente quando aplicada sobre os delitos do art. 2º, II, da Lei nº 8.137/90 e do art. 168-A, caput, do Código Penal, nos quais o agente se apropria de tributo que deveria repassar aos cofres públicos. É o que acontece com os tributos sujeitos à retenção na fonte, como o imposto de renda dos funcionários (IRRF) e as contribuições previdenciárias, cuja obrigação de retenção e recolhimento aos cofres públicos recai sobre o empresário/empregador.
+Entretanto, é necessário ressalvar que, desde o dia 12 de dezembro de 2019, o Supremo Tribunal Federal fixou o entendimento de que o não recolhimento do ICMS embutido no preço de mercadoria ou serviço, de forma contumaz e com dolo de apropriação, caracteriza o delito do art. 2º, II, da Lei nº 8.137/1990.
+Levada às últimas consequências, a interpretação dada pelo STF poderá ser estendida para outros tributos, tais como o IR, ISS, PIS, COFINS, dentre outros. Convém, desse modo, que os dirigentes de instituições ameaçadas pela insolvência se previnam de eventual responsabilização penal.
+Para tanto, com o propósito de avaliar o cabimento da inexigibilidade de conduta diversa, deve-se verificar o cumprimento de três requisitos: primeiro, a existência de provas concretas sobre a situação crítica da saúde financeira da organização; segundo, a comprovação do inadimplemento como única saída para se evitar a falência; terceiro, que a escassez de recursos seja resultado de crise econômica generalizada ou por fatos estranhos à responsabilidade dos administradores.
+No contexto atual, em que os desafios impostos pela pandemia do Covid-19 podem vir a representar uma situação de crise apta a colocar em risco o adimplemento das obrigações tributárias, havendo provas robustas a respeito da excepcionalidade da situação deficitária da pessoa jurídica, há de se reconhecer a tese.
+Por fim, deve-se registrar a necessidade de se realizar uma profunda análise da saúde financeira da organização, bem como de se fazer o confronto entre as suas dívidas e os valores devidos à fazenda pública, para que seja cogitada a inviabilidade de pagar o tributo sem dispensar funcionários.
+Guilherme Gueiros de Freitas Barbosa e Delmar Cunha Siqueira são especialistas em Direito Penal e sócios do Urbano Vitalino Advogados
+&nbsp;

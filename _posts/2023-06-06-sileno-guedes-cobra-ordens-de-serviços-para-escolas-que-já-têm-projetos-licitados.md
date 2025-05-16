@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Sileno Guedes cobra ordens de serviços para escolas que já têm projetos licitados"
+date: 2023-06-06
+tags: jamildo, Educação
+author: Jamildo Melo
+---
+O PSB reagiu ao tom de autoelogio do programa Juntos pela Educa&ccedil;&atilde;o, pelo governo Raquel Lyra, alegando que &eacute; um momento em que servidores da rede estadual de ensino lutam para garantir o pagamento do piso salarial.
+O l&iacute;der do PSB na Assembleia Legislativa de Pernambuco (Alepe), deputado Sileno Guedes, cobrou que o Governo do Estado agilize a resolu&ccedil;&atilde;o de problemas como a falta de kits escolares e de merenda, que surgiram ap&oacute;s a exonera&ccedil;&atilde;o de cargos estrat&eacute;gicos pela atual gest&atilde;o, e d&ecirc; continuidade a projetos que j&aacute; estavam engatilhados no fim da gest&atilde;o anterior, como a assinatura de ordens de servi&ccedil;o para a implanta&ccedil;&atilde;o de escolas.
+&ldquo;Acompanho os editais da Secretaria de Educa&ccedil;&atilde;o e, infelizmente, n&atilde;o vemos licita&ccedil;&otilde;es de implanta&ccedil;&atilde;o de novas escolas. Em Primavera, por exemplo, funciona uma escola municipal e uma estadual no mesmo pr&eacute;dio. Come&ccedil;ou a constru&ccedil;&atilde;o de uma nova quadra e se licitou uma nova escola, uma obra de quase R$ 12 milh&otilde;es. Essa licita&ccedil;&atilde;o est&aacute; conclu&iacute;da e a gente n&atilde;o tem a ordem de servi&ccedil;o do atual governo. Se a gente for para Goiana, l&aacute; em Tejucupapo, tem projeto e licita&ccedil;&otilde;es prontos. Qual a dificuldade de dar ordem de servi&ccedil;o do que j&aacute; est&aacute; no or&ccedil;amento e com processo licitat&oacute;rio conclu&iacute;do?&rdquo;, questionou.
+"O lan&ccedil;amento do Juntos pela Educa&ccedil;&atilde;o foi um evento realmente bonito, mas falta um olhar de gest&atilde;o&rdquo; do atual governo, que n&atilde;o deu detalhes, por exemplo, sobre o futuro do Ganhe o Mundo, alvo de pedido de informa&ccedil;&atilde;o do deputado Rodrigo Farias (PSB)".
+&ldquo;Que mude o nome para programa Mundo Novo, qualquer coisa desse tipo, mas que se mantenha os avan&ccedil;os que s&atilde;o conquista da sociedade, e n&atilde;o de um governo. &Eacute; preciso que o Estado possa, al&eacute;m de dizer o que pretende fazer amanh&atilde;, saber o que precisa fazer hoje, porque o dever de casa precisa ser cumprido&rdquo;, afirmou Sileno.

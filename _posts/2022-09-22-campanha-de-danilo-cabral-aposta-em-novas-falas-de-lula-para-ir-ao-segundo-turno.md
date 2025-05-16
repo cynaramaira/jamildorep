@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Campanha de Danilo Cabral aposta em novas falas de Lula para ir ao segundo turno"
+date: 2022-09-22
+tags: jamildo, danilo cabral
+author: Jamildo Melo
+---
+Nem bem a pesquisa do Ipec havia sido divulgada, nesta quarta-feira, na TV Globo, aliados do PSB j&aacute; estavam comemorando e acrescentando que as pesquisas internas j&aacute; apontavam um n&uacute;mero maior.
+Numa carreata realizada na mesma noite, o pr&oacute;prio candidato do PSB falou em "virada". Como se informou na semana passada, a disposi&ccedil;&atilde;o dos socialistas &eacute; chegar na reta final bem posicionados e saltar na frente entre os segundo colocados.
+Nesta estrat&eacute;gia, a ajuda de Lula na TV &eacute; esperada. Danilo Cabral esteve em S&atilde;o Paulo nesta quarta-feira (20) &agrave; noite para fazer grava&ccedil;&otilde;es com Lula e conversar sobre estrat&eacute;gias para esta reta final da campanha no estado.
+De acordo com o PSB, Lula teria ficado animado com o ritmo recente da candidatura de Danilo e voltou a falar sobre "sua expectativa quanto &agrave; reedi&ccedil;&atilde;o de uma parceria de sucesso com ele na Presid&ecirc;ncia e um aliado de primeira ordem &agrave; frente do governo de Pernambuco", numa refer&ecirc;ncia ao passado com Eduardo Campos.
+Ajuda de Lula
+O candidato &agrave; Presid&ecirc;ncia pelo PT, Luiz In&aacute;cio Lula da Silva, voltou a se encontrar com o candidato ao governo de Pernambuco Danilo Cabral (PSB) para renovar o apoio e fazer grava&ccedil;&otilde;es de &aacute;udio e v&iacute;deo enfatizando a parceria e pedindo que o eleitor vote em Danilo 40 e na candidata da Teresa Leit&atilde;o (PT), na elei&ccedil;&atilde;o do dia 2.
+Nas falas, Lula enfatiza que, para governar, precisa de &ldquo;pessoas competentes&rdquo; e da sua &ldquo;total confian&ccedil;a&rdquo;.
+&ldquo;Est&aacute; chegando a hora de o Brasil voltar a crescer para todos e todas. Vamos tirar novamente o nosso Brasil do Mapa da Fome, ampliar os programas sociais, retomar grandes obras e gerar mais empregos. Para isso, preciso de pessoas competentes e da minha total confian&ccedil;a. Em Pernambuco, meu governador &eacute; Danilo e minha senadora &eacute; Teresa. Voc&ecirc; sabe, dia 2 de outubro vote Danilo governador 40 e Teresa senadora 130&rdquo;, afirma Lula em uma das falas.
+&ldquo;Em breve nosso time vai entrar em campo para para derrotar a fome, gerar empregos e cuidar de quem mais precisa, mas o time fica mais forte quando est&aacute; completo&rdquo;, frisa em outro trecho, para completar: &ldquo;Em Pernambuco, tenho a sorte de contar com dois craques, Danilo e Teresa&rdquo;.
+&ldquo;Gostaria muito de reeditar a parceria que fiz com Eduardo Campos, que possivelmente tenha sido a mais importante parceria feita entre um presidente e um governador de estado. Eu gostaria de repetir com o companheiro Danilo para que volte a gerar emprego, desenvolvimento, acabar com a fome e fazer o povo pernambucano voltar a sorrir&rdquo;. O petista encerra uma de suas participa&ccedil;&otilde;es ao lado de Danilo pedindo de forma direta que o eleitor vote em Danilo governador e em Teresa - neste caso, para o Senado porque precisa de algu&eacute;m para ajudar no Senado a melhorar a legisla&ccedil;&atilde;o" disse Lula, sobre a futura parceria.

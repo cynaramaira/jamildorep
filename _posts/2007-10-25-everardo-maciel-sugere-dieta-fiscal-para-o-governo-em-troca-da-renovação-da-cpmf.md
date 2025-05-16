@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Everardo Maciel sugere dieta fiscal para o governo em troca da renovação da CPMF"
+date: 2007-10-25
+tags: governo,Igor Maciel,Meta Fiscal,Renovação
+author: None
+---
+O ex-secret&aacute;rio da Receita Federal, Everardo Maciel, sugeriu nesta quarta-feira (25), em audi&ecirc;ncia p&uacute;blica sobre a reforma tribut&aacute;ria, que o governo federal seja submetido a uma &quot;dieta fiscal&quot; como contrapartida &agrave; aprova&ccedil;&atilde;o da renova&ccedil;&atilde;o da Contribui&ccedil;&atilde;o Provis&oacute;ria sobre Movimenta&ccedil;&atilde;o Financeira (CPMF). 
+Com essa finalidade, ele defendeu a aprova&ccedil;&atilde;o, pelo Congresso, de uma proposta de emenda &agrave; Constitui&ccedil;&atilde;o (PEC) para que venha a constar dos Atos das Disposi&ccedil;&otilde;es Provis&oacute;rias da Constitui&ccedil;&atilde;o mecanismo que impe&ccedil;a o governo, at&eacute; 2015, de criar novos tributos e aumentar as al&iacute;quotas sobre os existentes. 
+- O governo n&atilde;o pode prescindir da CPMF nesse instante, pois o corte brusco dessa receita pode produzir s&eacute;rio desequil&iacute;brio fiscal, mas sua renova&ccedil;&atilde;o n&atilde;o deve ser aprovada gratuitamente - observou, depois de considerar a necessidade de conter a tend&ecirc;ncia de aumento dos gastos correntes.
+No debate, promovido pela Subcomiss&atilde;o Tempor&aacute;ria da Reforma Tribut&aacute;ria, que funciona no &acirc;mbito da Comiss&atilde;o de Assuntos Econ&ocirc;micos (CAE), Maciel tamb&eacute;m defendeu a derrubada, pelo Congresso, do veto do presidente da Rep&uacute;blica &agrave; Emenda 3, inserida pelo Legislativo no projeto do Executivo que criou a Secretaria da Receita Federal do Brasil (a Super Receita). A emenda visava a impedir que os auditores fiscais continuassem multando empresas por contratarem para prestar servi&ccedil;o pessoas jur&iacute;dicas em que apenas uma pessoa atua. 
+Com o veto, os auditores mantiveram o poder de decidir por si mesmos se a empresa que est&aacute; prestando os servi&ccedil;os pode ter ou n&atilde;o status de pessoa jur&iacute;dica. Quando entenderem que o v&iacute;nculo entre o prestador e a empresa contratante corresponde a uma rela&ccedil;&atilde;o normal de trabalho camuflada, desconstituem juridicamente o prestador e multam o contratante por, ao seu crit&eacute;rio, considerar que deixou de formalizar um emprego e deixou de recolher os tributos correspondentes ao v&iacute;nculo trabalhista. Para o Congresso, apenas a Justi&ccedil;a do Trabalho pode decidir pela desconstitui&ccedil;&atilde;o do prestador como pessoa jur&iacute;dica, depois de processo regular. 
+- Nenhuma autoridade administrativa &eacute; competente para desconstituir rela&ccedil;&atilde;o de trabalho - opinou Maciel. 
+&nbsp; 

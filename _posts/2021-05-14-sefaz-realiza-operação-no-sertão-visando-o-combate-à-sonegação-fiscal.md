@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Sefaz realiza operação no Sertão visando o combate à sonegação fiscal"
+date: 2021-05-14
+tags: combate,Meta Fiscal,operação,Sertão,sonegação
+author: None
+---
+Com o objetivo de combater a sonegação fiscal no estado, auditores da Secretaria da Fazenda de Pernambuco (Sefaz-PE), lotados na Diretoria Geral de Operações Estratégicas (DOE), visitaram contribuintes localizados na cidade de Petrolina durante esta semana. A operação faz parte do planejamento estratégico da DOE de atender as demandas nas mais diversas regiões do estado. A operação contou com a participação de 12 auditores, 2 técnicos de informática e 12 Policiais Militares e apoio da Delegacia da Polícia Civil Regional de Petrolina. Foram abordados 21 contribuintes de diversos segmentos econômicos.
+Dentre os alvos, destacam-se contribuintes que têm o perfil de empresas criadas apenas para “vender notas”. Os indícios levantados pela Central de Operações Estaduais (COE) foram confirmados, e os contribuintes estão com as inscrições estaduais bloqueadas. Outros contribuintes foram objeto de denúncias realizadas por consumidores que, corretamente, não aceitam mais a prática de sonegação executada por alguns empresários.
+A operação também contou com a participação do Laboratório de Auditoria Digital (LAUD), que ficou responsável pela aquisição das informações disponíveis nos equipamentos eletrônicos (computadores, notebooks, servidores) utilizados pelos contribuintes. Essas informações foram coletadas e servirão de base para uma auditoria mais minuciosa, que será realizada por auditores lotados na 3ª RF. Diante da irreversível “virtualização” das transações comerciais, a Sefaz-PE investe cada vez mais na fiscalização digital.
+Os auditores descobriram um depósito abarrotado de mercadorias contrafeitas, ou seja, falsificadas. Roupas, e outros itens, de marcas famosas foram apreendidos pela SEFAZ/PE e entregues a autoridade policial competente. Além das mercadorias contrafeitas, a operação identificou R$ 750.000,00 de mercadorias em situação irregular. Para regularizar estas mercadorias, os contribuintes devem recolher um crédito tributário de R$ 255.000,00. Dentre as mercadorias irregulares destacavam-se suplementos alimentares, eletrônicos e material de construção.
+Mesmo no período da pandemia, a SEFAZ se faz presente em diligências de campo através da DOE. Os auditores continuam na linha de frente, em todo o estado, utilizando-se de todos os cuidados e protocolos de segurança sanitária, pois o combate à sonegação não pode cessar.

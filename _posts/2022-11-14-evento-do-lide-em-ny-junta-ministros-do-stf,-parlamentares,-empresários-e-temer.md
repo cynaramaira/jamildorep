@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Evento do Lide em NY junta ministros do STF, parlamentares, empresários e Temer"
+date: 2022-11-14
+tags: jamildo, stf, Temer
+author: Jamildo Melo
+---
+Ministros do Superior Tribunal Federal, do Tribunal Superior Eleitoral, do Tribunal de Contas da Uni&atilde;o, al&eacute;m de autoridades monet&aacute;rias, representantes de entidades de classe, gestores p&uacute;blicos e privados s&atilde;o os expositores do LIDE Brazil Conference - New York, que acontece em dois dias, a partir desta segunda-feira (14), no Harvard Club, em Nova York (EUA).
+O evento, realizado pelo LIDE - Grupo de L&iacute;deres Empresariais re&uacute;ne, tamb&eacute;m, mais de 260 empres&aacute;rios para debater o respeito &agrave; liberdade e &agrave; democracia, e a economia do Brasil a partir de 2023.
+O ex-presidente do Brasil, Michel Temer faz a abertura do evento, na segunda-feira (14). Logo ap&oacute;s, falam sobre "Brasil e o respeito &agrave; liberdade &agrave; democracia" os ministros Alexandre de Moraes (STF e presidente do TSE), C&aacute;rmen L&uacute;cia (STF), Dias Toffoli (STF), Gilmar Mendes (STF), Lu&iacute;s Roberto Barroso (STF), Ricardo Lewandowski (STF), Carlos Ayres Britto (ex-ministro e ex-presidente do STF) e Antonio Anastasia (ministro do TCU).
+Na ter&ccedil;a-feira (15), a pauta &eacute; "A Economia do Brasil a partir de 2023".
+Os expositores confirmados s&atilde;o: Roberto Campos Neto (presidente do BC), Henrique Meirelles (ex-ministro da fazenda e ex-presidente do BC), Isaac Sidney (presidente da Febraban), Joaquim Levy (diretor do Banco Safra e ex-ministro da Fazenda), P&eacute;rsio Arida (ex-presidente do BNDES e do BC), Rodrigo Garcia (governador do Estado de S&atilde;o Paulo), e Rubens Ometto (presidente do Conselho de Administra&ccedil;&atilde;o da Cosan).
+A modera&ccedil;&atilde;o dos pain&eacute;is &eacute; do jornalista, colunista de O Globo, escritor, analista pol&iacute;tico da Globo News, conselheiro editorial do Grupo Globo e membro da Academia Brasileira de Letras, Merval Pereira. Haver&aacute; debate com os empres&aacute;rios nos dois dias.
+Para o chairman do LIDE, o ex-ministro do Desenvolvimento, Ind&uacute;stria e Com&eacute;rcio Exterior Luiz Fernando Furlan, a primeira edi&ccedil;&atilde;o do LIDE Brazil Conference abre um novo ciclo para o Grupo de L&iacute;deres Empresariais.
+"Renovamos nossa miss&atilde;o em estimular o di&aacute;logo entre os setores produtivo e p&uacute;blico, sempre visando o desenvolvimento sustent&aacute;vel do Brasil, de maneira correta e assertiva. O sucesso desse evento j&aacute; se faz pela confirma&ccedil;&atilde;o dos expositores, e pela grande procura por parte do empresariado".
+O presidente do LIDE, o empres&aacute;rio Jo&atilde;o Doria Neto, acredita que o evento consolida o papel do grupo em pautar a agenda nacional de prioridades socioecon&ocirc;micas e de contribuir com a credibilidade da imagem do pa&iacute;s no exterior.
+"Estamos levando, de maneira inovadora para os EUA, importantes e respeitadas lideran&ccedil;as de diversos segmentos e poderes. Certamente, o resultado das discuss&otilde;es trar&aacute; importantes reflex&otilde;es sobre as prioridades do Brasil a partir de 2023, assim como elevar a percep&ccedil;&atilde;o do cen&aacute;rio socioecon&ocirc;mico do Brasil no exterior".
+O ex-governador de S&atilde;o Paulo, Jo&atilde;o Doria, fundador e atual vice-chairman do Advisory Board do LIDE, ressalta o interesse do setor produtivo pelas quest&otilde;es institucionais e econ&ocirc;micas.
+&ldquo;O LIDE Brazil Conference - New York ser&aacute; o primeiro grande debate p&oacute;s-elei&ccedil;&atilde;o, que reunir&aacute; centenas de nomes de express&atilde;o do segmento empresarial e p&uacute;blico em torno de assuntos relevantes para o Brasil. Este evento vai explicar melhor a investidores internacionais o cen&aacute;rio do Brasil na democracia e na economia a partir de 2023&rdquo;.

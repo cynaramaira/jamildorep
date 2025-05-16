@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Orgulho e tradição"
+date: 2015-08-11
+tags: extradição
+author: None
+---
+ Foto: Gleyson Ramos/Divulgação.
+Por Ronnie Duarte, advogado, presidente da CAAP e candidato à presidência da OAB-PE
+Chegamos com otimismo a mais uma comemoração do dia 11 de agosto, Dia do Advogado. Parabenizo com respeito todos os colegas, em particular os pernambucanos,  reafirmando compromissos com a categoria  e aplaudindo conquistas já alcançadas. Que a luta por boas condições de trabalho continue sempre.
+Nossa advocacia é pioneira desde os tempos da criação do ensino jurídico do Brasil – quando, em 1827, surgiram os cursos de Direito de Olinda, posteriormente transformado na Faculdade de Direito do Recife, e o do Largo de São Francisco, em São Paulo. Esse legado se mantém ao longo dos anos com a advocacia pernambucana se fazendo representar, e muito bem, nas grandes discussões das ciências jurídicas, na luta pelo Estado Democrático de Direito, na modernização das instituições e na sua representação institucional através da Ordem dos Advogados do Brasil (OAB).
+Podemos afirmar, sim, que a OAB-PE é a Casa dos Advogados. Daqueles que se orgulham dessa missão que abraçaram e que se veem representados sempre que a voz da Ordem é ouvida na sociedade brasileira. Não é à toa que, segundo, o Instituto Datafolha, 66% da população acredita na OAB. A credibilidade institucional é fruto de um papel que transcende a defesa dos interesses corporativos da classe profissional. Com efeito, em momentos de crise, a Ordem sempre exerceu um relevante protagonismo na defesa dos ideais democráticos e dos interesses da sociedade como um todo.
+Para os advogados, é uma honra participar da história da advocacia através da OAB. Um incansável trabalho desenvolvido por um exército de profissionais que, entregando-se a um trabalho voluntário, doam-se para melhorar as condições de vida e de trabalho dos colegas. Hoje a consequência é que, no plano local, mais de 79% dos advogados aprovam a atual gestão da OAB-PE. Isso é fruto da ação de todos que vêm se desdobrando para atender aos variados segmentos da advocacia em todo o Estado e em todas as faixas etárias e áreas de atuação, universalizando as atenções e pondo em prática a ideia de construir uma OAB para todos.
+Contemplar os advogados com ações que garantam um melhor exercício profissional, é missão e objetivo primordial da OAB-PE. Das salas dos advogados aos cursos de pós-graduação. Da defesa intransigente das prerrogativas à criação de estacionamentos gratuitos nos fóruns. As atividades realizadas em prol do cotidiano da advocacia não param jamais.
+A cada nova missão, os advogados reconhecem na sua entidade máxima um porto seguro para que possam trabalhar e garantir a Justiça para todos. Porque o advogado valorizado, é o cidadão respeitado.

@@ -1,0 +1,42 @@
+---
+layout: post
+title: "Marília Arraes e João Campos são herdeiros em lados opostos"
+date: 2018-08-07
+tags: João Campos,Marília Arraes,são
+author: None
+---
+Hoje ministra do Tribunal de Contas da União (TCU), Ana Arraes foi a deputada federal mais votada em 2010, com 387.581 votos. O resultado foi 20 anos depois que o pai dela, o ex-governador Miguel Arraes, obteve o mesmo resultado, chegando à Câmara com 339.158 votos. Dois integrantes da família disputam a "herança" em 2018, mas estão em lados opostos. De um lado, Marília Arraes, vereadora do Recife pelo PT e neta de Arraes que chegou à disputa proporcional após meses formando bases para a candidatura ao governo do Estado, minada por um acordo entre petistas e socialistas, a quem faz oposição - e já reiterou que não vai subir no palanque. Do outro, João Campos (PSB), filho do ex-governador Eduardo Campos e neto de Ana Arraes, que vem preparando a candidatura há quatro anos.
+"São duas candidaturas diferentes, embora, claro, tenham algum tipo de convergência com Miguel Arraes que tem vinculação com os dois candidatos", afirmou o cientista político Ricardo Ismael, professor da Pontifícia Universidade Católica do Rio de Janeiro (PUC-Rio).
+LEIA TAMBÉM
+ » Marília Arraes reafirma oposição a Paulo Câmara
+ » Marília Arraes confirma candidatura a deputada federal, após ser barrada pela cúpula do PT
+ » Em áudio misterioso, Miguel Arraes ‘pede’ votos para Paulo Câmara
+ » Encontro nacional do PT mantém Marília Arraes fora da disputa
+ » Marília Arraes é aclamada na convenção nacional do PT
+ » Diretório Nacional do PT barra candidatura de Marília Arraes por 59 a 28 votos
+Para ele, João Campos está contando com a máquina do PSB. O partido tem o governo, com Paulo Câmara, afilhado político do pai dele. Marília Arraes, na avaliação do cientista político, está se apoiando na militância petista que apoiava a sua candidatura a governadora.
+ Foto: Sérgio Bernardo/JC Imagem
+"A candidatura dela vai se apoiar na militância do PT e acho que provavelmente já preparando terreno para uma candidatura para prefeita em 2020. Ela é uma liderança em ascensão, certamente agora reconhecida por todos e tem tudo para garantir uma eleição para deputada federal", disse Ricardo Ismael. "Mas ela não vai ser apoiada pela máquina do PSB, não vai estar vinculando a Paulo Câmara. Essa estrutura, essa máquina e o próprio governador vão estar apoiando a candidatura de João, inclusive pela própria influência que a Renata Campos tem na campanha do Paulo Câmara", avaliou. "Ela vai caminhar em um terreno de tentar resgatar o PT, principalmente em Recife", comparou ainda.
+Após meses de negociações e vai e vem, a executiva nacional do PT anunciou na última quarta-feira (1º) o acordo com o PSB, em que retiraria a candidatura de Marília Arraes em Pernambuco e apoiaria a reeleição de Paulo Câmara. A petista tentou resistir à decisão nacional, determinação amparada pela presidente da sigla, senadora Gleisi Hoffmann (PR) e pelo ex-presidente Lula, vencendo a votação dos delegados no Estado - em que defensores da aliança com os socialistas foram vaiados e chamados de golpistas por militantes que estavam do lado de Marília - e apresentando recursos ao diretório e ao encontro nacional do partido. A aliança com o PSB, no entanto, foi mantida e o PT indicou o senador Humberto Costa à reeleição na chapa.
+ Foto: Sérgio Bernardo/JC Imagem
+Apesar de estar na majoritária, os petistas, ainda divididos, decidiram lançar um grupo "puro sangue" para as proporcionais. Marília Arraes, então, divulgou um vídeo em que reafirma a postura contra Paulo Câmara. "Ou seja, votando em mim ou em qualquer candidato da nossa chapa, seu voto não vai eleger deputados de outros partidos”, diz a parlamentar. “Não subiremos no palanque desse governo, do qual somos e continuaremos na oposição”.
+?
+Apesar disso, para Ricardo Ismael, Marília Arraes não deve criticar João Campos. "A campanha de 2018 é uma campanha que ela tem tudo para ser eleita sem precisar disso, não precisa nem se preocupar com ele (João). A votação dela vai depender dela, porque ela agora está com a bola toda, ganhou uma enorme visibilidade com esse imbróglio todo. Minha dúvida é em relação a disputa entre Armando e Paulo Câmara, aí é que eu não sei exatamente ela vai se manter tão neutra assim. Agora, como existe um acordo, o PT está apoiando Paulo e certamente ela deve ter ouvido muito lá no diretório nacional, tem que respeitar a decisão, então provavelmente ela vai ficar, pelo menos no início dessa disputa, vai ficar mais quieta mas pode ser que na evolução da campanha, em algum momento, ela possa fazer alguma sinalização, aí neste caso pode acontecer dela não ficar tão calada assim na disputa entre Armando e Paulo Câmara, ela poderá em algum momento fazer alguma sinalização para Armando Monteiro".
+Aliados evitam comentar disputa
+Procurados, nenhum dos dois quis comentar.
+Aliados também evitam falar sobre o assunto.
+Defensora da candidatura de Marília Arraes ao governo, a deputada estadual Teresa Leitão (PT) enfatiza que ela não estava se preparando para se lançar para a Câmara Federal, o que foi decidido em uma reunião nesse domingo (5). A parlamentar negou que a o fator João Campos tenha impacto na estratégia da petista. "Não estamos disputando com ninguém, estamos somando a nós mesmos", afirmou. "Não vamos fazer essa comparação". Petistas esperam ter Marília como uma puxadora de votos.
+ Foto: Leo Motta/JC Imagem
+Ligado à família Campos, o deputado federal Tadeu Alencar (PSB) defendeu João Campos. "Não é uma questão familiar, é um legado político que é disputado não pelo sobrenome, mas pela política, pela afinidade com o partido que foi a vida toda de Dr. Arraes. Uma afinidade com o ideário programático do partido", disse. João é a aposta do PSB.
+Uma disputa que já poderia ter acontecido
+Em 2014, ambos já poderiam ter sido candidatos ao cargo. Foi o único ano desde 1990 que a família de Arraes não teve um integrante disputando - e garantindo entre os primeiros lugares - uma cadeira na Câmara dos Deputados.
+Antes de ser a mais votada em 2010, Ana Arraes havia ficado em terceiro lugar em 2006, com 178.467 votos, atrás dos 205.212 votos de Armando Monteiro Neto e dos 181.126 de Inocêncio Oliveira; Miguel Arraes em quarto em 2002, com 181.235 votos, menos que os 211.864 de Cadoca, os 204.768 de Roberto Magalhães e os 196.474 de Inocêncio Oliveira. Eduardo Campos foi o mais votado em 1998, com 173.657, e o segundo em 1994, com 133.347.
+ Foto: Hélia Scheppa/Acervo JC Imagem
+No segundo mandato como vereadora do Recife, Marília Arraes estava se preparando para ser candidata em 2014. Ela havia deixado o cargo de secretária de Juventude e Qualificação Profissional na gestão de Geraldo Julio (PSB) para cuidar da pré-campanha à Câmara, mas uma briga com o primo fez com que desistisse da disputa. A principal justificativa oficial para a retirada da pré-candidatura, foi de que as decisões sobre o partido estariam sendo impostas pela cúpula, formada pelo primo, que naquele ano tentava a presidência.
+O racha foi após Eduardo Campos indicar o filho João Campos para presidir a Juventude do PSB em Pernambuco.
+Marília Arraes, então, passou a criticar as posições do partido e aderiu à campanha petista. Naquele ano, o PSB havia rompido com o PT nacionalmente e, com a candidatura de Marina Silva após a morte de Eduardo Campos no primeiro turno, apoiou Aécio Neves (PSDB) no segundo turno. A vereadora ficou do lado de Dilma Rousseff, que apoiava Armando Monteiro Neto (PTB) - adversário de Paulo Câmara há quatro anos e agora. Naquele ano, foram pichados muros com o nome da vereadora associado à palavra "traidora". 
+Em fevereiro de 2016, antes de disputar reeleição na Câmara do Recife, Marília Arraes pediu desfiliação do PSB para disputar a eleição pelo PT.
+ Foto: Divulgação
+O nome de João Campos era estimulado por socialistas, mas a mãe, Renata Campos, fazia o movimento contrário por ele ainda estar na faculdade, cursando engenharia civil. No início de 2016, assumiu o cargo de chefe de gabinete de Paulo Câmara.
+João tem hoje 24 anos. Marília, 34.
+João Campos tem usado a imagem do pai. Eduardo Campos aparece, por exemplo, nos stories do Instagram, ferramenta em que já publicou vídeos repetindo discursos dele. Marília também usou o nome do avô, reeditando em suas viagens ao interior o jingle "Arraes tá aí, Arraes tá aí de novo".

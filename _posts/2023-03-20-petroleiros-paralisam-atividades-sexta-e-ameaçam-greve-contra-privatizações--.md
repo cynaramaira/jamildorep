@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Petroleiros paralisam atividades sexta e ameaçam greve contra privatizações  "
+date: 2023-03-20
+tags: jamildo, petroleiros, combustíveis
+author: Jamildo Melo
+---
+A Federa&ccedil;&atilde;o &Uacute;nica dos Petroleiros (FUP) e seus sindicatos aprovaram um calend&aacute;rio de assembleias para avaliar uma poss&iacute;vel greve da categoria, contra a retomada do processo de privatiza&ccedil;&atilde;o, encaminhado pela diretoria executiva ao Conselho de Administra&ccedil;&atilde;o (CA) da companhia. A categoria aprovou e organiza uma paralisa&ccedil;&atilde;o nacional no in&iacute;cio do expediente prevista para acontecer na sexta-feira (24).
+Segundo os trabalhadores, a decis&atilde;o da diretoria executiva, publicada no dia 17/3, prev&ecirc; prosseguir com a venda dos projetos que j&aacute; tiveram pr&eacute; contrato assinado: Polo Norte Capixaba, Polos Golfinho e Camarupim (ES), Polos Pescada e Potiguar (RN) e Lubnor (CE).
+O documento enviado pela diretoria ao Conselho acontece duas semanas ap&oacute;s of&iacute;cio do Minist&eacute;rio de Minas e Energia (MME) pedindo &agrave; Petrobr&aacute;s a suspens&atilde;o, por 90 dias, da venda de ativos da petroleira, para an&aacute;lise e reavalia&ccedil;&atilde;o.
+"A delibera&ccedil;&atilde;o r&aacute;pida da diretoria da Petrobr&aacute;s vai contra o projeto eleito de descontinuidade do "desmonte". &ldquo;&Eacute; inadmiss&iacute;vel que profissionais alinhados ao governo anterior sigam entranhados na gest&atilde;o da empresa, inviabilizando e boicotando o programa de governo que foi aprovado nas urnas&rdquo;, disse Deyvid Bacelar, coordenador-geral da FUP.
+"&Eacute; preciso deixar mais clara a recomenda&ccedil;&atilde;o do MME de suspender o processo. O tema da suspens&atilde;o da privatiza&ccedil;&atilde;o de ativos n&atilde;o foi sequer discutido na reuni&atilde;o extraordin&aacute;ria do CNPE realizada na &uacute;ltima sexta-feira, 17&rdquo;, acrescenta o dirigente da FUP.
+"Com quase tr&ecirc;s meses de governo Lula, a diretoria e o Conselho de Administra&ccedil;&atilde;o da companhia seguem ocupados por indicados do governo Bolsonaro, que correm contra o tempo para concluir as vendas de ativos. A FUP e seus sindicatos est&atilde;o acionando o governo para que cumpra o seu papel de acionista controlador da estatal e oriente os indicados da Uni&atilde;o no CA a votarem pela suspens&atilde;o das privatiza&ccedil;&otilde;es".

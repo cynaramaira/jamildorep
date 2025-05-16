@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Câmara abre processos contra Lúcio Vieira Lima, Maluf e mais dois"
+date: 2018-02-27
+tags: animais,Câmara,clima,Contran,felipe vieira,Paulo Maluf,Processos
+author: None
+---
+Agência Câmara - O Conselho de Ética da Câmara instaurou, nesta terça-feira (27), processos de quebra do decoro parlamentar contra quatro deputados: Lúcio Vieira Lima (PMDB-BA), Paulo Maluf (PP-SP), Celso Jacob (PMDB-RJ) e João Rodrigues (PSD-SC). O presidente do conselho, deputado Elmar Nascimento (DEM-BA), sorteou três deputados para a relatoria de cada um dos processos. A definição dos nomes dos relatores será feita na próxima semana, após consulta aos parlamentares sorteados.
+Lúcio Vieira Lima (PMDB-BA) é investigado por crimes de lavagem de dinheiro, associação criminosa e ameaça. O pedido de abertura de processo foi feito por Psol e Rede. Os deputados Covatti Filho (PP-RS), Hiran Gonçalves (PP-RR) e Zé Geraldo (PT-PA) foram sorteados para a relatoria, e um deles deve ser escolhido pelo presidente.
+Paulo Maluf (PP-SP) foi condenado pelo Supremo Tribunal Federal (STF) a sete anos e nove meses de reclusão, multa e perda do mandato por crime de lavagem de dinheiro. Rede pede a perda do mandato do parlamentar. Relatores sorteados: Ronaldo Lessa (PDT-AL), João Marcelo Souza (PMDB-MA) e Leo de Brito (PT-AC).
+O STF condenou Celso Jacob (PMDB-RJ) a sete anos e dois meses, em regime semiaberto, por crimes de falsificação de documento público e dispensa irregular de licitação quando era prefeito de Três Rios (RJ). O pedido de abertura de processo também foi feito pela Rede. Os relatores sorteados foram Sandro Alex (PSD-PR), Covatti Filho (PP-RS) e Ronaldo Carleto (PP-BA).
+João Rodrigues (PSD-SC) foi condenado pelo TRF4 a cinco anos e três meses de reclusão pelos crimes de fraude e dispensa irregular de licitação quando era prefeito de Pinhalzinho (SC). Foi preso a mando do STF após suposta tentativa de fuga. Também foi a Rede quem pediu a perda do mandato do deputado. Os relatores sorteados foram Ronaldo Lessa (PDT-AL), Paulo Freire (PR-SP) e Raimundo Gomes de Matos (PSDB-CE).
+Nos casos de processos relativos à decisão transitada em julgado, como a condenação de Paulo Maluf, por exemplo, o presidente do Conselho de Ética, Elmar Nascimento, não descarta a possibilidade de consulta prévia à Comissão de Constituição e Justiça. “Pode-se criar um conflito de competência. Não vejo condições de reformulação de decisão do Supremo”, disse.

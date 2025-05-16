@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Armando Monteiro questiona modelo de repasse de verbas aos municípios"
+date: 2014-03-18
+tags: Armando Monteiro,municípios,Repasse
+author: None
+---
+ Foto: Alexandre Albuquerque/divulgação
+O senador Armando Monteiro (PTB) defendeu durante o encontro promovido pela Associação Municipalista de Pernambuco (AMUPE), no Recife, o fim da guerra fiscal promovida pelos Estados que, ressaltou, prejudica os municípios. “Os estados estão promovendo muita renúncia fiscal, em decorrência desta guerra absolutamente ensandecida que se instalou, em que todos dão incentivos cada vez maiores, incentivos que são inconstitucionais, e ao final os municípios também pagam esta conta”, afirmou.
+Citando projeções da Confederação Nacional dos Municípios, Armando disse que em 2014 só de renúncias fiscais na área do ICMS os Estados arcarão com R$ 66 bilhões. “Pernambuco representa um pouco menos de 3% do total destas renúncias, o que significa dizer que, se esta projeção estiver correta, Pernambuco vai fazer renúncias fiscais em 2014 num número que deve se situar entre R$ 1,7 bilhão ou R$ 2 bilhões. Isto significa que os municípios de Pernambuco poderão perder, em decorrência da renúncia fiscal na área do ICMS, um número que se aproxima de R$ 400 milhões, por ano”.
+Convidado pela Amupe para falar sobre a necessidade de um novo pacto federativo, Armando disse que um dos desafios é se trabalhar pelo fortalecimento institucional dos municípios. “Muitos ainda são carentes de uma retaguarda administrativa e técnica para puderem bem cumprir a missão que lhes foi transferida por uma decisão da União. E com isto os municípios menores se viram pressionados. Muitos sem condições sequer de elaborar os projetos, de atender exigências de organismos internacionais, e são exigências complexas", afirmou.
+Para a efetivação de um novo Pacto Federativo, o senador chamou à responsabilidade todos os atores políticos. “Às vezes eu vejo cobranças que são endereçadas de maneira injusta, como se o novo pacto federativo pudesse resultar da iniciativa de um governo episodicamente. Vamos fazer um mea culpa, os parlamentares, a classe política, que não dedicou a energia devida a este tema, considerando que já se revelavam de forma gritante as fragilidades e a insustentabilidade deste modelo. Que iniciativas de reformas efetivamente pudemos conduzir?
+Onde estiveram neste momento os parlamentares, as lideranças partidárias, no sentido de cobrarem à época que o Brasil efetivamente pudesse realizar uma agenda de reformas que nós todos reclamamos?”, cobrou.

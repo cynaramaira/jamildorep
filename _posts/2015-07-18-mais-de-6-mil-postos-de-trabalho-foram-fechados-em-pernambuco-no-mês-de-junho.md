@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Mais de 6 mil postos de trabalho foram fechados em Pernambuco no mês de junho"
+date: 2015-07-18
+tags: animais,pernambuco,Postos,trabalho
+author: None
+---
+ Foto: Agência Brasil
+Do JC Online
+Foram cortadas 6.339 vagas de trabalho em Pernambuco em junho último, o que provocou uma retração de 0,48% em relação ao estoque de assalariados com carteira assinada em maio, segundo as informações do Cadastro Geral de Empregados e Desempregados (Caged) elaborado pelo Ministério do Trabalho e Emprego (MTE). No Estado, foi o menor saldo de empregos para um mês de junho desde 2003.
+Ainda em junho, as empresas brasileiras fecharam 111.199 empregos formais em junho último, a pior performance para o mês desde 1992. No Brasil, os setores que mais fecharam postos de trabalho foram a indústria de transformação com um saldo de -64.228 postos de trabalho e os serviços com um estoque negativo de 39.130 vagas.
+Os serviços provocaram o maior impacto no fechamento de postos de trabalho formais em Pernambuco que se concentrou nas cidades maiores, como mostra o ranking feito pelo MTE com o comportamento do emprego nas 64 maiores cidades do Estado com mais de 30 mil habitantes (ver quadro acima). A campeã foi a cidade do Recife, com um saldo negativo de 4.405 postos de trabalho e um decréscimo de 7.693 empregos formais, o que representou -0,85% do total de empregados com carteira assinada na cidade. Além da capital, as cidades que tiveram pior performance no emprego com carteira assinada foram: Ipojuca, Jaboatão dos Guararapes, Cabo de Santo Agostinho e Olinda.
+Os setores que mais fecharam postos de trabalho em Pernambuco no mês passado foram: serviços (-4.468) e a construção civil, com 1.766 vagas a menos. “Os serviços representaram 71% dos postos de trabalho fechados e a construção civil ficou com 28%. O fechamento desses postos está ligado à desmobilização das grandes obras. A fábrica da Jeep, destaque em contratação, só entrou em operação em abril último. Em contrapartida, a Refinaria Abreu e Lima vem diminuindo a quantidade de trabalhadores desde o ano passado”, explica o economista da Ceplan Consultoria Ademilson Saraiva.
+Ele argumenta que o maior número de postos foram fechados no Recife porque a capital concentra as empresas que prestam serviços à construção civil e à indústria. “A construção civil teve uma queda de 14% nos postos de trabalho formais de janeiro a junho, quando se compara com o saldo de empregos de dezembro de 2014”, diz Ademilson, acrescentando que o setor possui um peso importante no emprego do Estado.
+Os outros setores que fecharam postos de trabalho foram a indústria de transformação (-485) e o comércio (-962). No Estado, o maior saldo de emprego ficou com a agropecuária, que conseguiu apresentar uma performance positiva, com um saldo de 1.320 vagas a mais do que maio último.
+Ainda no ranking do Caged, as cidades campeãs do emprego no Estado em junho foram: Petrolina, Goiana, Araripina, Arcoverde e Sirinhaém. A última apresentou um crescimento de 10% no emprego formal, com um saldo de 429 vagas de trabalho em junho último.

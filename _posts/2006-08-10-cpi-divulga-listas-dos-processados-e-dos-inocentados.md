@@ -1,0 +1,13 @@
+---
+layout: post
+title: "CPI divulga listas dos processados e dos inocentados"
+date: 2006-08-10
+tags: alimentos ultraprocessados,divulgação,motociclistas
+author: None
+---
+Romoaldo de Souza, correspondente da Rádio Jornal em Bras?lia, nos envia as listas dos parlamentares que responderão pelo envolvimento com o escândalo das sanguessugas e a daqueles que terão os processos arquivados, foram inocentados.
+As listas:
+Os 72 que vão enfrentar processo por quebra do decoro parlamentar no Conselho de Ética:
+Adelor Vieira (PMDB-SC)Agnaldo Muniz (PP-RO)Alceste Almeida (PTB-RR)Almeida de Jesus (PL-CE)Almerinda de Carvalho (PMDB-RJ)Almir Moura (PFL-RJ)Amauri Gasques (PL-SP)Benedito Dias (PP-AP)Benjamin Maranhão (PMDB-PB)Cabo Júlio (PMDB-MG)Carlos Dunga (PTB-PB)Carlos Nader (PL-RJ)Celcita Pinheiro (PFL-MT)César Bandeira (PFL-MA)Cleonâncio Fonseca (PP-SE)Cleuber Carneiro (PTB-MG)Coriolano Sales (PFL-BA)Coronel Alves (PL-AP)Edir Oliveira (PTB-RS)Edna Macedo (PTB-SP)Eduardo Seabra (PTB-AP)Elaine Costa (PTB-RJ)Enivaldo Ribeiro (PP-PB)Érico Ribeiro (PP-RS)Fernando Gonçalves (PTB-RJ)Heleno Silva (PL-SE)Ildeu Araújo (PP-SP)Irapuan Teixeira (PP-SP)Iris Simões (PTB-PR)Isa?as Silvestre (PSB-MG)João Batista (PP-SP)João Caldas (PL-AL)João Correia (PMDB-AC)João Grandão (PT-MS)João Magalhães (PMDB-MG)João Mendes de Jesus (PSB-RJ)Jonival Lucas Junior (PTB-BA)Jorge Pinheiro (PL-DF)José Divino (PRB-RJ)José Militão (PTB-MG)Josué Bengston (PTB-PA)Junior Betão (PL-AC)Laura Carneiro (PFL-RJ)Lino Rossi (PP-MT)Marcelino Fraga (PMDB-ES)Marcondes Gadelha (PSB-PB)Marcos Abramo(PP-SP)Marcos de Jesus (PFL-PE)Maur?cio Rabelo (PL-TO)Neuton Lima (PTB-SP)Nilton Capixaba (PTB-RO)Osmânio Pereira (PTB-MG)Pastor Amarildo (PSC-TO)Paulo Baltazar (PSB-RJ)Paulo Feijó (PSDB-RJ)Paulo Gouveia (PL-RS)Pedro Henry (PP-MT)Raimundo Santos (PL-PA)Reginaldo Germano(PP-BA)Reinaldo Betão (PL-RJ)Reinaldo Gripp (PL-RJ)Ricardo Rique (PL-PB)Ricarte de Freitas (PTB-MT)Robério Nunes (PFL-BA)Vanderlei Assis (PP-SP)Vieira Reis (PRB-RJ)Wanderval Santos (PL-SP)Wellington Fagundes (PL-MT)Wellington Roberto (PL-PB)Sen. Magno Malta (PL-ES)Sen. Ney Suassuna (PMDB-PB)Sen. Serys Slhessarenko (PT-MT)
+Os 18 inocentados:
+Benedito de Lira - (PP-AL)Dr Heleno - (PSC-RJ)Zelinda Novais - (PFL-BA)Teté Bezerra - (PMDB-MT)Saraiva Felipe - (PMDB-MG)Fernando Estima - (PPS-SP)Eduardo Gomes - (PSDB-TO)Feu Rosa - (PP-ES)Gilberto Nascimento - (PMDB-SP)Helenildo Ribeiro - (PSDB-AL)Itamar Serpa - (PSDB-RJ)Jefersson Campos - (PTB-SP)Josias Quintal - (PSB-RJ)Mário Negromonte - (PP-BA)Nélio Dias - (PP-RN)N?lton Baiano - (PP-ES)Paulo Magalhães - (PFL-BA)Ribamar Alves - (PSB-MA) 

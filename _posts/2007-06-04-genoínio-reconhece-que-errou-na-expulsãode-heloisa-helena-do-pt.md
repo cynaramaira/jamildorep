@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Genoínio reconhece que errou na expulsãode Heloisa Helena do PT"
+date: 2007-06-04
+tags: 
+author: None
+---
+Do Congresso em Foco
+Dois anos ap&oacute;s ter deixado a presid&ecirc;ncia do PT, no auge do esc&acirc;ndalo do&nbsp;mensal&atilde;o, o deputado federal Jos&eacute; Genoino (PT-SP) admite, pela primeira&nbsp;vez, que errou na condu&ccedil;&atilde;o pol&iacute;tica e nas rela&ccedil;&otilde;es internas do PT. 
+Um desses equ&iacute;vocos, segundo ele, foi a expuls&atilde;o, em 2003, da ent&atilde;o&nbsp;senadora Helo&iacute;sa Helena (AL) e outros tr&ecirc;s deputados petistas (Bab&aacute;,&nbsp;Luciana Genro e Jo&atilde;o Fontes).&nbsp; 
+O mea culpa est&aacute; na biografia autorizada &quot;Jos&eacute; Geno&iacute;no - escolhas&nbsp;pol&iacute;ticas&quot; (Centauro Editora), escrita pela professora Maria Francisca&nbsp;Pinheiro Coelho. Conclu&iacute;do ainda em 2005, o livro ser&aacute; lan&ccedil;ado nesta&nbsp;segunda (4), em S&atilde;o Paulo. 
+&ldquo;Acho que o processo que vivemos em 2003 que levou &agrave; expuls&atilde;o de&nbsp;parlamentares tamb&eacute;m prejudicou a constru&ccedil;&atilde;o dessa pactua&ccedil;&atilde;o. Eu sofri&nbsp;muito nesse processo. Eu n&atilde;o comemorei. Para mim, foi uma derrota a sa&iacute;da&nbsp;deles&rdquo;, diz o deputado, na parte final do livro, que reproduz tr&ecirc;s&nbsp;entrevistas feitas pela autora. 
+Os erros do PT, no entanto, n&atilde;o pararam por a&iacute;, na avalia&ccedil;&atilde;o dele. &ldquo;Acho&nbsp;que o partido devia ter tomado todos os cuidados de, ao governar o Brasil,&nbsp;mudar a forma de fazer pol&iacute;tica. [...] O fato de n&atilde;o termos iniciado com a&nbsp;reforma pol&iacute;tica nos debilitou muito&rdquo;, reconhece. &ldquo;O partido n&atilde;o se&nbsp;preparou devidamente porque n&atilde;o definiu melhor o seu lado&rdquo;. 
+DISCRI&Ccedil;&Atilde;O
+As entrevistas s&atilde;o uma esp&eacute;cie de complemento da obra, que aborda a vida&nbsp;do petista desde o seu nascimento, em 1946, no interior cearense, at&eacute;&nbsp;2002, quando ele perdeu a disputa pelo governo de S&atilde;o Paulo para Geraldo&nbsp;Alckmin (PSDB). 
+O livro detalha a ida de Genoino para Fortaleza, a sua filia&ccedil;&atilde;o ao PCdoB e&nbsp;a participa&ccedil;&atilde;o no movimento estudantil, que o levou para S&atilde;o Paulo; a ida&nbsp;para a guerrilha do Araguaia; as torturas e os cinco anos de pris&atilde;o; a&nbsp;anistia e o retorno a S&atilde;o Paulo e, por fim, a chegada ao Congresso, em&nbsp;1983, como um dos oito deputados eleitos pelo PT. 
+No m&ecirc;s passado, Genoino ocupou pela primeira vez a tribuna da C&acirc;mara para&nbsp;dar sua vers&atilde;o sobre o mensal&atilde;o e dizer que foi &ldquo;condenado previamente&rdquo;.&nbsp;&ldquo;Sente-se que o mundo todo desabou sobre voc&ecirc; e ningu&eacute;m aparece para&nbsp;retirar os entulhos que o esmagam&rdquo;, discursou.
+Apesar de se manter distante dos holofotes e raramente se pronunciar no&nbsp;plen&aacute;rio, o deputado ainda exerce grande influ&ecirc;ncia na bancada do PT e tem&nbsp;recebido manifesta&ccedil;&otilde;es de apoio e respeito de parlamentares da oposi&ccedil;&atilde;o&nbsp;desde que voltou &agrave; C&acirc;mara. Mas o parlamentar expansivo e combativo de outrora deu lugar a um congressista discreto.
+SEGREDO
+Genoino conta no livro um segredo s&oacute; revelado para a fam&iacute;lia depois de&nbsp;anos. &Eacute; a filha que teve, fruto de uma rela&ccedil;&atilde;o extraconjugal, com uma&nbsp;militante do PT logo quando assumiu o primeiro mandato de deputado, em&nbsp;1983. Genoino a manteve em segredo at&eacute; 1999, quando contou o caso para a&nbsp;mulher e os dois filhos. 
+&ldquo;Foi na &eacute;poca da campanha das Diretas. N&atilde;o a registrei no primeiro&nbsp;momento. Ela ficou um tempo s&oacute; com o nome da m&atilde;e. Ela me trouxe a menina&nbsp;para eu ver. Registrei logo ap&oacute;s a Constituinte, em 1988&rdquo;, afirma. Segundo&nbsp;Maria Francisca, o deputado havia pedido para ela n&atilde;o contar sobre a&nbsp;filha, mas depois acabou liberando a entrada da hist&oacute;ria no livro. 

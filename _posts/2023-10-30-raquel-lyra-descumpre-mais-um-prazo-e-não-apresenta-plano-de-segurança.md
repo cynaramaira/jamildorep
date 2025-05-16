@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Raquel Lyra descumpre mais um prazo e não apresenta plano de segurança"
+date: 2023-10-30
+tags: jamildo, raquel lyra
+author: Jamildo Melo
+---
+Depois de adiar por, pelo menos, quatro vezes o lan&ccedil;amento de um plano de seguran&ccedil;a para Pernambuco, no &uacute;ltimo s&aacute;bado (28) completou-se um m&ecirc;s da &uacute;ltima data prometida pela gest&atilde;o Raquel Lyra/Priscila Krause para o t&atilde;o esperado programa de combate &agrave; viol&ecirc;ncia do Estado.
+"O ano j&aacute; est&aacute; chegando ao fim e os pernambucanos est&atilde;o sem o Pacto pela Vida, que foi descontinuado por Raquel, e sem nenhum outro plano de seguran&ccedil;a", reclama o deputado estadual Rodrigo Farias (PSB).
+"A paci&ecirc;ncia da popula&ccedil;&atilde;o j&aacute; acabou faz tempo. Quando Eduardo Campos assumiu o governo em 2007, como oposi&ccedil;&atilde;o ao governo que l&aacute; estava, apresentou o Pacto pela Vida em quatro meses. Apresentou um programa de combate &agrave; viol&ecirc;ncia amplamente discutido com a popula&ccedil;&atilde;o, especialistas, universidades e com uma meta clara de redu&ccedil;&atilde;o da viol&ecirc;ncia&rdquo;, relembrou o parlamentar.
+Rodrigo Farias vai al&eacute;m. "Com 10 meses de governo sem plano de seguran&ccedil;a, sem previs&atilde;o de ser anunciado e com a viol&ecirc;ncia crescendo, a j&aacute; deteriorada credibilidade da governadora vai sendo minada ainda mais. &Eacute; inacredit&aacute;vel o que est&aacute; acontecendo em Pernambuco. Raquel e Priscila n&atilde;o descem do palanque, continuam com discursos vazios e sem agir, porque 2023 j&aacute; est&aacute; acabando e a seguran&ccedil;a p&uacute;blica do Estado foi completamente abandonada&rdquo;, declarou o deputado.
+O plano de Raquel e Priscila, chamado Juntos pela Seguran&ccedil;a, havia sido prometido para maio, depois para junho, depois julho, depois 28 de setembro e, at&eacute; agora, o projeto foi mostrado &agrave; sociedade. Nesse intervalo, a secret&aacute;ria de Defesa Social, Carla Patr&iacute;cia, que havia sido anunciada com alarde pela gest&atilde;o, pediu para sair.
+Conforme j&aacute; informou o JC, o Estado de Pernambuco tem registrado uma explos&atilde;o no n&uacute;mero de mortes violentas. De acordo com a Secretaria de Defesa Social (SDS), 319 pessoas foram assassinadas em setembro de 2023. Isso significa que houve um aumento de 43,68% em rela&ccedil;&atilde;o ao ano anterior.

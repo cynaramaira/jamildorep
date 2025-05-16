@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Três semanas após denúncia do Blog de Jamildo, Cendhec entra com representação contra candidato que defende a Pena de Morte"
+date: 2010-08-30
+tags: AmCentral,apostas,blogs jc,candidatos,Contran,Morte,Polícia Penal
+author: None
+---
+
+Edmar de Oliveira 
+View more documents from Jamildo Melo.
+
+A den&uacute;ncia do Blog de Jamildo foi publicada no dia 07 de agosto. Veja as postagens abaixo.
+Nesta segunda-feira, o CENTRO DOM HELDER CAMARA DE ESTUDOS E A&Ccedil;&Atilde;O SOCIAL (CENDHEC), entidade de defesa e promo&ccedil;&atilde;o dos Direitos Humanos, anunciou que encaminhou a Procuradoria Regional Eleitoral de Pernambuco, uma representa&ccedil;&atilde;o contra o candidato &agrave; Deputado Federal, EDMAR DE OLIVEIRA, filiado ao Partido Humanista da Solidariedade (PHS), integrante da Coliga&ccedil;&atilde;o &Eacute; PERNAMBUCO, da FRENTE POPULAR DE PERNAMBUCO. O candidato vem defendendo atrav&eacute;s da campanha eleitoral, a proposta da implanta&ccedil;&atilde;o da pena de morte no Brasil.
+Edmar de Oliveira vem divulgando panfleto em que consta estampada a fotografia de uma pessoa suspeita de haver cometido um grave crime, sob as manchetes &lsquo;Pena de Morte, SIM!&rsquo;; &lsquo;Torturou, matou, esquartejou e deu para os c&atilde;es comerem&rsquo;; &lsquo;Estuprou e matou a pr&oacute;pria sobrinha&rsquo; e outras imagens e frases sensacionalistas, ilustradas com tintas vermelhas representando &lsquo;sangue&rsquo;. O candidato tamb&eacute;m defende na sua campanha outras quest&otilde;es pol&ecirc;micas, como a pris&atilde;o perp&eacute;tua, a castra&ccedil;&atilde;o qu&iacute;mica; o fim da progress&atilde;o de pena e a redu&ccedil;&atilde;o da maioridade penal.
+Na representa&ccedil;&atilde;o, o Cendhec enfatiza que &ldquo;o candidato promete o que n&atilde;o pode fazer: instituir a Pena de Morte. Induz o eleitor ao erro e incita as pessoas a fazerem justi&ccedil;a com as pr&oacute;prias m&atilde;os. Assim sendo, prega a selvageria, prop&otilde;e uma sociedade sem leis, restando as v&iacute;timas da viol&ecirc;ncia a alternativa de recorrerem a vingan&ccedil;a privada como solu&ccedil;&atilde;o dos conflitos e dramas pessoais&rdquo;.
+Para o Cendhec, essa proposta se constitui em uma verdadeira&nbsp;afronta aos princ&iacute;pios&nbsp;dos Direitos Humanos,&nbsp;reafirmados&nbsp;na Constitui&ccedil;&atilde;o Federal, no Terceiro Programa Nacional de Direitos Humanos (PNDH 3), bem como Tratados e Conven&ccedil;&otilde;es Internacionais do qual o Brasil &eacute; signat&aacute;rio. &ldquo;O candidato poderia assumir uma postula&ccedil;&atilde;o em conson&acirc;ncia com os Direitos Humanos, manifestado sistematicamente na solidariedade a todas as v&iacute;timas da viol&ecirc;ncia e propor que seja evitada de todas as formas a impunidade, inclusive a reformula&ccedil;&atilde;o da legisla&ccedil;&atilde;o pertinente&rdquo;.
+O Cendhec est&aacute; recorrendo &agrave; Procuradoria Regional Eleitoral de Pernambuco, no sentido de que seja determinada a suspens&atilde;o de sua candidatura ou pelo menos a absten&ccedil;&atilde;o de fazer sua propaganda eleitoral alicer&ccedil;ada no incitamento &agrave; viol&ecirc;ncia. Requer ainda, que seja observado o que disp&otilde;e o art. 1&ordm; e 5&ordm; da Constitui&ccedil;&atilde;o Federal que explicita a defesa dos direitos e garantias individuais.
+Al&eacute;m da representa&ccedil;&atilde;o, encaminhada &agrave; Procuradoria Regional Eleitoral de Pernambuco, atrav&eacute;s do Protocolo 42.727/2010, o CENDHEC encaminhou tamb&eacute;m carta aos candidatos majorit&aacute;rios da Frente Popular de Pernambuco (Eduardo Campos, Humberto Costa e Armando Monteiro Neto) e aos presidentes dos Diret&oacute;rios Estaduais dos 15 partidos que integram a coliga&ccedil;&atilde;o.
+Nessa carta, o Cendhec manifesta sua indigna&ccedil;&atilde;o e solicita que o candidato tenha a sua candidatura suspensa pela coliga&ccedil;&atilde;o, caso continue a fazer tais propagandas atentat&oacute;rias aos Direitos Humanos.
+&nbsp;Na defesa da pena de morte, candidato a deputado federal do PHS e vereador do Recife usa at&eacute; o goleiro Bruno, ex-Flamengo. Antes ele do que voc&ecirc;, diz o slogam usado nas pe&ccedil;as da campanha do justiceiro
+Candidato a deputado federal pelo PHS e vereador do Recife faz apologia &agrave; morte de bandidos. Cad&ecirc; a OAB&#63; Cad&ecirc; o MP&#63;
+&nbsp; 

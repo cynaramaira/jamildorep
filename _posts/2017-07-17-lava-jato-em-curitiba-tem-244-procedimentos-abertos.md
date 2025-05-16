@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Lava Jato em Curitiba tem 244 procedimentos abertos"
+date: 2017-07-17
+tags: Curitiba,Lava Jato
+author: None
+---
+Estadão Conteúdo - Após a condenação do ex-presidente Luiz Inácio Lula da Silva pelo juiz Sérgio Moro e passados quase três anos e meio de investigações, a Operação Lava Jato em Curitiba tem ainda 244 inquéritos e procedimentos abertos e 40 ações penais em andamento na Justiça Federal. Aguardam a conclusão apurações sobre corrupção na Petrobras, como a compra da Refinaria de Pasadena, nos Estados Unidos, e propinas em contratos de plataformas de exploração do pré-sal, de comunicação e de marketing, além de palestras do petista, desvios na construção da Usina de Belo Monte e suspeitas de improbidade de PT e PMDB.
+Os trabalhos em curso devem resultar em novas fases da operação, com pedidos de prisões e de buscas e apreensões - já foram realizadas 41 etapas.
+"Há centenas de pessoas sob investigação, e novas linhas de trabalho não param de surgir. Há áreas da Petrobras em que a apuração ainda está amadurecendo, como a de comunicação e a de serviços terceirizados", afirmou à reportagem o procurador da República Deltan Dallagnol, coordenador da força-tarefa no Paraná. "Ninguém aqui pode reclamar de falta de trabalho."
+Com desvios de mais de R$ 10 bilhões identificados na Petrobras em negócios entre 2004 e 2014, a Lava Jato em Curitiba precisa apresentar à Justiça Federal denúncias contra empreiteiras por crimes de cartel e fraude em licitações. O Ministério Público Federal (MPF) dividiu as acusações e iniciou os processos pelos crimes de corrupção, lavagem de dinheiro e organização criminosa - já são 64 denúncias.
+A força-tarefa também vai investir na propositura de ações cíveis contra construtoras e partidos - são oito processos abertos atualmente -, pedindo o ressarcimento de R$ 14 bilhões aos cofres públicos. Apenas o PP foi acionado na Justiça - os procuradores cobram R$ 2 bilhões pelos supostos prejuízos causados à Petrobras. PT e PMDB devem ser os próximos.
+"Há também todos os desmembramentos da Odebrecht (que fez delação com 78 executivos e ex-executivos) que ficaram em Curitiba, só aí perto de 50 investigações. Inúmeras ações cíveis contra a corrupção estão pendentes. Bancos poderão ser chamados a responder por prejuízos decorrentes de falhas dos sistemas de compliance, no Brasil e no exterior", afirmou Dallagnol.
+Frentes
+Em outra ponta da força-tarefa, iniciada em 2015, a Lava Jato ganhou o reforço do Ministério Público da Suíça, com a identificação de cerca de mil operações financeiras suspeitas de investigados no Brasil.
+Dois anos depois, mais da metade do material não foi enviada aos procuradores brasileiros. São dados de contas, nomes de suspeitos, entre eles políticos e agentes públicos, e de movimentações financeiras. Os pedidos de cooperação internacional saltou de 183, em março deste ano, para 279.
+"Apenas a delação premiada da Odebrecht colocou sob suspeita quase um terço dos senadores e dos ministros e quase metade dos governadores. Vemos grande parte da classe política à espreita, aguardando apenas uma boa oportunidade para se livrar do risco de prisão", afirmou Dallagnol.
+O procurador apontou o suposto sufocamento da Polícia Federal, os ataques ao instituto da delação premiada e a proposta de anistia ao caixa 2 como reações da classe política aos avanços da Lava Jato.
+Para Dallagnol, há "uso político" dos fatos descobertos pela força-tarefa. "A recente condenação de Lula é um exemplo.
+Correligionários alegaram que não há provas e opositores afirmaram que há provas abundantes. Você acha que a maior parte deles está realmente preocupada com qual é a verdade sobre os crimes julgados?"
+Segundo o criminalista Antonio Figueiredo Basto, advogado de delatores como o doleiro Alberto Youssef, o empresário Ricardo Pessoa, da UTC e o senador cassado Delcídio Amaral, o núcleo político do esquema descoberto na Petrobras é o único ainda não atingido efetivamente - hoje esse grupo está no foco das investigações.
+"A Lava Jato mostrou que o crime não compensa. Agora, se uma Lava Jato não conseguir fulminar o núcleo político, ela não vai atingir seu objetivo. Não existiria corrupção, se não houvesse a leniência dos políticos", afirmou o criminalista.

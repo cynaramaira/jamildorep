@@ -1,0 +1,15 @@
+---
+layout: post
+title: "MPF volta a pedir prisão preventiva de Geddel Vieira"
+date: 2017-07-13
+tags: felipe vieira,preventiva,prisão
+author: None
+---
+Agência Brasil - Um dia após a Justiça Federal em Brasília conceder prisão domiciliar ao ex-ministro Geddel Vieira Lima, o Ministério Público Federal (MPF) voltou a ingressar com um pedido de prisão preventiva do político baiano.
+Enviado à 10ª Vara Federal nesta quinta-feira (13), o pedido foi feito pela força tarefa da Operação Greenfield – que também é responsável pelas operações Sépsis e Cui Bono - e será analisado pelo juiz Vallisney de Souza Oliveira, o mesmo que, na semana passada, negou o pedido de revogação da prisão preventiva apresentado pela defesa do ex-ministro.
+Na petição, os promotores apresentam elementos que consideram que o desembargador Ney Bello, da Segunda Instância da Justiça Federal, não levou em conta ao conceder a prisão domiciliar a Geddel. Como, por exemplo, depoimento recente e inédito prestado pelo doleiro Lúcio Funaro, que acusa o ex-ministro da prática de exploração de prestígio ao tentar interferir no trabalho do Poder Judiciário.
+Ao transferir Geddel para o regime de prisão domiciliar, o desembargador Ney Bello condicionou sua decisão às exigências do ex-ministro não fazer contato, por qualquer meio de comunicação, com outros indiciados, denunciados ou investigados no processo a que ele responde. A proibição vale também para os parentes dos outros réus ou suspeitos. Além disso, Geddel deverá usar tornozeleira eletrônica, sendo monitorado remotamente.
+O ex-ministro está preso no Complexo Penitenciário da Papuda desde o último dia 3, acusado de tentar obstruir a investigação de supostas irregularidades na liberação de recursos da Caixa Econômica Federal (Caixa). A prisão preventiva foi pedida pelos integrantes da Força-Tarefa da Operação Greenfield, a partir de informações fornecidas em depoimentos do doleiro Lúcio Bolonha Funaro, do empresário Joesley Batista e do diretor jurídico do grupo J&amp;F, Francisco de Assis e Silva.
+Na primeira petição à Justiça, que levou à prisão de Geddel, os procuradores reproduziram mensagens eletrônicas que teriam sido enviadas pelo ex-ministr, por celular, à mulher de Funaro, Raquel Pitta Funaro, entre os meses de maio e junho, quando o doleiro já estava preso. Para os procuradores, as mensagens em que Geddel perguntava à esposa de Funaro sobre o estado de ânimo da família do doleiro e sobre o próprio Funaro seriam indícios de que o político estaria tentando obstruir a apuração dos crimes a ele imputados, procurando evitar que Funaro firmasse acordo de delação premiada com o Ministério Público Federal.
+Em janeiro deste ano, Geddel foi alvo de mandados de busca e apreensão expedidos no âmbito da Operação Cui Bono, que investiga o suposto esquema de corrupção na Caixa Econômica Federal entre os anos de 2011 e 2013 – período em que Geddel ocupou a vice-presidência de Pessoa Jurídica do banco.
+A Agência Brasil tentou contato com a defesa de Geddel, mas ainda não recebeu resposta às ligações.

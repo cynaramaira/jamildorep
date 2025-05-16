@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Projeto de lei na Alepe permite presença de público nos estádios"
+date: 2021-05-08
+tags: alepe,projeto
+author: None
+---
+Com os números da pandemia em alta, ainda não foi possível admitir a presença dos torcedores nos locais, o que não significa que alternativas não estejam sendo estudadas. Na Alepe, um projeto de lei que permite e estabelece os procedimentos individuais e coletivos para a retomada do público nos jogos foi apresentado. O autor da proposta é o deputado Romero Albuquerque (PP).
+Albuquerque deu entrada na proposta e vai solicitar que o texto tramite em regime de urgência. A proposição adota um protocolo, com base em medidas tomadas por outros países e cidades brasileiras, como o Rio de Janeiro, estabelecendo medidas permanentes e variáveis, que devem ser proporcionais aos estágios de risco e às etapas do Plano de Convivência com a Covid-19.
+O PL estabelece três níveis que deverão ser observados para que os estádios abram ou não os portões para a torcida, sendo risco moderado e alto, os níveis mais permissivos, e risco muito alto, que restringe totalmente a presença dos amantes de futebol.
+No geral, os estádios e ginásios esportivos com capacidade de até 10 mil pessoas poderão receber até 1/5 do público que os estabelecimentos comportam, com distanciamento de 2,0 m entre as pessoas. Quando a capacidade for superior a 10 mil, o distanciamento aumenta 1,0 m e a limitação de público deve ser de 1/10 da capacidade.
+Ainda são previstas a disponibilização de dispositivos para lavar as mãos; de equipamentos de proteção individual para os funcionários que lidam diretamente com o público e para os que operam ações de limpeza e higienização; o tratamento adequado dos resíduos gerados, a fim de evitar contaminação ambiental; a divulgação, em pontos estratégicos, de materiais educativos e outros meios de informação sobre as medidas protetivas; a venda de ingressos somente online ou por caixa de autoatendimento; e, a comprovação de resultado negativo para Covid-19, através de teste realizado até 72 horas antes do evento, entre outras exigências.
+A proposta permite que a Secretaria Estadual de Saúde recomende o fechamento dos estádios em caso de agravamento e verificação de novos surtos do vírus.
+“A relação entre a prática do futebol e os torcedores traz potenciais benefícios à saúde. A medida é um importante apoio à indústria esportiva e a emoção e a energia de estar presente geram engajamento com o esporte, que é instrumento social de inclusão. Não há o que se questionar sobre a necessidade de precaução, de cuidados, e a proposta reafirma isso. Se cuidem, se protejam, obedeçam às regras, ou o espetáculo continuará sem plateia”, diz.
+No Art. 4º, a proposta enfatiza que todas as medidas têm caráter obrigatório, cuja inobservância ensejará a aplicação de sanções e que indivíduos flagrados desobedecendo as medidas chamadas permanentes, que tratam de distanciamento e uso correto da máscara nos ambientes de uso coletivo ou compartilhado, poderão ser individualmente responsabilizados.
+De acordo com a proposição, a cada semana epidemiológica, a Secretaria Estadual de Saúde poderá observar, revisar e divulgar os níveis de alerta e risco para a manutenção da regra.
+ 

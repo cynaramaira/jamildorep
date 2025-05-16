@@ -1,0 +1,20 @@
+---
+layout: post
+title: "ATAQUES TERRORISTAS ao sistema elétrico: Governo reúne força-tarefa para prevenir e punir tentativas"
+date: 2023-01-17
+tags: jamildo, energia, terrorismo
+author: Jamildo Melo
+---
+O ministro Alexandre Silveira reuniu-se, nesta ter&ccedil;a-feira (17/01), no Minist&eacute;rio de Minas e Energia (MME), com representantes do setor el&eacute;trico e da Pol&iacute;cia Federal e Pol&iacute;cia Rodovi&aacute;ria Federal, para determinar medidas para prevenir novos casos e punir os respons&aacute;veis pelos ataques ao Sistema Interligado Nacional (SIN).
+Tamb&eacute;m estavam presentes membros da Associa&ccedil;&atilde;o Brasileira das Empresas de Transmiss&atilde;o de Energia El&eacute;trica (Abrate), da Ag&ecirc;ncia Nacional de Energia El&eacute;trica (Aneel) e do Operador Nacional do Sistema El&eacute;trico (ONS).
+Entre as a&ccedil;&otilde;es definidas est&atilde;o inspe&ccedil;&otilde;es especiais nas linhas, principalmente nas travessias de rodovias e de ferrovias, instala&ccedil;&atilde;o de c&acirc;meras de monitoramento e fortalecimento de parcerias com o Minist&eacute;rio da Justi&ccedil;a e as Pol&iacute;cias Militares, Rodovi&aacute;rias Estadual e Federal para refor&ccedil;ar o patrulhamento nessas localidades.
+&ldquo;A reuni&atilde;o serviu para discutirmos quest&otilde;es fundamentais para moderniza&ccedil;&atilde;o da seguran&ccedil;a do Sistema Interligado Nacional (SIN). H&aacute; uma vontade muito grande de todos os players do sistema, com implanta&ccedil;&atilde;o de videomonitoramento, de vigil&acirc;ncia via drone e outros instrumentos muito mordermos que temos no mundo hoje. Esse evento est&aacute; servindo de oportunidade para que a gente avance na seguran&ccedil;a desse grande patrim&ocirc;nio de todos os brasileiros e brasileiras&rdquo;, destacou o ministro.
+Alexandre Silveira informou ainda que a Pol&iacute;cia Federal est&aacute; com inqu&eacute;ritos em andamento e todas as medidas necess&aacute;rias ao monitoramento do sistema est&atilde;o sendo tomadas pelo MME, pela Aneel, pelos &oacute;rg&atilde;os de intelig&ecirc;ncia (GSI, PF, PRF e Minist&eacute;rio da Justi&ccedil;a).
+&ldquo;Todo esse trabalho est&aacute; sendo desenvolvido para que a gente possa virar a p&aacute;gina desses ataques, que n&atilde;o se justificam, e poder continuar discutindo pautas importantes, como a moderniza&ccedil;&atilde;o do sistema el&eacute;trico, a transi&ccedil;&atilde;o energ&eacute;tica, modicidade tarif&aacute;rias, quest&otilde;es t&atilde;o fundamentais e de prioridade para o pa&iacute;s e para o presidente Lula&rdquo;, afirmou
+O ministro garantiu que, apesar dos eventos, o abastecimento &agrave; popula&ccedil;&atilde;o em nenhum momento foi prejudicado.
+O presidente da Abrate, Mario Dias Miranda, destacou a import&acirc;ncia do MME neste momento de aten&ccedil;&atilde;o ao sistema el&eacute;trico do pa&iacute;s.
+&ldquo;O Minist&eacute;rio tem articulado e demonstrado o trabalho em seus atos. Queremos trabalhar junto e sermos parte da solu&ccedil;&atilde;o. Estes fatos que vem acontecendo s&atilde;o sens&iacute;veis e agridem &agrave; toda a infraestrutura do setor el&eacute;trico, que &eacute; um bem essencial para a sociedade brasileira. Uma intelig&ecirc;ncia que atue preventivamente &eacute; fundamental para todos n&oacute;s&rdquo;, afirmou.
+Monitoramento
+Desde 8 de janeiro, o MME vem realizando a&ccedil;&otilde;es para combater e monitorar o ataque &agrave;s estruturas do SIN. Entre elas, est&aacute; o encaminhamento de of&iacute;cios para as transmissoras, Abrate e governos de S&atilde;o Paulo, de Rond&ocirc;nia e do Paran&aacute; para ado&ccedil;&atilde;o de medidas preventivas de inspe&ccedil;&atilde;o, de refor&ccedil;o na seguran&ccedil;a das instala&ccedil;&otilde;es e de investiga&ccedil;&atilde;o dos casos.
+O minist&eacute;rio tamb&eacute;m agiu para que fossem adotados os planos de conting&ecirc;ncia para restabelecimento c&eacute;lere dos equipamentos. Todos os eventos ocorridos foram devidamente informados pela Aneel ao MME e &agrave;s autoridades de seguran&ccedil;a p&uacute;blica.
+&nbsp;

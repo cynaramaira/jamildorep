@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Governadores do Nordeste defendem anulação de processos após conversas de Moro"
+date: 2019-06-30
+tags: apostas,GOVERNADORES,moro,nordeste,Processos
+author: None
+---
+Os governadores do Nordeste divulgaram neste domingo (30) uma carta criticando as trocas de mensagens entre procuradores da força-tarefa da Lava Jato e o então juiz Sérgio Moro, hoje ministro da Justiça e Segurança Pública. No texto, os gestores reivindicam a investigação do caso. "É preciso também avaliar o afastamento dos envolvidos. Defendemos, ainda, a revisão ou anulação de todo e qualquer julgamento realizado fora da legalidade", afirmam.
+Os governadores também pedem a conclusão da votação do projeto de lei sobre abuso de autoridade. O Senado Federal aprovou a proposta na última quarta-feira (26) e ela volta para a Câmara dos Deputados. O texto foi apresentado pelo Ministério Público Federal (MPF) há três anos, mas passou por alterações e agora prevê, por exemplo, a criminalização a conduta de magistrados que de atuar com motivação político-partidária.
+"As conversas anormais configuram um flagrante desrespeito às leis, como se os fins justificassem os meios", diz a carta dos governadores do Nordeste. "Não se trata de pequenos erros; são vidas de seres humanos e suas histórias que se revelam alteradas em julgamentos fora das regras constitucionais, legais e éticas. Todos sabem que um juiz deve ser imparcial e por isso não pode se juntar com uma das partes para prejudicar a outra parte. Acreditamos que a defesa da real imparcialidade dos juízes é um tema de alto interesse inclusive para eles próprios".
+Apesar da crítica à condução da Lava Jato, os governadores afirmam que têm confiança na "imensa maioria" dos magistrados e membros do Ministério Público. "Apoiamos firmemente o combate à corrupção, porém consideramos que também é uma forma de corrupção conduzir processos jurídicos desrespeitando deliberadamente a lei", diz o texto.
+A carta cita conversas divulgadas que apontam que o chefe da força-tarefa da Lava Jato, Deltan Dallagnol, teria defendido a necessidade de acelerar ações contra o senador Jaques Wagner (PT-BA), em 2018, quando ele foi eleito. "Acho que se tivermos coisa pra denúncia, vale outra BA até, por questão simbólica", afirma o procurador em mensagem a colegas obtida pelo site The Intercept e divulgada pela jornalista Mônica Bérgamo, na Folha de S. Paulo.
+"Ou seja, ao lixo o direito", afirmam os governadores do Nordeste. "É inadmissível uma atuação que se denuncia ilegal entre membros do Ministério Público e do Judiciário, combinando previamente passos de uma importante investigação, com o intuito de perseguir e prender pessoas".

@@ -1,0 +1,16 @@
+---
+layout: post
+title: "João Campos confirma vacinação de todas as pessoas com 59 anos, trabalhadores da educação e do transporte público"
+date: 2021-05-27
+tags: Educação,João Campos,Planos,quatro pessoas,trabalhadores,transporte,vacinação
+author: None
+---
+Paulo Câmara autoriza vacinação de professores, motoristas de ônibus, demais integrantes dos grupos prioritários, além de pessoas com 59 anos
+A Prefeitura do Recife vai começar a vacinar, a partir desta sexta-feira (28), todos os trabalhadores da educação básica, do nível técnico e do nível superior, os trabalhadores rodoviários, metroviários, aeroviários e portuários, além da população em geral com 59 anos.
+O agendamento começou nesta quinta (27), a partir das 20h, através do Conecta Recife.
+O anúncio foi feito pelo prefeito João Campos após o Governo do Estado pactuar o avanço da imunização nos municípios de Pernambuco.
+“A partir das 20h de hoje, estará disponível no Conecta Recife o agendamento para as pessoas com 59 anos de idade; todos os trabalhadores e trabalhadoras da educação da nossa cidade, seja da educação básica, do ensino técnico ou do ensino superior; assim como os aeroviários, os metroviários, os rodoviários e os trabalhadores portuários. Todos que pertencem a estes últimos grupos devem entrar em contato com as instituições que atuam para pegar o formato correto dos documentos para anexar no Conecta Recife. A Prefeitura está entrando em contato com estas instituições para passar o modelo a cada uma delas”, orientou João Campos.
+O prefeito salientou que a imunização inicia nesta sexta-feira (28) para os novos grupos. “O agendamento começa hoje às 20h, e a vacinação já começa a partir de amanhã. Também estamos estruturando os demais grupos do PNO (Plano Nacional de Operacionalização) para amanhã fazer um novo anúncio, com novas aberturas. O Recife não vai medir esforços para garantir que todos e todas possam se vacinar com segurança e com velocidade”, garantiu o gestor.
+Conforme anunciado, estarão aptas ao agendamento as pessoas a partir de 59 anos residentes no Recife; também os trabalhadores e trabalhadoras de unidades da Educação do Ensino Básico (creche, pré-escolas, ensino fundamental, ensino médio, profissionalizantes e EJA), Técnico e Superior da capital pernambucana; além de trabalhadores dos transportes coletivos rodoviário de passageiros, metroviário, ferroviário e aquaviário residentes na cidade.
+“Ampliar a vacinação para todos os grupos prioritários é um avanço importante para que haja diminuição na circulação do novo coronavírus. A imunização da população é o principal caminho para que possamos vencer a pandemia, mas é fundamental que, mesmo aquelas pessoas já imunizadas, continuem respeitando as medidas de proteção, como o uso de máscaras, higiene das mãos e distanciamento social”, ressalta a secretária de Saúde do Recife, Luciana Albuquerque.
+O cadastro e o agendamento devem ser feitos através do site www.conectarecife.recife.pe.gov.br ou do app Conecta Recife, selecionando o grupo ao qual pertence. O app está disponível gratuitamente na PlayStore, para Android, e AppStore, para quem utiliza o sistema iOS. A lista dos documentos específicos que devem ser apresentados por cada grupo prioritário estará disponível na mesma plataforma.

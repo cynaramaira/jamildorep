@@ -1,0 +1,30 @@
+---
+layout: post
+title: "Eduardo e Marina assumem princípios para campanha e prometem não atacar adversários"
+date: 2014-04-14
+tags: campanha,eduardo,Marina Lima,Naomi Campbell
+author: None
+---
+Princípios da campanha eleitoral de Eduardo-Marina para a Presidência
+Em 5 de outubro de 2013, o Partido Socialista Brasileiro e a Rede Sustentabilidade decidiram unir forças numa Aliança Programática para promover um diálogo com a sociedade brasileira sobre a necessidade e a urgência de uma agenda estratégica para o país, baseada em três compromissos:
+• Ampliar a participação da sociedade no debate e nas decisões do Estado brasileiro, assegurando a transparência na gestão pública e o controle social mais ativo e eficiente;
+• Assegurar o avanço nas conquistas econômicas e sociais obtidas nos últimos 20 anos pela sociedade brasileira;
+• Criar as bases para um ciclo de desenvolvimento sustentável do país, com aproveitamento eficiente de seu potencial criativo e econômico e a preservação de seu inestimável patrimônio ambiental;
+O debate iniciado no ano passado contou com a colaboração de milhares de pessoas que, por meio de uma plataforma na internet, expuseram suas ideias na elaboração dos cinco eixos que compõem as Diretrizes Programáticas da Aliança (Estado e Democracia de Alta Intensidade; Economia para o Desenvolvimento Sustentável; Educação, Cultura e Inovação; Políticas Sociais e Qualidade de Vida; Novo Urbanismo e Pacto pela Vida).
+A mobilização de militantes e simpatizantes da Aliança amplificou o debate em todos os Estados e regiões do país. Já foram realizados Seminários Regionais sobre as Diretrizes Programáticas em três Regiões, com encontros em Porto Alegre (Sul), Rio de Janeiro (Sudeste) e Salvador (Nordeste), com cerca de 1.500 participantes em cada um. Nos próximos dias, o Norte e o Centro-Oeste reunirão suas colaborações nos Seminários de Manaus e Brasília.
+Nesse período, integraram-se à Aliança dois novos partidos, PPS e PPL, contribuindo para os debates e ampliando um realinhamento político capaz de levar ideias, propostas e reivindicações dos diversos setores da sociedade _bem como o desejo de mudanças expresso pela população para as instituições políticas, especialmente parlamentos e governos_ para o processo eleitoral que se aproxima.
+O avanço no entendimento programático permite, neste momento, que os partidos integrantes da Aliança ofereçam ao país uma alternativa política que possa nas eleições deste ano romper com uma bipolaridade que predomina no cenário político e que se radicalizou a ponto de degradar o ambiente de diálogo criado com a reconquista da democracia, colocando em risco os avanços econômicos e sociais.
+Determinados a estabelecer um ambiente no qual o interesse público seja o único dominante na condução da República, as lideranças e os militantes dos partidos que compões a Aliança, delegaram aos líderes do PSB, Eduardo Campos, e da Rede, Marina Silva, a tarefa de representá-los nesse processo eleitoral, como pré-candidatos à Presidência da República.
+Eduardo Campos destacou-se em sua militância estudantil, popular e cidadã, e na sua experiência política como deputado estadual, deputado federal, secretário no governo Miguel Arraes, ministro de Ciência e Tecnologia e governador de Pernambuco por dois mandatos. Marina Silva ganhou projeção como militante socioambiental, vereadora, deputada estadual, senadora e ministra do Meio Ambiente. Ambos são depositários da confiança das forças sociais e políticas que se unem para proporcionar ao Brasil uma possibilidade de mudança e evolução.
+Para cumprir com sucesso essa missão, a campanha da chapa Eduardo Presidente e Marina Vice-Presidente, se confirmada pela convenção em junho, seguirá os seguintes princípios:
+• Intensificar e aprimorar o diálogo com os diversos setores da sociedade, em parceria com os partidos aliados, para a elaboração do programa de governo;
+• Motivar e mobilizar a população e todos os demais partidos na defesa do Brasil e da causa democrática, acima de divergências e da competição eleitoral.
+• Buscar um realinhamento das forças políticas que historicamente demonstraram compromisso com a democracia, a soberania nacional, a justiça social e a cidadania e a defesa do meio ambiente, em torno de uma agenda estratégica para o desenvolvimento sustentável do país;
+• Apoiar as iniciativas que estimulem o debate democrático sobre temas de interesse nacional de empenhar esforços para participar dessas iniciativas;
+• Rejeitar todas as práticas que possam provocar o desgaste dos demais candidatos à Presidência da República, como os ataques pessoais nas ruas, nos meios de comunicação ou na internet;
+• Aliar-se às iniciativas em defesa de uma campanha eleitoral limpa, que promova o necessário debate entre propostas e evite o embate estéril entre os concorrentes;
+• Dar transparência e visibilidade às ações e à prestação de contas, nos meios de comunicação da campanha e em novos instrumentos tecnológicos a serem criados para esse fim;
+• Buscar o envolvimento permanente e intenso da militância, dos simpatizantes, dos movimentos sociais e do variado ativismo socioambiental brasileiro para realizar uma campanha inovadora, interativa, participativa e colaborativa, que estimule os compromissos sociais com o programa de governo.
+Mais que objetivos eleitorais, esses compromissos expressam um compromisso do PSB, da Rede, do PPS, do PPL e outras agremiações políticas que se juntarem a essa Aliança com o aperfeiçoamento da democracia e com o propósito de construir uma nova cultura política, essencialmente pacífica e democrática.
+Só com a reafirmação permanente da democracia o Brasil será capaz de valorizar a contribuição de cada cidadão e cada cidadã na conquista de melhor qualidade de vida para as atuais e futuras gerações. A aliança que apresenta as candidaturas de Eduardo e Marina expressa o desejo intenso do povo brasileiro de superar as dificuldades e recuperar a esperança.
+Brasília, 14 de abril de 2014

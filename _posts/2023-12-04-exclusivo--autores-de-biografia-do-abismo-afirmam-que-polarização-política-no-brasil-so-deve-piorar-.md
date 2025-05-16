@@ -1,0 +1,32 @@
+---
+layout: post
+title: "Exclusivo: Autores de Biografia do Abismo afirmam que polarização política no Brasil so deve piorar "
+date: 2023-12-04
+tags: jamildo, polarização
+author: Jamildo Melo
+---
+Em Biografia do Abismo, o cientista pol&iacute;tico Felipe Nunes, CEO da Quaest, Pesquisa e Consultoria, e o renomado jornalista nacional Thomas Traumann juntaram for&ccedil;as para escrever um estupendo livro sobre os bastidores das elei&ccedil;&otilde;es, tendo como mote principal a divis&atilde;o entre lulistas e bolsonaristas, que desceu do palanque ap&oacute;s as elei&ccedil;&otilde;es mais acirradas de todos os tempos e chegou ao cotidiano dos brasileiros, quer eles gostem ou n&atilde;o. 
+Na obra, os autores explicam como as opini&otilde;es pol&iacute;ticas polarizadas dividem fam&iacute;lias, desafiam as empresas e comprometem o futuro do pa&iacute;s. O Blog de Jamildo conversou com os autores e em breve trar&aacute; ainda uma resenha mais aprofundada da publica&ccedil;&atilde;o, enquanto n&atilde;o surgem as flores do recesso.
+Blog de Jamildo - Estamos nos aproximando de um novo per&iacute;odo eleitoral, com as elei&ccedil;&otilde;es municipais. Quais as chances deste fen&ocirc;meno da polariza&ccedil;&atilde;o se repetir e com maior intensidade?
+Thomas Traumann - A polariza&ccedil;&atilde;o extrema que vivemos hoje vai prosseguir e, talvez, at&eacute; piorar nas elei&ccedil;&otilde;es presidenciais de 2026. Veremos uma pr&eacute;via disso nas elei&ccedil;&otilde;es municipais do ano que vem, mas com nuances. Em cidades onde o lulismo &eacute; mais forte, como no Recife, &eacute; poss&iacute;vel termos disputas entre dois candidatos do mesmo campo, assim como em lugares mais bolsonaristas, como Curitiba, vai ocorrer o oposto. 
+Blog de Jamildo - No livro, voc&ecirc;s falamque trocou-se o ato eleitoral por um chamado ato identit&aacute;rio.Aondeesta escolha pode nos levar como sociedade? H&aacute; risco de uma divis&atilde;o real entre os brasileiros e regi&otilde;es, como deixou entrever o mineiro Zema?
+Thomas Traumann - O livro &eacute; um alerta. A polariza&ccedil;&atilde;o extrema est&aacute; envenenando a sociedade, calcificando bolhas nas quais os grupos bolsonaristas e lulistas s&oacute; falam entre si. At&eacute; onde vai isso vai depender desse nosso alerta ser compreendido e combatido. O Brasil precisa se reconciliar consigo mesmo, mas os dois lados precisam trabalhar para isso. Blog de Jamildo - A cria&ccedil;&atilde;o de muitas destas bolhas &eacute; atribu&iacute;da mais das vezes &agrave;s plataformas digitais ou aplicativos de mensagem. As empresas de tecnologia deveriam estar ajudando mais a resolver os problemas criados por estas novas ferramentas? O que pode ser feito na pr&aacute;tica, pelos cidad&atilde;os ou governos?
+Felipe Nunes - O primeiro cap&iacute;tulo do nosso livro &eacute; sobre redes sociais justamente porque nunca o Brasil, os EUA, o Reino Unido, a &Iacute;ndia, as Filipinas, a Argentina, enfim o mundo todo chegaria nesse est&aacute;gio de polariza&ccedil;&atilde;o extrema sem a guerrilha digital.
+As plataformas, que hoje est&atilde;o entre as companhias mais valiosas do mundo, t&ecirc;m se eximido da responsabilidade desse fen&ocirc;meno.Blog de Jamildo - O STF virou alvo no per&iacute;odo de Bolsonaro e, agora no governo Lula, o Congresso tenta impor novos limites &agrave; Corte constitucional. Em que medida as recentes indica&ccedil;&otilde;es de Lula, primeiro com seu advogado e depois com o ministro da Justi&ccedil;a, podem ajudar a intoxicar o ambiente pol&iacute;tico e retroalimentar toda a polariza&ccedil;&atilde;o na pol&iacute;tica?
+
+			
+		
+			Fl&aacute;vio Dino foi o nome indicado por Lula para assumir vaga deixada por Rosa Weber no STF - Edilson Rodrigues/Ag&ecirc;ncia Senado 
+		
+	
+Felipe Nunes - &Eacute; ruim que o STF tenha se transformado em um protagonista pol&iacute;tico, mas isso foi necess&aacute;rio para assegurar que a vontade do eleitor fosse respeitada em 2022. Dito isso, o STF manteve uma postura, atrav&eacute;s de entrevistas e discursos, que amplia a polariza&ccedil;&atilde;o e permite que o bolsonarismo a considere parcial. Isso &eacute; ruim para o pa&iacute;s.
+As duas escolhas de ministros do STF do governo Lula reproduzem o esquema polarizante do governo Bolsonaro. Blog de Jamildo - No livro, voc&ecirc;s contam que a direita populista no mundo (Estados Unidos em especial, com Trump) tem apostado na guerra cultural, ou rea&ccedil;&atilde;o culturas, para vencer os pleitos, deixando de lado at&eacute; mesmo temas importantes como o debate econ&ocirc;mico. Considerando este dado da realidade, as elei&ccedil;&otilde;es de 2024 podem servir ao prop&oacute;sito desta radicaliza&ccedil;&atilde;o para a direita brasileira, independentemente de como a economia esteja funcionando em 2026?
+Felipe Nunes - Por serem municipais, as elei&ccedil;&otilde;es de 2024 t&ecirc;m componente fortemente locais. Mais do bolsonarismo e lulismo, a elei&ccedil;&atilde;o de Macei&oacute; deve girar em torno do desastre da Braskem, assim como a de S&atilde;o Paulo sobre a cracol&acirc;ndia e a do Rio sobre o avan&ccedil;o da mil&iacute;cia.
+Agora em 2026 n&atilde;o tenha d&uacute;vidas que o debate voltar&aacute; a ser sobre valores e identidades religiosas, g&ecirc;nero, ra&ccedil;a e divis&atilde;o regional.
+
+			
+		
+			Lula e Raquel Lyra na COP 28, em Dubai - Reprodu&ccedil;&atilde;o/Redes Sociais
+		
+	Blog de Jamildo - Aqui em Pernambuco, a governadora Raquel Lyra, eleita rompendo de forma in&eacute;dita a polariza&ccedil;&atilde;o nacional, sem assumir Lula ou Bolsonaro, est&aacute; sendo criticada por parte do eleitorado por "ter se aproximado de Lula", em busca de recursos federais para obras necess&aacute;rias ao Estado. O que voc&ecirc;s diriam aos eleitores de centro, que s&atilde;o obrigados a viver em um Brasil t&atilde;o dividido como este?
+Thomas Traumann - Alguns Estados conseguiram quebrar a polariza&ccedil;&atilde;o, como Pernambuco e Rio Grande do Sul, mas eles est&atilde;o no contexto nacional no qual o espa&ccedil;o para o meio-termo est&aacute; se reduzindo a cada ano. Essa tentativa de se equilibrar entre os dois polos pode at&eacute; funcionar em alguns Estados, mas quando esses governadores tentam uma proje&ccedil;&atilde;o nacional acabando tendo de escolher um lado ou outro.

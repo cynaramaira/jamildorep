@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Para advogados de Lula, Veja trabalha com versão de procuradores e não fala a verdade sobre depoimento de Léo Pinheiro"
+date: 2016-08-28
+tags: Advogados,cerveja,Cleo,depoimento,Diversão,Inaldete Pinheiro,Lula,Naomi Campbell,Pará,trabalhador
+author: None
+---
+Os advogados de Lula, Cristiano Zanin Martins e Roberto Teixeira, refutaram, mais uma vez, por meio de nota oficial, as informações divulgadas pela Veja, no final de semana, dando conta de detalhes de suposto depoimento de Léo Pinheiro, da OAS, contra Lula e sua mulher, Mariza. Para a equipe de defesa, diz tratar-se de ‘velha prática’ e que a revista trabalha com versão de procuradores e não verdade sobre o depoimento.
+Por meio de nota, os advogados informam que repudiam as supostas citações referentes a seu cliente atribuídas ao empresário Léo Pinheiro, publicadas pela revista Veja (“Explosão de Lula – edição nº 2.493).
+“Não se trata da verdade dos fatos, mas da mera versão que procuradores da República da Lava Jato — desesperados para incriminar Lula, mesmo sabendo de sua inocência — gostariam de impor para a concessão de delação premiada a pessoas submetidas a situação de ilegal submissão ou em situação processual desfavorável, caso de Léo Pinheiro”.
+“A reportagem publicada por Veja não tem base na verdade dos fatos, mas, sim, na narrativa que procuradores da República querem impor a Leo Pinheiro, à exemplo de outras pessoas que foram colocadas em situação de ilegal submissão e foram forçadas a fazer delação premiada. Lula não cometeu nenhum crime. A devassa feita na vida do ex-Presidente e de seus familiares mostrou que, após 40 anos de vida pública, ele é honesto e comprometido com os valores que defende, incluindo o combate à corrupção. Os imóveis que pertencem a Lula estão declarados em seu Imposto de Renda e não incluem um sítio em Atibaia e um apartamento no Guarujá. É condenável e injurídica a tentativa de agentes do Estado de tentar impor a pessoas que estão presas ou em situação processual desfavorável a realização de delações premiadas com a finalidade de atribuir a Lula bens que não lhe pertencem ou, ainda, a benefícios que ele jamais obteve”, afirmam, em suas conclusões.

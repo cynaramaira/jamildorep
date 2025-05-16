@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Afastado da liderança por causa de Temer, deputado vai sair do Podemos"
+date: 2017-08-04
+tags: BuenosAires,Causas,deputado,liderança indígena,Michel Temer
+author: None
+---
+Agência Brasil - O deputado federal Alexandre Baldy (GO), ex-líder do Podemos, anunciou nesta sexta-feira (4) que vai deixar a legenda após ter sido afastado da liderança pela presidente do partido, deputada federal Renata Abreu (SP). O afastamento do parlamentar se deu por ele ter votado a favor do parecer da Comissão de Constituição e Justiça da Câmara que recomendava que não fosse aceita a admissibilidade da denúncia apresentada pela Procuradoria-Geral da República (PGR) contra o presidente Michel Temer (PMDB).
+Em nota, o deputado informou que vai pedir sua desfiliação por discordar da forma que a direção da legenda impôs a orientação de voto aos deputados. “Pedirei a desfiliação do partido Podemos, o qual fui líder até a última quarta-feira (2). Meu pedido de desligamento acontece em razão do desencontro de ideias entre a bancada a qual liderava e a Executiva Nacional do partido”, diz trecho da nota.
+Alexandre Baldy informou que sua filiação ao então PTN, hoje Podemos, no ano passado se deu em razão da proposta de democracia direta na legenda. “Filiei-me ao então PTN, em 2016, justamente por causa da bandeira da Democracia Direta, causa a qual defenderei até meu último dia como político e como cidadão. Trabalho incansavelmente para que os brasileiros e goianos tenham melhor qualidade de vida, garantia de emprego e para o desenvolvimento econômico de todas as regiões”, disse Baldy, que ainda não definiu para qual legenda deverá se filiar. Para concorrer nas eleições de 2018, ele tem um ano para entrar em um novo partido.
+Dos 14 deputados do Podemos, nove contrariaram a Executiva Nacional do partido e votaram a favor do parecer da CCJ e cinco votaram contra. O parecer, contrário à admissibilidade da denúncia contra o presidente Temer foi aprovado na quarta-feira (2) por 263 votos contra 227.

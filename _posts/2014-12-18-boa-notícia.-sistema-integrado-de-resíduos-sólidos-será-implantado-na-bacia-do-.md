@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Boa notícia. Sistema integrado de resíduos sólidos será implantado na bacia do São Francisco"
+date: 2014-12-18
+tags: boa notícia,Papa Francisco,são,Serasa,sistema prisional
+author: None
+---
+Está em andamento a elaboração de projetos básico e executivo de engenharia e de estudos de licenciamento ambiental para a implantação de um sistema integrado de resíduos sólidos urbanos na bacia do rio São Francisco. Os projetos alcançam municípios de Alagoas, Sergipe e Pernambuco e os investimentos da Codevasf associados a seu desenvolvimento somam cerca de R$ 1,6 milhão.
+Em Alagoas serão beneficiados 13 municípios, com diferentes tipos de intervenção: Batalha, Carneiros, Dois Riachos, Jacaré dos Homens, Jaramataia, Major Isidoro, Olho d'Água das Flores, Olivença, Pão de Açúcar, Santana do Ipanema, São José da Tapera, Monteirópolis e Senador Rui Palmeira.
+Em Pernambuco serão 12 municípios: Tabira, Afogados da Ingazeira, São José do Egito, Carnaíba, Quixaba, Solidão, Ingazeira, Iguaraci, Brejinho, Itaperim, Tuparetama e Santa Terezinha.
+Em Sergipe serão 11: Aquidabã, Gararu, Neópolis, Nossa Senhora de Lourdes, Pirambu, Canhoba, Graccho Cardoso, Pacatuba, Propriá, Santana do São Francisco e Monte Alegre de Sergipe.
+No âmbito dos projetos serão analisados aspectos técnicos, ambientais, econômicos, sociais e financeiros do sistema integrado de resíduos sólidos urbanos. As alternativas propostas para o desenvolvimento do sistema deverão ser as de menor impacto ambiental, maior eficiência e menor custo econômico – tanto para implantação quanto para operação e manutenção.
+"Estes sistemas têm como premissa a eficiência em coleta, destinação e disposição dos resíduos sólidos urbanos dos municípios, de acordo com o que preconiza a Política Nacional de Resíduos Sólidos. Isso confere à população atendida benefícios como aqueles relacionados a qualidade de vida e a oportunidades na cadeia produtiva dos resíduos sólidos urbanos, por meio da atuação profissional em cooperativas de catadores”, explica o analista em desenvolvimento regional da Codevasf Igor Soriano.
+Os projetos também abrangem remediação e encerramento de áreas de lixão de municípios que comporão o sistema. A remediação e o encerramento de atividades em áreas degradadas por resíduos sólidos urbanos contemplam a minimização do risco de incêndio e da poluição do solo, das águas e da atmosfera oriunda da decomposição dos resíduos. Os projetos devem propor medidas de organização e encaminhamento de catadores para associações e cooperativas para que atuem em unidades de triagem que do futuro sistema.
+O sistema integrado de resíduos sólidos urbanos será composto por estruturas como aterro sanitário, aterro de resíduo de construção e demolição, unidade de compostagem, unidade de triagem, estação de transbordo, central de resíduos e ponto de entrega voluntária de resíduos.
+As unidades de triagem propostas para o sistema serão constituídas por edificações e instalações destinadas ao manejo de materiais provenientes da coleta seletiva de resíduos secos domiciliares ou assemelhados (papéis, plásticos, metais, entre outros), por parte de trabalhadores formalmente vinculados a instituições que atuem na área de reciclagem.

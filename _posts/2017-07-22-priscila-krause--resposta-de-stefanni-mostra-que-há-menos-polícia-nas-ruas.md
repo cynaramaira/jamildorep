@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Priscila Krause: Resposta de Stefanni mostra que há menos polícia nas ruas"
+date: 2017-07-22
+tags: fenômenos astronômicos,Mostra,Polícia,Priscila Cruz
+author: None
+---
+A deputada de oposição Priscila Krause (DEM) rebateu nesta sexta-feira (21) o secretário de Planejamento e Gestão, Márcio Stefanni. A parlamentar havia questionado o motivo da redução de 48% no pagamento de diárias a policiais militares, ao que o auxiliar do governador Paulo Câmara (PSB) afirmou que faltou adesão da tropa ao Programa de Jornada Extra de Segurança Pública, o PJES, não verba para a área. "Informação que ratifica o que todos os pernambucanos viram nesse período: menos polícia na rua", criticou a democrata.
+"Ao se deslocar da realidade, comparando o cenário devastador da violência recifense a Paris, ousando desconsiderar declaração da presidente do Supremo Tribunal Federal, ministra Cármem Lúcia, e repetindo os gestos de arrogância perante a bancada de oposição e, portanto, o Poder Legislativo, o secretário presta um desserviço ao povo pernambucano", disse ainda a deputada, em nota. "Desserviço que certamente, pelo papel que tem, atrapalha e muito qualquer esforço para recolocar nos trilhos o Pacto Pela Vida e toda a política pública de segurança que anseia a população."
+Stefanni ainda afirmou que o Priscila Krause "deveria ter o conhecimento" de que o programa não é obrigatório. "Acredito que, na ânsia de mostrar serviço, já que os resultados não vêm, o coordenador do Pacto Pela Vida esqueceu de ler minhas considerações e indagações. Suas declarações mais recentes, inclusive, apontam o descaminho", disse ainda, em nota. "Ao apresentar o levantamento elaborado pelo nosso gabinete, lembrei que no período em questão faltou adesão das tropas, por conta da inabilidade do comando político do atual governo perante elas, e questionei de que forma a nova lei aprovada por nós deputados - das gratificações - alteraria essa relação de despesas."

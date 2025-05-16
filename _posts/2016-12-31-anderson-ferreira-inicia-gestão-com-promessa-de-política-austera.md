@@ -1,0 +1,34 @@
+---
+layout: post
+title: "Anderson Ferreira inicia gestão com promessa de política austera"
+date: 2016-12-31
+tags: anderson ferreira,Política
+author: None
+---
+Seis anos depois de chegar à Câmara dos Deputados, Anderson Ferreira (PR) estreia agora no Executivo, com o desafio de gerir o segundo maior colégio eleitoral de Pernambuco, Jaboatão dos Guararapes, em meio à crise econômica. Apesar de ter sido eleito com o discurso de que sabe onde buscar recursos estaduais e federais para a cidade, o prefeito que toma posse no lugar de Elias Gomes (PSDB) neste domingo (1º) anunciou medidas de ajuste da máquina pública antes de chegar à administração, já antevendo as dificuldades que enfrentará pelo menos nos primeiros anos de mandato.
+Anderson Ferreira começou reduzindo secretarias. Foram afetadas tanto as do primeiro escalão, passando de oito para sete, quanto as executivas, que foram de 33 para 24. Ainda para tentar economizar, nenhum dos auxiliares, ou sequer o próprio gestor, terá carro oficial exclusivo. Decidiu também cortar os cargos comissionados, tão questionados nas campanhas de outras cidades, como o Recife - Jaboatão hoje tem 1.556 profissionais ocupando essas vagas, mas o novo prefeito determinou a diminuição desse número em 40%.
+LEIA TAMBÉM
+» Em Jaboatão, Anderson Ferreira anuncia redução de cargos e novo secretariado
+» Autor do Estatuto da Família, Anderson Ferreira vence em Jaboatão
+“Vivemos um momento em que cada centavo precisa ser economizado para garantir os recursos necessários para os investimentos e na área social”, justificou, ao anunciar as medidas. “Nossa meta é fazer mais com menos, cortando na própria carne”, garantiu.
+ Foto: Divulgação
+Para o cientista político Thales Castro, da Universidade Católica de Pernambuco (Unicap), as ações tomadas até agora indicam que a gestão deve ser austera e republicana, além de demonstrarem um “choque de gestão”. Os cortes, porém, não são mérito apenas de Anderson Ferreira. De acordo com Castro, essa deve ser a estratégia dos prefeitos no momento de crise econômica e queda das receitas. “Aumentar eficiência reduzindo material humano e verbas: essa é a grande sacada, otimizando a gestão, com escassez de orçamento. Quem for contrário está selando um suicídio político muito grande”, avalia.
+» Anderson Ferreira diz que ninguém terá carro oficial para uso exclusivo
+» Após brigas, Anderson Ferreira e Neco apertam as mãos e prometem paz
+Da mesma forma que a capital e que outras cidades, Jaboatão enfrenta queda no repasse do Fundo de Participação dos Municípios (FPM), que este ano foi de R$ 52,6 milhões, enquanto em 2015, R$ 64.8 milhões. A arrecadação, por outro lado, manteve uma estabilidade: o IPTU foi de R$ 52 milhões para R$ 50,4 milhões e o ISS de R$ 81,2 milhões R$ 85,4 milhões entre 2015 e 2016, respectivamente. A Lei Orçamentária Anual (LOA) aprovada pela Câmara Municipal prevê despesas de R$ 1 bilhão para a cidade em 2017.
+» Eleito em Jaboatão, Anderson Ferreira diz que vai buscar parcerias com ministros e defender a família
+» Assim como Anderson Ferreira, 17 deputados federais foram eleitos e deixarão a Câmara
+Durante a campanha, antes de anunciar o enxugamento da máquina, Anderson Ferreira afirmava que a sua estratégia para controlar os números da gestão seria se beneficiar das articulações possíveis após um mandato e meio em Brasília. "Não dá para usar somente a receita do município. Vamos buscar parcerias. Tenho muitos parceiros e sei onde buscar recursos", disse em entrevista à TV Jornal a poucos dias do segundo turno. “Vamos unir forças. Eu tenho vários ministros que são amigos, vou procurar os três senadores, cada deputado federal. As pessoas que querem o melhor pra Jaboatão”, afirmou ainda após o anúncio da vitória.
+» Anderson Ferreira leva Jarbas para último dia de campanha
+» Ministros não ajudam a eleger aliados nas principais cidades de Pernambuco
+» Apoio de Jungmann a Anderson Ferreira cria racha no PPS
+
+Anderson Ferreira teve no seu palanque o ministro da Educação, Mendonça Filho, que participou ativamente de caminhadas tanto quanto no Recife, onde o seu partido, o DEM, lançou o nome da deputada estadual Priscila Krause, derrotada ainda no primeiro turno. É aliado ainda do pernambucano à frente da pasta da Defesa, Raul Jungmann, e correligionário do nome responsável pelos Transportes no governo Michel Temer (PMDB), Maurício Quintella. No segundo turno, contou com Fernando Filho (Minas e Energia) e com o pai dele, o senador Fernando Bezerra Coelho (PSB).
+ Foto: Divulgação
+O prefeito também foi eleito com o apoio do senador Armando Monteiro Neto (PTB), em seu projeto de minar alianças do governador Paulo Câmara (PSB) para 2018 - embora o futuro gestor já tenha ido ao Palácio do Campo das Princesas conversar com o socialista sobre as demandas da cidade que vai assumir. Ainda há a ajuda do irmão André Ferreira (PSC) na Assembleia Legislativa de Pernambuco (Alepe). Na prática, porém, nenhum recurso foi anunciado ainda para Jaboatão, ao contrário do que está acontecendo em Petrolina, no Sertão.
+Promessas e religião
+A atividade parlamentar de Anderson Ferreira ficou conhecida nacionalmente após a polêmica em torno do Estatuto da Família, criticado pelos movimentos sociais e LGBT por conceituá-la como “o núcleo social formado a partir da união entre um homem e uma mulher, por meio de casamento ou união estável”. Evangélico, tem na ‘família’ a base para projetos que pretende levar para Jaboatão também: creches da família e famílias sem drogas.
+A religião aparece também no projeto ‘Parceria de Fé’. Através dele, pretende criar um “grupo de trabalho permanente para assessorar no registro e alvarás de igrejas e templos, na adequação às formalidades de repasse de recursos de projetos sociais, como combate às drogas, entre outros, no fortalecimento do calendário e do turismo religioso, além de auxiliar com projetos para captação de recursos para restauro de monumentos históricos”, como diz o seu site de campanha.
+» Eleito em Jaboatão, Anderson Ferreira diz que sofre preconceito por ser evangélico
+» Anderson Ferreira ameniza acusações contra seu vice quando questionado sobre envolvimento na Caixa de Pandora
+Outras promessas que para sair do papel dependerão da verba captada por Anderson Ferreira nas articulações que promete fazer são a valorização da região de Jaboatão Centro; o Projeto Escola de Verdade, com recuperação das unidades e expansão daquelas que funcionam em tempo integral; e, na área de saúde, as ideias de marcação das consultas médicas por celular e a entrega de remédios na casa dos pacientes.

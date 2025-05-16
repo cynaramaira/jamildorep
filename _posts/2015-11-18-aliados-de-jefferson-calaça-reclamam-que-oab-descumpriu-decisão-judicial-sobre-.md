@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Aliados de Jefferson Calaça reclamam que OAB descumpriu decisão judicial sobre prestação de contas"
+date: 2015-11-18
+tags: bloqueio judicial,Contas Externas,Jefferson Sousa
+author: None
+---
+Veja a nota oficial
+A Ordem dos Advogados de Pernambuco (OAB-PE) não prestou contas do dinheiro que foi gasto pela entidade durante todo ano de 2015 com publicidade. A Justiça Federal determinou que a entidade divulgasse todos os gastos, em especial veículos de comunicação, agência e publicidade, assessoria de imprensa e material gráfico para confecção de panfletos e revistas.
+A Justiça deu prazo até às 23h59 de ontem (17/11), processo n.0807791-15.2015.4.05.8300, para que a Ordem fornecesse as informações e os documentos que dessem respaldo, entre eles cópias dos contratos, das notas fiscais e de todos os gastos com criação, confecção e publicação. O cumprimento da ordem judicial exige total e absoluta transparência, o que era simples de fazer através do site da OAB-PE. Optou a entidade por apresentar parcialmente alguns documentos e notas, fazendo, no entanto, nos autos processuais. O que não atende ao princípio da publicidade porque ficou restrito às partes do processo.
+O candidato à presidência da OAB-PE, Jefferson Calaça, destaca que após nove anos, a direção da OAB não utiliza em seu site o Portal da Transparência e insiste em não tornar público os gastos com as anuidades arrecadadas de cada advogado. "Nos dias de hoje, a OAB-PE sonegar informações sobre gastos, é incompreensível. No site da Ordem, as informações sobre o quanto a OAB arrecada e quanto gasta se resumem a um balancete com informações compiladas. Para obtermos os dados de gastos com nossa anuidade em publicidade, tivemos que recorrer ao judiciário, pois a OAB não faz o seu dever de casa. E mesmo assim a Ordem perdeu a oportunidade de dar a devida publicidade ao que realmente importa ", informou Calaça.
+Não é a primeira vez que Calaça obtém liminar contra a OAB-PE. No início deste mês, ele conseguiu uma liminar contra o IPESPE e impediu a divulgação de uma pesquisa que foi realizada ilegalmente, uma vez que não tinha registro no Conselho Eleitoral. Só quando os advogados foram abordados pelos pesquisadores, ficou claro que a pesquisava foi direcionada para denegrir a imagem de Calaça "Não vamos admitir pesquisa que ataca nossa imagem, nos associando a partidos políticos. Nosso partido é a advocacia", afirmou Calaça que é o candidato da oposição à atual gestão que está no comando da OAB há nove anos.

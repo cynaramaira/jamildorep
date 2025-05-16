@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Julho cheio de tensões"
+date: 2019-07-22
+tags: 
+author: None
+---
+Por Gaudência Torquato, em artigo enviado ao blog
+Há muita eletricidade no ar. Os curtos circuitos aumentam porque as redes de distribuição de energia falham por falta de manutenção. Julho tem sido um mês de sístoles.
+Convém explicar. Sístole e diástole são dois estágios do ciclo cardíaco nas pessoas. Por sístole, entende-se a fase de contração do coração, em que o sangue é bombeado para os vasos sanguíneos, já a diástole é a fase de relaxamento, fazendo com que o sangue entre no coração.
+O general Golbery do Couto e Silva, no ano de 1980, usou os dois conceitos para tratar do país sob a visão da política. Pregava que os militares, após o ciclo da contração, se retirariam da política de forma organizada e tutelando a transição democrática. Viria a diástole.
+Pois bem, o Brasil atravessa julho sob muita sístole, ao contrário do tempo de descontração, relaxamento, situação esperada para o sétimo mês do ano. As tensões envolvem os três Poderes, órgãos como Ministério Público, Receita Federal, Coaf, OAB, entre outros.
+Os campos de tensão começam entre o Executivo e a esfera política na reforma da Previdência. Têm como pano de fundo um “certo desprezo” do presidente a respeito do presidencialismo de coalizão, o que implica não aceitar o confessionário onde parlamentares contam agruras e indicam figurantes aos cargos da estrutura. (Bolsonaro nesse aspecto se parece com a ex-presidente Dilma). E mais, Bolsonaro despreza o esforço do presidente da Câmara, Rodrigo Maia, ao mobilizar os participantes a votar assuntos de interesse do Executivo. Maia acaba respondendo com veemência as estocadas, tomando a si a responsabilidade de criar uma agenda própria para o Legislativo. A equipe econômica reclama da desidratação do projeto pela Câmara, esquecendo que o próprio presidente da República trabalhou por essa desidratação ao defender privilégios para o pessoal da segurança pública.
+As expressões presidenciais funcionam como fios desencapados de curtos-circuitos. “Falar que se passa fome no Brasil é uma grande mentira”. Ou: “A economia vai às mil maravilhas”. Dados contrários desmentem o presidente.
+A indicação do filho Eduardo para chefiar a mais importante embaixada do Brasil no Exterior recebe questionamentos. Se passar no Senado, será por via da articulação da “velha política”, que ele execra.
+A pauta do Executivo é aceita pela base de simpatizantes do governo, mas cada vez mais recebe sinais contrários da sociedade, como a questão do porte e posse de armas. Alguns projetos do Executivo são considerados inconstitucionais.
+Na frente externa, países repelem a política ambientalista do governo. Países desenvolvidos reclamam do desmatamento, do pouco cuidado do país com questões ambientais. Alemanha e Noruega ameaçam parar de financiar um fundo em favor da preservação da Amazônia. Bolsonaro responde que nenhum país do mundo cuida tão bem de seu meio ambiente como o Brasil.
+Há tensão entre o STF e o Ministério Público por causa de decisão do ministro Dias Toffoli de condicionar todas as investigações à autorização judicial. Essas investigações partem de informações principalmente do Coaf e da Receita, que apuram movimentações suspeitas. Para o MP, pode ser um golpe de morte contra a Lava Jato.
+Há tensão entre o Executivo, o Legislativo e o MP por causa da Lava Jato. Políticos querem minar a operação, o MP defende sua plena continuidade e o Executivo tenta manter acesa a chama com apoio ao ministro Sérgio Moro.
+Na frente da reforma tributária, as tensões começam a aparecer em torno dos projetos em pauta: um do ex-deputado Luiz Carlos Hauly, outro do relator e deputado Baleia Rossi, o terceiro de Marcos Cintra, chefe da Receita, defendido por Paulo Guedes e mais um patrocinado pelo movimento Brasil 200. A sociedade não quer ouvir falar na CPMF, mas dois projetos lembram a malfadada contribuição. Bolsonaro promete que ela não volta.
+Há tensão entre Executivo e conselhos federais profissionais. Como a Ordem dos Advogados do Brasil, Conselho de Medicina, de Arquitetura, dos Engenheiros, etc. Projeto do governo quer acabar com a obrigatoriedade de inscrição dos profissionais em conselhos de classe.
+Há conflito até na estratégia para animação da economia, como é o caso da liberação do FGTS para trabalhadores ativos e inativos. Não houve consulta nem à Caixa nem à construção civil, que faz uso dos recursos do Fundo para a moradia.
+E assim, sob sístoles, o corpo nacional vive seu mês de julho.
+Gaudêncio Torquato, jornalista, é professor titular da USP, consultor político e de comunicação Twitter@gaudtorquato

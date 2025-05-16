@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Cantar parabéns"
+date: 2014-08-18
+tags: Enio Cantarelli
+author: None
+---
+Foto: BlogImagem
+Por Gustavo Krause, especial para o Blog de Jamildo
+Hesitei em escrever algumas linhas sobre Eduardo Campos. Tudo foi dito e bem dito por todos que, próximos ou distantes com ele viveram, conviveram e testemunharam a tragédia. Confesso que o silêncio resultava da minha desimportância e, mais ainda, era a medida de um transtorno emocional em que o sentir toma conta da capacidade de pensar.
+Acordei. Mais um dia para fazer funcionar a implacável máquina do tempo e mover a roda da vida. Acordei, mas o pesadelo continuou e me veio o que é guardado neste arquivo, cada dia, mais pesado e longo, que é a memória, o tempo dos velhos.
+Quarenta e três anos me separam da morte do meu pai, eu com vinte e cinco anos e ele com cinquenta e quatro. A sensação de orfandade permanece; as lembranças do homem simples, alegre e espirituoso operam o milagre da ressurreição; ele vive, só que não posso abraçá-lo e sentir o calor do seu corpo.
+Não consigo me libertar da imaginação nostálgica e melancólica. Desde o primeiro momento do desastre, não me largou o pensamento a mãe se despedindo do filho, a dor mais profunda e a maior crueldade do destino; a mulher, Renata, em quem percebi, por dentro, a solidez granítica e, por fora, a leveza e a ternura da flor; os filhos que representam a projeção de uma vida que vence a morte quando se deixam pensamentos, palavras, obras e sonhos marcantes como exemplo pessoal e como patrimônio para ajudar na construção do futuro da nação brasileira.
+Não podiam ser diferentes em mim que sou um feixe de nervos, disfarçado por uma máscara de racionalidade, os efeitos do evento devastador. Afinal, colocado de lado divergências políticas e a distância geracional, muitas coisas nos aproximavam: a mais simples e indiscutível, como ele, somos humanos; somos pais de cinco filhos; tivemos pontos de contato na carreira política com a ressalva de que ele era, de longe, mais talentoso e competente; coração alvirrubro me permitam os discordantes; e por fim, fui testemunha ocular da posse de Eduardo na Secretaria da Fazenda (na época era Ministro e ele teve a gentileza de fazer o convite pessoalmente, no meu apartamento, para comparecer à cerimônia).
+No último contato que tive com o Governador Eduardo Campos foi por conta de um projeto do qual fui encarregado de fazer a exposição. Antes de iniciar perguntei: “Governador, quanto tempo o Senhor dispõe”; ele respondeu “Krause, se você continuar me chamando de Senhor e Governador e vou chamá-lo de Senhor e Governador, vai ser uma conversa chata e, quanto ao tempo, o que for necessário”. Deu uma significativa risada e fiz a exposição a um interlocutor atento e decisor ágil.
+A propósito outras gentilezas foram praticadas no campo do relacionamento pessoal. Registradas para sempre.
+Neste pesadelo, entretanto, a esperança venceu a tristeza. Duas mulheres de força arrebatadora mantêm acesa a plenitude existencial de uma passagem luminosa pela vida do filho e do marido: Ana, nome de origem hebraica que significa graciosa, cheia de graça; Renata, nome de origem latina que significa renascida. Não é a toa que o nascimento e o renascimento sejam obras da mulher. E hoje, nascida, é dia de cantar parabéns para a renascida pelo aniversário, Renata: um coral de vozes composto pelo Pai, pelos Filhos, pelo Espírito Santo.
+Gustavo Krause é ex-ministro da Fazenda, ex-governador de Pernambuco e ex-prefeito do Recife.

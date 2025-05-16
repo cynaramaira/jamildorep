@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Em Gravatá, Gestores governamentais administrativos reforçam intervenção estadual"
+date: 2016-01-27
+tags: Gravatá,transporte interestadual
+author: None
+---
+ Foto: Ednaldo Lourenço/Divulgação
+A intervenção estadual em Gravatá, no Agreste, recebeu o reforço de gestores governamentais administrativos (GGOVs) especialistas em administração pública em Pernambuco. Três profissionais integram a equipe do coronel Mário Cavalcanti, designada para reerguer a cidade após o afastamento do ex-prefeito, Bruno Martiniano, sendo um secretário municipal e dois secretários-executivos municipais.
+Titular da pasta de Administração, Ronaldo Acioly Filho vem fazendo um trabalho de estruturação da secretaria. “Estamos organizando todos os contratos temporários da prefeitura, reduzindo custos de pessoal e fazendo auditoria das folhas de pagamento”, explica o gestor. A próxima atividade será o recadastramento dos servidores, a partir do mês de fevereiro. “Vamos corrigir diversas incoerências dentro do sistema. Para isso, precisamos conhecer os servidores, sua lotação, situação funcional e se estão recebendo os benefícios de forma correta”, diz o GGOV.
+De acordo com o secretário de Administração, Gravatá está sendo reconstruída nos moldes da gestão estadual pernambucana, com a implementação de um modelo de gestão no qual são priorizadas metas por meio de práticas gerenciais que maximizam resultados, com foco no planejamento. “Há participação direta da população na construção da ação governamental, ladeada pelo monitoramento constante do desempenho do governo, o que permite agilidade na adoção de ações corretivas”, ressalta Acioly.
+LEIA TAMBÉM:
+&gt; Após intervenção de Paulo Câmara, Estado vai implantar um centro cultural de referência nacional em Gravatá
+&gt; Prefeitura de Gravatá rebate e diz que não entende o motivo pelo qual a gestão passada não entregou bancas escolares
+&gt; Ex-secretária de Educação de Gravatá diz que atual gestão sabia das bancas escolares encontradas
+&gt; Em Gravatá, Instituto Previdenciário inicia recadastramento de aposentados e pensionistas
+Um dos muitos problemas encontrados pela Intervenção em Gravatá se referiu aos contratos e licitações, vários contestados pelo Tribunal de Contas do Estado (TCE). O GGOV Alfredo Ottoni foi chamado para comandar a Secretaria Executiva de Administração, responsabilizando-se pela regularização desses procedimentos. “Para tal, estamos organizando uma comissão de licitação que vai atuar com total transparência e respeitando o que determina a legislação”, argumenta.
+Outro GGOV que está em Gravatá é Emerson Guimarães, secretário-executivo de Controladoria. Guimarães é o responsável por suprir as necessidades de informação dos gestores, conduzindo-os durante o processo de gestão, de forma a tomarem as melhores decisões possíveis. “Agora, estamos realizando um levantamento dos problemas encontrados pelo TCE no relatório que pediu a Intervenção no município. Encontramos Gravatá com problemas sérios em sua gestão, como recursos materiais insuficientes, um rombo enorme nas finanças, informações inconscientes em relação à contabilidade. São problemas de várias naturezas que prejudicam qualquer gestor”, aponta.
+A carreira de gestor governamental administrativo foi criada em 2008, durante a primeira gestão de Eduardo Campos. Todos os GGOVs são servidores públicos concursados; são os responsáveis pela profissionalização da gestão pública do Estado, desenvolvendo projetos e ações que visam a melhorar a qualidade do gasto de dinheiro público agregando eficiência, eficácia e efetividade.

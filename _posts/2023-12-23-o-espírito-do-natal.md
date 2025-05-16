@@ -1,0 +1,43 @@
+---
+layout: post
+title: "O espírito do Natal"
+date: 2023-12-23
+tags: jamildo, Natal
+author: Jamildo Melo
+---
+O Padre Davi de Melo, sacerdote cat&oacute;lico, p&aacute;roco da Matriz de S&atilde;o Jos&eacute;, no Recife, Mestre em Direito (UFPE), nos escreve algumas linhas sobre um conto que leu (na verdade um cl&aacute;ssico da literatura mundial) e nos oferece boas reflex&otilde;es sobre a vida, neste moment9o do ano. Vale a pena a leitura, para o ano inteiro ou a vida toda.
+O esp&iacute;rito do Natal
+No "Conto de Natal", do Charles Dickens, h&aacute; na figura contrastante do Mr. Scrooge uma verdadeira chamada ao esp&iacute;rito natalino. E por falar em esp&iacute;rito, o velho sovina vai receber a visita de alguns deles a fim de despertar-lhe a consci&ecirc;ncia, que parecia estar em sono profundo.
+At&eacute; ent&atilde;o, era um homem g&eacute;lido, amorfo, mesquinho, ego&iacute;sta, solit&aacute;rio, avarento e ap&aacute;tico. Os adjetivos negativos n&atilde;o faltam para qualificar a figura descrita com primor por Dickens.
+"O frio e a influ&ecirc;ncia tinham pouca influ&ecirc;ncia sobre Scrooge. Calor algum podia aquec&ecirc;-lo e nem o vento de inverno esfri&aacute;-lo. (...) A chuva, a neve e o granizo s&oacute; tinham uma vantagem sobre ele: ca&iacute;am com gra&ccedil;a. E Scrooge n&atilde;o tinha gra&ccedil;a alguma".
+O seu modo de ser, livremente querido, fazia com que essas qualidade negativas o isolassem cada vez mais do conv&iacute;vio social.
+"Nenhum mendigo lhe pedia um xelim, nenhuma crian&ccedil;a se aproximava para lhe perguntar as horas, nenhum homem ou mulher lhe solicitou, uma &uacute;nica vez, informa&ccedil;&atilde;o sobre qualquer coisa. At&eacute; os cachorros dos cegos pareciam conhec&ecirc;-lo e, quando ele se aproximava, arrastavam seus donos para dentro do primeiro port&atilde;o ou p&aacute;tio que aparecia, sacudindo o rabo como se dissessem: - Meu caro patr&atilde;o, &eacute; melhor n&atilde;o ter olhos do que ter olhos maus".
+A descri&ccedil;&atilde;o &eacute; cortante. Para que vivia ent&atilde;o o velho Scrooge? Para si. Fiava-se na sua pr&oacute;pria gan&acirc;ncia e amealhava - quanto mais melhor! - um patrim&ocirc;nio invej&aacute;vel. A despeito de tudo isso, era terrivelmente ranzinza. N&atilde;o bastasse, a felicidade dos outros o incomodava profundamente.
+"Que motivos voc&ecirc; tem para estar feliz, sendo pobre desse jeito?" - Perguntou Scrooge ao seu sobrinho. A resposta n&atilde;o poderia ter sido melhor: "Se for por isso, que motivo tem o senhor para estar t&atilde;o mau humorado, que raz&otilde;es para estar t&atilde;o ranzinza, sendo rico desse jeito?". O seu sobrinho, pobre e inculto, j&aacute; havia intu&iacute;do que a felicidade do homem n&atilde;o est&aacute; na abund&acirc;ncia de bens. Mas onde pode estar ent&atilde;o?
+Scrooge estava pouco interessado em descobrir. A sua vida, como a de muitas pessoas, era - pensava - como deveria ser. Sem grandes alegrias e comprometimento. Esse seria o seu transcurso natural at&eacute; a morte. Quanto &agrave; morte, melhor n&atilde;o pensar a respeito. Perde-se tempo pensando. &Eacute; preciso trabalhar, ganhar mais dinheiro, investir nos neg&oacute;cios. Por sorte, o esp&iacute;rito do seu antigo s&oacute;cio, Marley, aparece-lhe na imin&ecirc;ncia do Natal a fim de lhe ajudar.
+"-Neg&oacute;cio?! - gritou o fantasma, torcendo novamente as m&atilde;os. - A busca da fraternidade e do bem comum &eacute; que deveria ter sido o meu neg&oacute;cio. A caridade, a miseric&oacute;rdia, a toler&acirc;ncia, a paci&ecirc;ncia, a bondade, tudo isso era parte do meu neg&oacute;cio e eu n&atilde;o sabia. Meus assuntos financeiros eram apenas uma gota d'&aacute;gua no enorme oceano dos meus neg&oacute;cios".
+Tra&ccedil;a com amplid&atilde;o de miras um horizonte insuspeitado do que realmente importa. E que a vida financeira, embora importante, deve estar integrada a servi&ccedil;o dos verdadeiros "neg&oacute;cios" que n&atilde;o perecem.
+O fantasma Marley lamenta o tempo perdido. Seu depoimento &eacute; lancinante. Mas agora j&aacute; &eacute; tarde. N&atilde;o h&aacute; mais nada a fazer.
+"Por que caminhei entre as pessoas e n&atilde;o olhei para elas? Por que nunca ergui os olhos para ver a Estrela Sagrada que conduziu os magos &agrave; manjedoura humilde?"
+Todavia, conseguira uma chance para o antigo s&oacute;cio, a fim de que pudesse escapar desse terr&iacute;vel destino que, fatalmente, aguardava-lhe. Combinam ent&atilde;o que Scrooge seria visitado nas noites seguintes por tr&ecirc;s esp&iacute;ritos. Visitam-lhe, assim, os esp&iacute;ritos dos Natais passados, presente e futuros.
+As dimens&otilde;es tempo-espa&ccedil;o s&atilde;o relativizadas e o Mr.Scrooge acompanha cada um dos fantasmas num p&eacute;riplo que iria lhe provocar uma verdadeira metanoia. Revisitam a sua inf&acirc;ncia, primeiramente. L&aacute; ele se lembra de um "n&atilde;o sei o qu&ecirc;" de bom que ficou para tr&aacute;s. Na adolesc&ecirc;ncia e in&iacute;cio da vida adulta, reecontra-se com o projeto comum que poderia ter constru&iacute;do no matrim&ocirc;nio - n&atilde;o fosse sua &aacute;vida ambi&ccedil;&atilde;o ego&iacute;sta -, que desembocaria numa alegre fam&iacute;lia repleta de filhos. 
+At&eacute; as a&ccedil;&otilde;es mais recentes de sua vida s&atilde;o, agora, apresentadas sob perspectiva nunca dantes vista. Parecem ganhar uma s&eacute;ria gravidade. Por fim, contempla um velho que morre s&oacute; e desprezado. No cemit&eacute;rio, a sepultura denunciava: "Aqui jaz Eben&eacute;zer Scrooge".
+Essa viagem guiada o levara para dentro de si, propiciando uma reflex&atilde;o profunda, antes imposs&iacute;vel pela imers&atilde;o irracional e desenfreada no trabalho. Mas mais do que isso. N&atilde;o se trata de uma simples introspec&ccedil;&atilde;o ou encasmurramento. &Eacute; um movimento tamb&eacute;m centr&iacute;fugo: leva-o principalmente a pensar nos outros e nas consequ&ecirc;ncias transcendentes que suas (boas ou m&aacute;s) a&ccedil;&otilde;es podiam causar no seu entorno.
+O fato de ter antevisto o que lhe iria acontecer em raz&atilde;o do que fizera no passado, ajudou-lhe a perceber que o homem sempre est&aacute; se dirigindo a algum lugar.
+"-Os caminhos humanos fazem prever seus pr&oacute;prios destinos. E todos aqueles que continuam nesses caminhos, acabam por alcan&ccedil;&aacute;-los - disse Scrooge. - Mas se decidirem mudar de caminho, esse destino tamb&eacute;m mudar&aacute;".
+Scrooge cai em si. Acorda do sonho que pareceu mais real do que toda a sua vida at&eacute; ent&atilde;o. Como se agora soubesse a que veio. Teria que escrever um novo cap&iacute;tulo de sua hist&oacute;ria, com tintas claras e frescas.
+"Sinto-me leve como uma pluma, feliz como um anjo e alegre feito um menino. Estou euf&oacute;rico como um b&ecirc;bado. Um feliz Natal para todos! Um feliz Ano Novo para o mundo inteiro. Viva! Iiiiiipi-hurra!"
+Encontrou na vida comum as alegrias antes escondidas. As suas a&ccedil;&otilde;es, por menores que fossem, passaram a ter vibra&ccedil;&atilde;o de eternidade.
+"Entrou na Igreja, caminhou pelas ruas, afagou a cabe&ccedil;a das crian&ccedil;as, conversou com mendigos..., e tudo isso lhe trouxe muita alegria. Nunca tinha imaginado que uma simples caminhada pudesse lhe trazer tamanha felicidade".
+Parece que cada homem, quando passa a enxergar a vida sob a perspectiva do servi&ccedil;o ao pr&oacute;ximo, encontra ali uma alegria muito mais profunda e duradoura. O Menino que nasce em Bel&eacute;m vem justamente lembrar que vale a pena complicar a vida para fazer os outros felizes. Na verdade, &eacute; nessa din&acirc;mica que o homem encontra a pr&oacute;pria felicidade.
+"Nunca mais Scrooge encontrou os esp&iacute;ritos, mas desde aquele dia passou a viver sob o princ&iacute;pio da Generosidade total. E todos concordavam em dizer que ali estava um homem que sabia celebrar o Natal e manter seu esp&iacute;rito vivo o ano todo - se &eacute; que algum homem consegue isto."
+E termina Dickens com uma chamada ao leitor: "Que o mesmo se possa dizer de cada um de n&oacute;s".
+Apreens&otilde;es, dificuldades, incertezas, medos, d&uacute;vidas... tudo isso circundava a humanidade antes daquela Noite Feliz! Em pleno s&eacute;culo XXI ainda n&atilde;o entendemos que a verdadeira alegria n&atilde;o depende dos acontecimentos contingentes da hist&oacute;ria - sequer de uma pandemia global - mas sim em deixar-se envolver pelo fasc&iacute;nio dos acontecimentos da Gruta de Bel&eacute;m e render-se ante a ternura do Deus-Menino.
+Feliz Natal!
+
+			
+		
+			O padre Davi de Melo no momento de sua ordena&ccedil;&atilde;o, em Olinda - Fernando Machado
+		
+	
+&nbsp;

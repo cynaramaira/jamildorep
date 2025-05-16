@@ -1,0 +1,17 @@
+---
+layout: post
+title: "POLÍCIA PENAL: STF barra uso de contratação temporária no sistema penitenciário"
+date: 2023-04-26
+tags: jamildo, Justiça, sistema penitenciário
+author: Jamildo Melo
+---
+O site oficial do &oacute;rg&atilde;o informa que o Plen&aacute;rio do Supremo Tribunal Federal (STF) julgou inconstitucional lei maranhense que disp&otilde;e sobre a contrata&ccedil;&atilde;o, por tempo determinado, de pessoal no &acirc;mbito da administra&ccedil;&atilde;o penitenci&aacute;ria estadual. A decis&atilde;o foi tomada em sess&atilde;o virtual no julgamento da A&ccedil;&atilde;o Direta de Inconstitucionalidade (ADI) 7098.
+A Lei ordin&aacute;ria 10.678/2017 do Maranh&atilde;o permitia a contrata&ccedil;&atilde;o tempor&aacute;ria no sistema prisional do estado para atender necessidades excepcionais de interesse p&uacute;blico.
+De acordo com a Associa&ccedil;&atilde;o dos Policiais Penais do Brasil (Ageppen-Brasil), autora da a&ccedil;&atilde;o, a norma ofende os artigos 37 e 144 da Constitui&ccedil;&atilde;o Federal, que disp&otilde;em, respectivamente, sobre as formas de ingresso na administra&ccedil;&atilde;o p&uacute;blica e sobre os &oacute;rg&atilde;os e as compet&ecirc;ncias das pol&iacute;cias e dos agentes da seguran&ccedil;a p&uacute;blica.
+Em seu voto, seguido pela maioria do Tribunal, o relator, ministro Gilmar Mendes, apontou a jurisprud&ecirc;ncia do STF que determina que os casos excepcionais de contrata&ccedil;&atilde;o tempor&aacute;ria exigem certos requisitos, como previs&atilde;o em lei, prazo predeterminado e indispensabilidade da necessidade da contrata&ccedil;&atilde;o.
+Por outro lado, essa forma de contrata&ccedil;&atilde;o &eacute; vedada em servi&ccedil;os ordin&aacute;rios permanentes do estado.
+Segundo o ministro, a lei do Maranh&atilde;o ofende, especialmente, a reda&ccedil;&atilde;o atual do artigo 144 da Constitui&ccedil;&atilde;o, que prev&ecirc; expressamente que o quadro de servidores das pol&iacute;cias penais federais, estaduais e distrital deve ser composto exclusivamente por meio de concurso p&uacute;blico ou por meio da transforma&ccedil;&atilde;o de cargos isolados, dos cargos de carreira dos atuais agentes penitenci&aacute;rios e dos cargos p&uacute;blicos equivalentes.
+"A possibilidade de contrata&ccedil;&atilde;o tempor&aacute;ria para os cargos na administra&ccedil;&atilde;o penitenci&aacute;ria &eacute; vedada", afirmou.
+O relator votou pela proced&ecirc;ncia do pedido de inconstitucionalidade da norma e, por motivos de seguran&ccedil;a jur&iacute;dica, pela modula&ccedil;&atilde;o dos efeitos da decis&atilde;o, para que passe a vigorar a partir de dois anos, contados da publica&ccedil;&atilde;o da ata do julgamento.
+O ministro Lu&iacute;s Roberto Barroso foi vencido parcialmente. Ele considera v&aacute;lida a contrata&ccedil;&atilde;o por prazo determinado para as atividades em quest&atilde;o, desde que seja indispens&aacute;vel para suprir necessidade tempor&aacute;ria e interesse p&uacute;blico excepcional, e perdure somente pelo tempo necess&aacute;rio para realizar o concurso, limitado a dois anos.
+A decis&atilde;o foi tomada na sess&atilde;o virtual encerrada em 24/3.

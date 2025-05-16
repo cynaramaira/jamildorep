@@ -1,0 +1,13 @@
+---
+layout: post
+title: "PSB usa racha na oposição para ligar Armando a 'turma do Temer'"
+date: 2018-07-24
+tags: Armando Monteiro,Michel Temer,Oposição
+author: None
+---
+Poucas horas após a reconciliação, por nota, entre o senador Armando Monteiro Neto (PTB), pré-candidato ao governo na oposição Pernambuco Quer Mudar, e o deputado federal Bruno Araújo (PSDB), o PSB aproveitou o racha no grupo adversário. O partido do governador Paulo Câmara atribuiu ao grupo a pecha de "turma do Temer", buscando vincular o palanque do petebista ao presidente, que tem baixa popularidade principalmente no Nordeste.
+"A 'turma do Temer', liderada pelo senador Armando Monteiro, deveria olhar esse Governo Federal que eles defendem. Não nos causa surpresa esse conflito entre eles. Isso é resultado de quem constrói arranjos de partidos apenas para fins eleitorais. É um ajuntamento de siglas desconectado da realidade do povo", acusam os socialistas em nota.
+No último sábado (21), Bruno Araújo divulgou carta em que reclamava do veto do petebista ao seu nome para compor a chapa majoritária como candidato ao Senado. O tucano admitia no texto a possibilidade de sair também candidato ao governo, para dar palanque ao ex-governador de São Paulo Geraldo Alckmin, pré-candidato tucano à presidência.
+Aliado do ex-presidente Lula (PT) nas últimas eleições e após declarar voto no petista, Armando fez um gesto para Alckmin em nota nesta terça-feira (24). "O nosso palanque, tendo em vista o apoio majoritário que recebe dos partidos dessa frente, estará sempre aberto para que o candidato Geraldo Alckmin possa trazer aos pernambucanos as suas propostas, neste momento tão importante e desafiador para o nosso País", afirmou o senador.
+"A 'turma do Temer' em Pernambuco não tem condições de falar do Governo de Pernambuco e nem da Frente Popular. Ao contrário dos seus adversários, o governador Paulo Câmara não abre mão dos seus compromissos com o povo, com aqueles que mais precisam", disse o PSB, depois.
+O partido do governador aproveitou a presença de três ex-ministros no palanque: Mendonça Filho (DEM), da Educação, pré-candidato ao Senado; Bruno Araújo, que ocupou a pasta das Cidades; e Fernando Filho (DEM), que ficou à frente da área de Minas e Energia e deve disputar reeleição à Câmara dos Deputados. "Paulo obteve essas conquistas apesar da perseguição do Governo Federal e do trabalho contrário dos três ministros pernambucanos da "turma do Temer", afirmaram os socialistas.

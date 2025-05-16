@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Ninguém está fora do alcance da lei, diz Janot"
+date: 2017-06-27
+tags: esta
+author: None
+---
+Estadão Conteúdo - O procurador-geral da República, Rodrigo Janot, afirmou a seus pares do Ministério Público Federal, após denunciar o presidente da República, Michel Temer (PMDB), por corrupção passiva, que ninguém está acima da lei ou fora do seu alcance. A acusação formal tem base na delação dos acionistas e executivos do Grupo J&amp;F, que controla a JBS. O ex-assessor especial do presidente e ex-deputado federal Rodrigo Rocha Loures (PMDB-PR), apontado como o homem da mala preta, também foi denunciado por Janot.
+Na mensagem aos procuradores, Janot escreveu que as horas mais graves exigem as decisões mais difíceis.
+"Em razão das responsabilidades inerentes ao exercício do meu ofício, coube a mim oferecer hoje ao Supremo Tribunal Federal denúncia contra o presidente da República Michel Temer, pelo crime de corrupção passiva, praticado no exercício do mandato", afirmou o procurador-geral. "Num regime democrático, sob o pálio do Estado de Direito, ninguém está acima da lei ou fora do seu alcance, cuja transgressão requer o pleno funcionamento das instituições para buscar as devidas responsabilidades."
+Esta é a primeira vez na história da República brasileira que um presidente é acusado formalmente por crime de corrupção durante o exercício do mandato. Em 1992, Fernando Collor de Mello foi denunciado quando já estava afastado do cargo.
+Temer também poderá ser acusado pelo crime de obstrução à investigação de organização criminosa. O relatório da Polícia Federal foi encaminhado nesta segunda-feira, 26, ao Supremo, no qual também vê a mesma conduta criminosa do ex-ministro Geddel Vieira Lima (PMDB) e do empresário e delator Joesley Batista.
+O ministro Edson Fachin, relator da Operação Lava Jato no Supremo Tribunal Federal, deu mais cinco dias de prazo, a partir desta terça-feira, 27, para um eventual nova denúncia ser apresentada pelo procurador-geral.
+A expectativa é que Janot apresente uma nova acusação formal, fatiando a ofensiva contra Temer.
+Após a denúncia contra o presidente, Janot ressaltou o papel do Ministério Público que, segundo ele, "mesmo nos momentos mais difíceis e sob as piores ameaças, não deixa e não deixará de cumprir a sua missão constitucional".
+"Em 2013, não imaginávamos que três anos depois estaríamos diante da maior investigação sobre corrupção do planeta, uma apuração que catalisou paixões, mobilizou a sociedade civil e congregou dezenas de membros e servidores do Ministério Público e de outras instituições em torno de um propósito comum: a probidade, a transparência e a responsabilidade no trato da coisa pública", anotou. "Por outro lado, o caso Lava Jato, iniciado em Curitiba e Brasília e que agora se espalha dentro e fora do Brasil, também provocou incompreensões e reuniu poucas forças contrárias ao papel do Ministério Público no cumprimento de seu mandato constitucional de enfrentamento à corrupção. Posturas reacionárias somaram-se a visões patrimonialistas. Uma atmosfera ácida formou-se. Nossa jornada nunca foi fácil, mas o caminho do Ministério Público nunca o foi."

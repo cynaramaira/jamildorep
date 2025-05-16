@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Em reunião com Temer, Lóssio defente criação de núcleos técnicos no PMDB"
+date: 2014-11-05
+tags: Julio Lossio,Michel Temer,recriação,reunião
+author: None
+---
+ Lóssio participou de jantar do PMDB no Palácio do Jaburu. Foto: Romério Cunha/Divulgação
+Buscando uma solução para a divisão no próprio partido, o prefeito de Petrolina, Júlio Lóssio (PMDB), defendeu a criação de núcleos de eficiência na legenda, para analisar e discutir as questões técnicas das políticas públicas. Lóssio apresentou a ideia ao vice-presidente, Michel Temer (PMDB), chefe nacional da sigla, nessa terça-feira (4).
+Para Lóssio, isso poderia ser feito unindo os principais nomes especialistas em assuntos como saúde, educação e empreendedorismo em núcleos. Através desses espaços, os temas seriam estudados tecnicamente, através de evidências científicas já verificadas no mundo. Na área de transportes, por exemplo, o grupo específico se debruçaria sobre os resultados em relação aos modais em outros lugares. "Tem que ser menos ideológico e mais eficiente", afirma.
+O peemedebista até sugeriu alguns nomes: Raul Henry (PE), Gabriel Chalita (SP) e Osmar Terra (RS) para a educação; Eliseu Padilha (RS) para o transporte; e Josué Alencar (MG) para o empreendedorismo.
+O prefeito de Petrolina acredita que essa seria uma forma de consolidar uma posição do partido, tão dividido. O racha é mostrado, por exemplo, com a posição do presidente da Câmara, Henrique Eduardo Alves colocando em pauta votações contra o governo do correligionário Temer após a sua volta à Casa, derrotado nas eleições estaduais no Rio Grande do Norte, onde foi oposição ao PT e ficou insatisfeito com o líder petista Lula por pedir votos para o seu adversário. Lóssio considera a atitude do deputado federal um "chororô que dura 15 dias". "Sairíamos dessas discussões da raivinha e passaríamos a ter discussões programáticas, com tudo definido através de ciência", diz.
+Embora justifique essas divergências no partido sejam devido à sua origem, Lóssio se mostra preocupado em unificar as bandeiras que a sigla deve levantar, para se fortalecer ideologicamente. "A democracia não pode ser só a minha opinião (como político no partido). É um exercício que temos que fazer. Em relação a isso, o PT e o PSDB estão mais avançados", afirma, alegando que os petistas e tucanos são reconhecidos pelos eleitores em relação às ideias, enquando o voto no PMDB seria muito mais pessoal e no candidato.
+Questionado sobre as críticas recebidas pelo partido por ter ficado tanto do lado do governo tucano quanto do petista, Lóssio afirmou: "O PMDB tem sido fiel da estabilidade no País. Qualquer presidente atrai o PMDB para a sua base por ser maioria." O prefeito ainda diminuiu a confusão, afirmando que "o PMDB saiu muito fortalecido destas eleições". O partido elegeu este ano 66 parlamentares para a Câmara.

@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Dodge questiona vazamento e pede ao STF para manter ação contra Lula"
+date: 2019-06-21
+tags: ação,Contran,Lula,PEDESTRE,Vazamento
+author: None
+---
+Em manifestação ao Supremo Tribunal Federal (STF), a procuradora-geral da República, Raquel Dodge, defendeu nesta sexta-feira (21) que seja mantida a ação penal que condenou e levou à prisão o ex-presidente Lula (PT). Além disso, questionou a autenticidade das mensagens vazadas que levaram ao novo pedido da defesa do petista, que aponta suspeição do ministro Sérgio Moro (Justiça e Segurança Pública), que o condenou.
+"Há fundadas dúvidas jurídicas sobre os fatos nos quais se ampara a alegação de suspeição feita neste pedido de habeas corpus", afirma Dodge. "É que o material publicado pelo site The Intercept Brasil, a que se refere a petição feita pela defesa do paciente, ainda não foi apresentado às autoridades públicas para que sua integridade seja aferida. Diante disso, a sua autenticidade não foi analisada e muito menos confirmada. Tampouco foi devidamente aferido se as referidas mensagens foram corrompidas, adulteradas ou se procedem em sua inteireza, dos citados interlocutores", alega a procuradora.
+O pedido de anulação da condenação de Lula está na pauta da próxima terça-feira (25).
+Dodge afirmou ainda estar preocupada com a forma como as mensagens foram obtidas, o que não foi informado pelo The Intercept. Além disso, enfatiza que solicitou um inquérito policial para investigar se houve ação criminosa.
+"A par disto, nas últimas semanas, várias autoridades públicas, aí se incluindo Conselheiros do CNMP, Juízes e Procuradores da República, foram vítimas da ação criminosa de invasão de celular para acessar e usar sua identidade, enviar mensagem e acessar mensagens trocadas em relações de trabalho, por meio de aplicativo eletrônico. É possível que, com o furto e uso de identidade, tais mensagens tenham sido adulteradas ou de alguma forma manipuladas. Trata-se de grave e criminoso atentado contra o Estado e suas instituições, que está sob a devida apuração pelos órgãos competentes", disse Dodge na manifestação ao STF.
+Nas mensagens divulgadas pelo The Intercept, Moro conversa com procuradores da Operação Lava Jato, responsáveis pela acusação de Lula, sobre o caso triplex, que o levou à prisão. Lula está preso desde abril de 2018 em Curitiba (PR), condenado por corrupção e lavagem de dinheiro.
+Em uma das conversas, Moro estaria orientando os integrantes do Ministério Público Federal (MPF) a emitir uma nota oficial após um depoimento de Lula, em resposta ao que afirma ter sido um "showzinho da defesa". A senadores da Comissão de Constituição e Justiça (CCJ) do Senado, o ministro acusou o site The Intercept de "sensacionalismo" e disse não poder atestar a integridade das mensagens. Além disso, reafirmou que, se forem verdadeiras, não considera que tenha havido irregularidades.
+? 
+ Dodge questiona vazamento e pede ao STF para manter ação contra Lula  from Portal NE10

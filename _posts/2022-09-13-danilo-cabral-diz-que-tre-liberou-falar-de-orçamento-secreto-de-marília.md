@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Danilo Cabral diz que TRE liberou falar de orçamento secreto de Marília"
+date: 2022-09-13
+tags: jamildo, danilo cabral, Marília Arraes
+author: Jamildo Melo
+---
+A campanha do candidato da Frente Popular informou, nesta ter&ccedil;a-feira, que o desembargador eleitoral Roberto Machado negou um novo pedido de liminar feito pela candidata ao governo do estado pelo Solidariedade, Mar&iacute;lia Arraes, para barrar a divulga&ccedil;&atilde;o de propagandas do candidato a governador Danilo Cabral em r&aacute;dio e televis&atilde;o tratando do cadastramento de emendas feito por ela para o or&ccedil;amento secreto e do apoio dado ao bolsonarista Arthur Lira na elei&ccedil;&atilde;o da Mesa da C&acirc;mara.
+
+    
+            Marília Arraes anuncia notícia crime contra Danilo Cabral. Entenda
+        
+
+"A decis&atilde;o do desembargador Roberto Machado confirma as decis&otilde;es, tamb&eacute;m em liminar, de s&aacute;bado passado e desta segunda-feira, assinadas por outro desembargador eleitoral, Rog&eacute;rio Fialho, negando pedido de liminar com o mesmo teor. A coliga&ccedil;&atilde;o de Mar&iacute;lia tentava contestar judicialmente a decis&atilde;o de Fialho", diz.
+Segundo o PSB, no texto da decis&atilde;o desta ter&ccedil;a-feira, para justificar a negativa da liminar, o desembargador Roberto Machado alega que, em um &ldquo;exame perfunct&oacute;rio&rdquo; (de forma mais imediata), Mar&iacute;lia &ldquo;n&atilde;o logrou &ecirc;xito em demonstrar que a propaganda objeto da representa&ccedil;&atilde;o &ndash; e que nestes autos tamb&eacute;m se ataca &ndash; se revelou difamat&oacute;ria ou inver&iacute;dica&rdquo;.
+"A recusa do desembargador Roberto Machado &agrave; liminar de Mar&iacute;lia ampara-se em dois alicerces argumentativos: 1 - a candidata do Solidariedade n&atilde;o apresentou &ldquo;prova suficiente a afastar a afirma&ccedil;&atilde;o de que Mar&iacute;lia Valen&ccedil;a Rocha Arraes de Alencar Pontes tenha votado em Arthur Lira dentro do cen&aacute;rio j&aacute; retratado&rdquo;; Noutra forma, 2 - &ldquo;a inclus&atilde;o do nome da candidata dentre aqueles que, no exerc&iacute;cio de mandato de deputado, solicitaram verbas por meio de &lsquo;or&ccedil;amento secreto&rsquo; reflete informa&ccedil;&atilde;o que efetivamente circulou em ve&iacute;culo de jornal&iacute;stico de comunica&ccedil;&atilde;o, n&atilde;o se assemelhando a uma ocorr&ecirc;ncia fict&iacute;cia&rdquo;, informam.
+&ldquo;A avalia&ccedil;&atilde;o que fa&ccedil;o tecnicamente &eacute; que os desembargadores n&atilde;o viram at&eacute; ent&atilde;o raz&otilde;es que possam sugerir haver qualquer informa&ccedil;&atilde;o mentirosa nas propagandas de Danilo&rdquo;, explicou o advogado eleitoralista Andr&eacute; Coutinho, um dos coordenadores jur&iacute;dicos da campanha de Danilo.
+Nas inser&ccedil;&otilde;es de r&aacute;dio e televis&atilde;o, a campanha de Danilo Cabral tem exposto as duas situa&ccedil;&otilde;es e usa como refer&ecirc;ncia mat&eacute;rias jornal&iacute;sticas para esclarecer o eleitor.
+No caso do or&ccedil;amento secreto, um instrumento condenado por institui&ccedil;&otilde;es fiscalizadoras, as propagandas de Danilo mostram que Mar&iacute;lia cadastrou emendas no valor de R$ 3,6 milh&otilde;es para institui&ccedil;&otilde;es diferentes e tem como fonte principal mat&eacute;ria do Jornal O Valor Econ&ocirc;mico.
+"No caso da vota&ccedil;&atilde;o de Arthur Lira para a Presid&ecirc;ncia da C&acirc;mara dos Deputados, lembramos: Mar&iacute;lia &agrave; &eacute;poca lan&ccedil;ou candidatura pr&oacute;pria para cargo na Mesa Diretora, numa decis&atilde;o contr&aacute;ria &agrave; orienta&ccedil;&atilde;o dada pelo ent&atilde;o partido dela, o PT, e tendo ela o apoio de Arthur Lira. O deputado Arthur Lira, agropecuarista e empres&aacute;rio filiado ao PP, acabou eleito presidente da Casa com o apoio da bancada bolsonarista".

@@ -1,0 +1,9 @@
+---
+layout: post
+title: "Eduardo Campos não acredita em consenso no PMDB "
+date: 2006-11-17
+tags: eduardo campos,Naomi Campbell
+author: None
+---
+Da Folha Online
+O governador eleito de Pernambuco, ex-ministro Eduardo Campos (PSB), não acredita que haverá consenso entre as correntes que formam o PMDB sobre a participação da sigla no segundo mandato do presidente Luiz Inácio Lula da Silva.\"Não tem como um partido do tamanho do PMDB estabelecer um consenso absoluto sobre um governo de outro partido\", disse Campos. \"Nem o velho Ulysses [Guimarães (1916-1992)] conseguiu essa proeza\", afirmou. \"Agora, como o presidente é um homem de muita capacidade pol?tica e muita sorte, quem sabe ele faça o velho Ulysses, lá, ficar com ciúmes\", declarou.Para Campos, mesmo sem o apoio total do PMDB, o governo pode conquistar \"uma grande base\" dentro do partido. Ele lembra que, em vários Estados, Lula foi apoiado pela sigla.Busca por ministériosPresidente licenciado do PSB, o governador eleito negou informações de que os socialistas estariam articulando a troca do ministro da Ciência e Tecnologia, Sérgio Rezende, por um pol?tico ligado à sigla. \"É um del?rio completo isso a?\", afirmou. \"O PSB não apoiou o presidente Lula em troca de cargos.\"Ainda segundo ele, o governador de Mato Grosso, Blairo Maggi, reeleito pelo PPS, deve se filiar ao PSB. O assunto, afirmou, vem sendo discutido entre os dois desde antes das eleições.\"Blairo tem uma relação boa com o Ciro Gomes, e o PSB elegeu um deputado federal lá [em Mato Grosso], já no palanque dele\", afirmou. Segundo o ex-ministro, a filiação do governador só será acertada após o ajuste das novas equipes de governo em Pernambuco e Mato Grosso. 

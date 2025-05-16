@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Temer discute projeto de porto no Nordeste em troca de apoio no impeachment"
+date: 2016-08-24
+tags: impeachment,Michel Temer,nordeste,porto,projeto
+author: None
+---
+Estadão Conteúdo - Em semana decisiva para o processo de impeachment de Dilma Rousseff, o presidente em exercício, Michel Temer (PMDB), resolveu agir e garantir o voto dos três senadores da bancada do Maranhão. Em reunião no Palácio do Planalto, o peemedebista tratou de um projeto muito caro aos senadores maranhenses, a criação de uma zona de exportação no Porto do Itaqui, em São Luís.
+&gt;&gt; Governo Temer suspende leilão do terminal de passageiros do Porto do Recife
+"O projeto é a bandeira da bancada do Maranhão. É uma proposta nossa, que foi abraçada por todos na bancada", disse o senador Roberto Rocha (PSB-MA), autor do texto. Conterrâneo, o senador Edison Lobão (PMDB-MA), é o relator do projeto na Comissão de Constituição e Justiça.
+A conversa foi uma reação à investida de Dilma Rousseff, que também nessa semana teria negociado a reorganização de coligações do PT no Maranhão para as eleições municipais, à pedido dos senadores João Alberto Souza (PMDB-MA) e Roberto Rocha. Os senadores negam a movimentação.
+A proposta dos parlamentares estabelece a Zona de Exportação do Maranhão (Zema), que tem o objetivo de incentivar a produção de bens destinados à exportação e desenvolver a indústria local. O projeto englobaria toda a capital maranhense como área de livre comércio e com incentivos fiscais especiais, mas sem previsão de renúncia fiscal, aspecto que agrada o governo federal.
+É a segunda vez que Michel Temer recebe os senadores maranhenses para tratar do projeto, a primeira foi logo após assumir o governo. Segundo os parlamentares, o presidente em exercício demonstra muito entusiasmo pela proposta.
+Eles pretendem votar o projeto até o fim do ano na Comissão de Constituição e Justiça e acreditam que o apoio do governo pode "melhorar os ânimos" para levar a proposta para o plenário do Senado logo em seguida.
+Preocupado com o impeachment, Michel Temer observou particularidades políticas do Maranhão que favorecem a presidente afastada e, por isso, resolveu agir. Foi no Maranhão que Dilma Rousseff teve a maior votação proporcional para a presidência em 2014, onde alcançou quase 79% dos votos. Os três integrantes da bancada do Estado votaram a favor do prosseguimento do processo de impeachment da presidente, mas nenhum se comprometeu em manter o voto para o julgamento final.
+Edison Lobão foi ministro de Minas e Energia de Dilma e desde a primeira sessão afirmou que votava apenas pela abertura do processo. João Alberto Souza, por sua vez, votou contra a admissibilidade do impeachment e sempre se posicionou à favor de Dilma, mas mudou de lado na última votação por "questões políticas". Após deixar o Palácio do Planalto, disse que não tratou de impeachment. "Não trataria, porque não sei como vou votar", afirmou.
+Já Beto Rocha é mais próximo do PCdoB e do PT na política local, se opondo ao clã Sarney, que já demonstrou apoio a Michel Temer. O senador sempre esteve na lista dos aliados de Dilma como um dos mais cotados para votar contra o impeachment.
+"É uma questão muito particular para nós do Maranhão, em que a maioria esmagadora da população votou pela reeleição de Dilma. Temos de ter muito cuidado ao tratar sobre o impeachment com os nossos eleitores", disse Beto Rocha. O senador se diz decidido sobre o seu voto, apesar de não querer revelá-lo.

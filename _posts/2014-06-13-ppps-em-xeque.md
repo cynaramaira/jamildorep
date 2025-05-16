@@ -1,0 +1,22 @@
+---
+layout: post
+title: "PPPs em xeque"
+date: 2014-06-13
+tags: 
+author: None
+---
+
+Por Terezinha Nunes, deputada estadual pelo PSDB
+Criadas para corrigir gargalos na infraestrutura de estados e municípios brasileiros, as PPPs – Parcerias Público-Privadas – andam muito bem em estados como São Paulo e Minas Gerais, onde foram acionadas para alavancar a construção de estradas, portos, aeroportos e até para erguer e manter presídios, mas são, até agora, uma incógnita no estado de Pernambuco.
+Iniciadas na gestão do governador Eduardo Campos, das três principais PPPs ora em andamento, só uma não vem sendo publicamente questionada, embora ande a passos lentos, a chamada PPP da Compesa que se propõe a resolver o problema de saneamento básico da Região Metropolitana ao custo de R$ 4,5 bilhões, sendo R$ 3,5 bilhões bancados por um consórcio de empresas privadas e R$ 1 bilhão de recursos públicos.
+A PPP de Itaquitinga, destinada a abrigar mais de 3 mil presidiários com custo estimado de R$ 350 milhões só em sua construção – 30% garantidos pelo tesouro estadual – está paralisada há mais de um ano depois que a empresa vencedora da licitação abandonou a obra, deixou para trás dívidas enormes com fornecedores, e até hoje não se conseguiu resolver o imbróglio que reúne, de um lado a empresa privada, do outro o estado que diz já ter liberado tudo que era necessário para finalizar o presídio, e, correndo por fora, os fornecedores, alguns condenados à falência.
+A PPP mais famosa de todas é a da Arena da Copa, o estádio onde estão sendo realizados jogos da Copa do Mundo. Instalada no município de São Lourenço da Mata, a Arena responde ao padrão Fifa de qualidade em sua construção, mas carrega uma polêmica que não tem fim.
+Em primeiro lugar até hoje não se sabe o custo real de sua construção. Inicialmente estimado em R$ 532 milhões, ele teria passado dos R$ 630 milhões, e carrega agora duas dificuldades adicionais difíceis de resolver: a doação de um terreno público para que o consórcio privado construa apartamentos no seu entorno e o custo de manutenção do empreendimento que já teria aumentado 18 vezes em relação à previsão inicial para 2014, como mostrou esta semana o Jornal do Commércio.
+A doação do terreno causou frisson na Assembleia Legislativa e se encontra em banho-maria. Deputados oposicionistas alegaram em discussão na comissão de justiça que soava estranho doar terreno público para empresa privada a não ser mediante comodato. A resposta do governo foi que a doação estava prevista na criação da PPP e não poderia ser revertida.
+Mediante acordo, a comissão aprovou a legalidade do projeto mas a discussão continua agora na comissão de finanças que aguarda informações sobre o real custo do empreendimento para poder apreciar a matéria e mandá-la a plenário.
+Quanto à manutenção da Arena o problema é mais delicado. Na criação da PPP o governo se comprometeu a levar os 20 melhores jogos estaduais para o estádio o que daria um rendimento anual ao consórcio vencedor de R$ 73,2 milhões, a preços de hoje, restando apenas para serem complementados pelo estado R$ 5 milhões anuais. A promessa não foi cumprida pela resistência dos clubes pernambucanos e o estado então aumentou para R$ 36,6 milhões seu aporte anual. Posteriormente um novo reajuste elevou o desembolso para R$ 57,6 milhões. Agora a previsão é que desembolse só em 2014 para manter a Arena R$ 90 milhões anuais.
+Muito além do que custa todo o campeonato pernambucano.
+CURTAS
+Exército – Em função das críticas à condução da campanha de Paulo Câmara a governador, comenta-se na Assembleia que, ao se mudar para São Paulo, o ex-governador Eduardo Campos virou na capital paulista “um general sem exército e deixou em Pernambuco um exército sem general”.
+Incerteza – Deputados governistas e oposicionistas andam confusos em relação ao resultado da eleição deste ano. Há dois meses dava-se como certa a vitória da chapa governista. Agora, embora Paulo Câmara ainda seja colocado como favorito, aposta-se que o resultado vai ser apertado.
+Lula - A vinda de Lula a Pernambuco este final de semana vai servir para balizar o que ele pode influir nas intenções de voto do seu candidato a governador, Armando Monteiro. Em eleições passadas a simples presença do então presidente no estado mudava totalmente as pesquisas. Agora que o PSB rompeu com os petistas o efeito pode não ser o mesmo.

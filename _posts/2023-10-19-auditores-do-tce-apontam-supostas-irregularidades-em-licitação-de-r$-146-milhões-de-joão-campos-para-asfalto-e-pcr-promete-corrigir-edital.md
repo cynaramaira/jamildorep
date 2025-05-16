@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Auditores do TCE apontam supostas irregularidades em licitação de R$ 146 milhões de João Campos para asfalto e PCR promete corrigir edital"
+date: 2023-10-19
+tags: jamildo, TCE-PE, João Campos
+author: Jamildo Melo
+---
+Sem alarde, um relat&oacute;rio dos auditores do Tribunal de Contas do Estado (TCE) apontou supostas irregularidades em edital de licita&ccedil;&atilde;o da Prefeitura do Recife para "execu&ccedil;&atilde;o dos servi&ccedil;os de manuten&ccedil;&atilde;o preventiva, implanta&ccedil;&atilde;o, requalifica&ccedil;&atilde;o, recapeamento e/ou microrrevestimento de vias em concreto betuminoso usinado a quente (CBUQ) do sistema vi&aacute;rio da cidade do Recife". Ou seja, asfalto.
+O valor total da licita&ccedil;&atilde;o, segundo o TCE, estava indicado em R$ 146 milh&otilde;es.
+"A Ger&ecirc;ncia de Fiscaliza&ccedil;&atilde;o em Licita&ccedil;&otilde;es de Obras (GLIO) do TCE-PE, atrav&eacute;s do Relat&oacute;rio Preliminar de Auditoria, de 22/09/2023 apontou poss&iacute;veis cl&aacute;usulas restritivas na fase de habilita&ccedil;&atilde;o e aus&ecirc;ncia de crit&eacute;rio objetivo de reajuste (vide achados abaixo resumidos) sugerindo a suspens&atilde;o do certame para fins de corre&ccedil;&atilde;o das falhas", informa o relat&oacute;rio do processo.
+Segundo o processo, os auditores do TCE apontaram as como supostas irregularidades "(1) o crit&eacute;rio de reajustamento do contrato n&atilde;o est&aacute; claro, (2) a qualifica&ccedil;&atilde;o t&eacute;cnica exigida restringe irregularmente a competitividade e, por fim, (3) o edital cria uma ilegal distinc&atilde;o (diferen&ccedil;a ou separa&ccedil;&atilde;o) entre empresas domiciliadas e n&atilde;o-domiciliadas no munic&iacute;pio do Recife".
+Notificada, a Prefeitura do Recife prometeu ao TCE corrigir as supostas irregularidades no edital de R$ 146 milh&otilde;es.
+"Em rela&ccedil;&atilde;o a equ&iacute;vocos no reajustamento do valor do contrato prevista nos itens 7.2 e 7.2.1, h&aacute; o compromisso dos gestores da EMLURB de corrigir a cl&aacute;usula n&atilde;o apenas do Edital de Concorr&ecirc;ncia ora em an&aacute;lise, mas de todos os editais em circula&ccedil;&atilde;o da entidade, al&eacute;m de comunicar aos interessados mediante of&iacute;cio circular a ser divulgado no Portal de Compras. Sobre a poss&iacute;vel cl&aacute;usula restritiva na exig&ecirc;ncia de regularidade fiscal, h&aacute; novamente o compromisso dos gestores p&uacute;blicos de retificar o Edital, acatando as recomenda&ccedil;&otilde;es", informa o relator do processo, conselheiro Marcos Loreto, na decis&atilde;o.
+O TCE, diante da proposta da prefeitura de corrigir as irregularidades, indeferiu a cautelar.
+O TCE, ainda, abriu um novo processo para verificar "se no instrumento contratual a ser assinado com as empresas vencedoras dos Lotes I a IV, originadas, procedeu-se &agrave; corre&ccedil;&atilde;o da cl&aacute;usula de reajuste conforme recomenda&ccedil;&atilde;o constante do Relat&oacute;rio de Auditoria".
+A decis&atilde;o &eacute; monocr&aacute;tica e ainda ser&aacute; analisada posteriormente pela Primeira C&acirc;mara do TCE. A decis&atilde;o j&aacute; foi publicada no Di&aacute;rio Oficial.
+Fica aberto o espa&ccedil;o &agrave; Prefeitura e a EMLURB, caso queiram prestar mais esclarecimentos. Por &oacute;bvio, a divulga&ccedil;&atilde;o das informa&ccedil;&otilde;es da auditoria n&atilde;o implica qualquer endosso em suas conclus&otilde;es.

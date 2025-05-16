@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Balanço final dos eleitos em Pernambuco"
+date: 2006-10-02
+tags: balanço,candidatos eleitos,Final,pernambuco
+author: None
+---
+GOVERNADOR
+Mendonça Filho (PFL) - 1.578.001 votos (39,32%)Eduardo Campos (PSB) - 1.356.950
+ votos (33,81%)Humberto Costa (PT) - 1.008.842 votos (25,14%)
+Brancos - 339.416 (7,12%)Nulos - 417.139 (8,75%)
+SENADOR
+Jarbas Vasconcelos (PMDB) - 2.031.261 (56,14%)Luciano Siqueira (PCdoB) - 835.980 (23,10%)Jorge Gomes (PSB) - 723.722 (20%)
+Brancos - 518.438 (10,87%)Nulos - 633.007 (13,27%)
+DEPUTADO ESTADUAL
+Cleiton Collins (PSC) - 89.459 votos (2,12%)Miriam Lacerda (PFL) - 67.825 votos (1,60%)João da Costa (PT) - 65.097 votos (1,54%)Romário Dias (PFL) - 62.174 votos (1,47%)Clodoaldo Magalhães (PSC) - 57.457 votos (1,36%)Augusto Coutinho (PFL) - 56.754 votos (1,34%)Claudiniano Martins (PMDB) - 55.510 votos (1,35%)Henrique Queiroz (PP) - 53.238 votos (1,26%)Guilherme Uchôa (PDT) - 53.123 votos (1,26%)Antônio Morais (PSDB) - 52.867 votos (1,25%)Agla?son Júnior (PSB) - 52.670 votos (1,25%)Elias Lira (PFL) - 50.029 votos (1,18%)José Queiroz (PDT) - 48.112 votos (1,14%)Sebastião Oliveira (PL) - 47.289 votos (1,12%)S?lvio Costa Filho (PMN) - 45.973 votos (1,09%)Terezinha Nunes (PSDB) - 45.678 votos (1,08%)Raimundo Pimentel (PSDB) - 45.265 votos (1,07%)Ciro Coelho (PFL) - 44.361 votos (1,05%)Maviael Cavalcanti (PFL) - 44.204 votos (1,05%)Ricardo Teobaldo (PMDB) - 44.006 voto (1,04%)João Negromonte (PMDB) - 41.692 votos (0,99%)Geraldo Coelho (PFL) - 41.472 votos (0,98%)Isaltino Nascimento (PT) - 40.014 votos (0,97%)Everaldo Cabral (PTB) - 39.553 votos (0,94%)Édson Vieira (PSDC) - 39.375 votos (0,93%)Manoel Ferreira (PFL) - 38.014 votos (0,90%)Teresa Leitão (PT) - 37.325 votos (0,88%)Carlos Santana (PSDB) - 37.192 votos (0,88%)Sérgio Leite (PT) - 36.439 votos (0,86%)Ângelo Ferreira (PSB) - 36.417 votos (0,86%)Carla Lapa (PSB) - 35.073 votos (0,83%)André Campos (PT) - 37.870 votos (0,83%)Iza?as Régis (PTB) - 33.192 votos (0,78%)Emanuel Bringel (PSDB) - 33.002 votos (0,78%)Pedro Eurico (PSDB) - 32.352 votos (0,77%)Antônio Figuerôa (PTB) - 32.270 (0,76%)João Fernando Coutinho (PSB) - 32.192 votos (0,76%)Elina Carneiro (PSB) - 31.869 votos (0,75%)Marcantônio Dourado (PTB) - 31.863 votos (0,75%)Augusto César (PTB) - 30.681 votos (0,73%)Esmeraldo Santos (PTB) - 29.815 votos (0,70%)Ayrinho (PSB) - 29.665 votos (0,70%)Luciano Moura (PCdoB) - 29.481 votos (0,70%) Lourival Simões (PV) - 28.366 votos (0,67%)Ceça Ribeiro (PSB) - 28.100 votos (0,67%)Eriberto Medeiros (PTdoB) - 24.290 votos (0,58%)Barreto (PMN) - 23.828% (0,56%)Eduardo Porto (PTdoB) - 21.517 (0,51%)José Alves (PAN) - 15.171 votos (0,36%)
+Brancos - 385.734 votos (8,09%)Nulos - 153.734 votos (3,21%)
+DEPUTADO FEDERAL
+Armando Monteiro (PTB) – 205.212 votos (4,90%)Inocêncio Oliveira (PL) – 181.126 votos (4,32%)Ana Arraes (PSB) – 178.467 votos (4,26%)Cadoca (PMDB) – 157.909 votos (3,77%)Maur?cio Rands (PT) – 149.206 votos (3,56%)Carlos Wilson (PT) – 141.203 votos (3,37%)Raul Henry (PMDB) – 138.841 votos (3,31%)Bruno Araújo (PSDB) – 138.498 votos (3,31%)José Múcio (PTB) – 120.398 votos (2,87%)Fernando Bezerra Coelho Filho (PSB) – 117.720 votos (2,81%)Eduardo da Fonte (PP) -– 110.061 votos (2,63%)Roberto Magalhaes (PFL) – 106.150 votos (2,53%)Renildo Calheiros (PCdoB) – 103.364 votos (2,47%)Zé Mendonça (PFL) – 96.561 votos (2,30%)Gonzaga Patriota (PSB) – 92.652 votos (2,21%)André de Paula (PFL) – 88.854 votos (2,12%)Raul Jungmann (PPS) – 88.757 votos (2,12%)Edgar Moury (PMDB) – 87.499 votos (2,09%)Pedro Eugênio (PT) – 85.140 votos (2,03%)Jose Chaves (PTB) – 84.143 votos (2,01%)Bruno Rodrigues (PSDB) – 80.065 votos (1,91%)Fernando Ferro (PT) – 73.009 votos (1,74%)Marcos Antônio (PSC) – 62.019 votos (1,48%)Wolney Queiroz (PDT) – 56.645 votos (1,35%)Paulo Rubem (PT) – 56.247 votos (1,34%)
+Brancos - 427.430 votos (8,96%)Nulos - 153.267 votos (3,21%) 

@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Geraldo Alckmin pode migrar para o PSB"
+date: 2015-12-22
+tags: geraldo Alckmin
+author: None
+---
+ Governador de São Paulo, Geraldo Alckmin (PSDB). Foto: Antonio Cruz/ABR
+Por Mariana Araújo do Jornal do Commercio
+As idas e vindas do governador de Pernambuco, Paulo Câmara, e do prefeito do Recife, Geraldo Julio, a São Paulo, mais especificamente para reuniões com o governador Geraldo Alckmin, vão muito mais além do que uma possível aliança do PSDB com o PSB.
+Alckmin conversa com as lideranças socialistas para, caso o cenário entre os tucanos não lhe seja favorável, migrar para o PSB. Seria uma alternativa aos dois lados: desde a morte do ex-governador Eduardo Campos, em 2014, o PSB ficou sem uma liderança nacional forte. E Alckmin está sendo relegado a segundo plano no PSDB, com a liderança de Aécio Neves.
+“Essas conversas ocorrem a partir do vice-gocvernador (de São Paulo) Márcio França. Se ele está pensando em deixar o PSDB ou não, isso não é do meu conhecimento. É evidente que um nome como de Geraldo Alckmin é um quadro que tem uma trajetória, uma expressão política que certamente interessa a um partido como o PSB, que busca fortalecer os seus quadros, não só para as eleições de 2016, mas para defender um projeto alternativo a essa polarização PSDB-PT, que o PSB entende que é chegada a hora de um caminho alternativo”, afirmou o senador Fernando Bezerra Coelho, em visita nessa segunda (21) ao Jornal do Commercio.
+O governador paulista estaria se sentindo incomodado com o posicionamento de Aécio Neves, que está atraindo para si boa parte da “máquina” tucana. Além da migração de um nome expressivo para a legenda, o PSB pode engordar, também, o número de deputados que podem acompanhar Alckmin nessa possível migração.
+Nos bastidores, comenta-se que Alckmin talvez tenha que tomar uma decisão mais cedo do que esperava. Recentemente, França afirmou que o “compromisso do PSB era com Alckmin e não com o PSDB”.
+A leitura que alguns nomes fazem é que, caso Alckmin não migre para o PSB, o partido fica numa situação mais complicada, pois não teria tempo de formar um quadro de liderança nacional até as eleições de 2018.
+O PSB também tem outro ponto a resolver, este com mais urgência, que é o posicionamento que adotará para o processo de impeachment da presidente Dilma Rousseff (PT). “Nosso partido deverá convocar reunião da Executiva Nacional ao longo de janeiro para firmar uma posição. O partido se encontra dividido.
+A maioria da Câmara tem uma tendência para apoiar o impeachment, uma leve maioria no Senado é contra e os governadores se posicionaram contra. Portanto, isso vai merecer um debate mais aprofundado”, explicou o senador.
+Para Bezerra Coelho, alguns fatores podem alterar o processo na Câmara ao longo do recesso parlamentar e até a instalação completa do processo. “Acabamos de ter a troca do ministro da Fazenda, mostrando a gravidade do quadro da economia brasileira. Teremos uns 60 dias para saber se o novo ministro vai animar o cenário da economia, recuperar a confiança e dar um encaminhamento para as graves questões que ameaçam o crescimento e o desenvolvimento do Brasil”, disse.
+Na visão do senador, a presidente Dilma tem maioria no Senado que poderá contribuir para barrar o processo, segundo apontou o rito determinado pelo Supremo Tribunal Federal (STF). “Eu diria que hoje o governo federal tem uma maioria dentro do Senado para evitar o processo de impeachment. Mas essa votação só se dará em fevereiro ou março”, disse o parlamentar.
+Sobre o inquérito na Operação Lava Jato, o senador afirmou que considerou “desnecessário” o mandado de busca e a apreensão no seu escritório político de Petrolina, na semana passada.
+“Todo o material que foi apreendido poderia ser solicitado que nós teríamos encaminhado. Renovo a nossa confiança nas autoridades e ao cabo dessas investigações, os fatos ficarão devidamente esclarecidos”, disse. Já sobre a investigação de desvio de recursos na Transposição do São Francisco no período em que ele estava à frente do Ministério da Integração, Bezerra Coelho disse que está “absolutamente tranquilo” e que realizou auditorias em contratos, com apoio do Tribunal de Contas da União e da Controladoria Geral da União.

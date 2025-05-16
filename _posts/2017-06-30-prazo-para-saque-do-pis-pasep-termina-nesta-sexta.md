@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Prazo para saque do PIS/Pasep termina nesta sexta"
+date: 2017-06-30
+tags: Caso Banestado,prazo,saque,Sexta-feira 13
+author: None
+---
+Da ABr - Quem não tiver possibilidade de sacar nesta sexta-feira (30) o abono salarial dos programas de Integração Social (PIS) e de Formação de Patrimônio do Servidor Público (Pasep,) referente ao ano-base 2015, terá nova chance. Em vez de ser encerrado definitivamente nesta sexta-feira, como estava previsto, o prazo será reaberto em 27 de julho e o trabalhador terá até 28 de dezembro para sacar o dinheiro.
+O Conselho Deliberativo do Fundo de Amparo ao Trabalhador (Codefat) aprovou nessa quinta (29) a reabertura do prazo. A proposta foi apresentada pelo ministro do Trabalho, Ronaldo Nogueira, que atendeu a pedidos feito pelo representante dos trabalhadores no colegiado. Segundo o ministro, 1,57 milhão de pessoas – 6,5% do total com direito ao abono – ainda não fizeram o saque do benefício referente a 2015. Na mesma reunião, o Codefat aprovou o calendário para saque do abono referente ao ano-base 2016, que também começará em 27 de julho.
+Cada trabalhador pode ter até R$ 937 a receber, um salário mínimo. O valor varia de acordo com o tempo em que o trabalhador esteve formalmente empregado no ano de referência. É preciso ter trabalhado por no mínimo 30 dias, com remuneração média mensal de até dois salários mínimos. Também é necessário estar inscrito nos programas há pelo menos cinco anos.
+É preciso ainda que os trabalhadores tenham tido seus dados informados corretamente pelo empregador na Relação Anual de Informações Sociais (Rais). Os valores não sacados são destinados ao Fundo de Amparo ao Trabalhador (FAT). O abono do PIS é pago pela Caixa Econômica Federal a trabalhadores do setor privado. Já o Pasep é pago pelo Banco do Brasil a servidores públicos.
+Para sacar o abono do PIS, o trabalhador que tem o Cartão Cidadão e senha cadastrada pode se dirigir aos terminais de autoatendimento da Caixa ou a uma Casa Lotérica. Se não tiver o Cartão Cidadão, pode retirar o dinheiro em qualquer agência da Caixa, mediante a apresentação de documento de identificação. Informações sobre o PIS também podem ser obtidas pelo telefone 0800-726 02 07, da Caixa.
+Os servidores públicos que têm direito ao Pasep precisam verificar se houve depósito em conta. Caso isso não tenha ocorrido, devem procurar uma agência do Banco do Brasil levando um documento de identificação. Mais informações sobre o Pasep podem ser obtidas pelo telefone 0800-729 00 01, do Banco do Brasil.

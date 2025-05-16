@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Temer: Bolsonaro precisa de 'crédito'; FHC defende que presidente seja 'árbitro'"
+date: 2019-02-18
+tags: Bolsonaro,Michel Temer,Presidente
+author: None
+---
+Estadão Conteúdo - O ex-presidente Michel Temer (MDB) afirmou na tarde desta segunda-feira (18) que é preciso dar crédito ao presidente Jair Bolsonaro (PSL), que ainda tem pouco tempo de governo. "Ele passou 18 dias no hospital, ficou em Davos (no Fórum Econômico Mundial), tem pouco tempo. Tem que dar crédito", afirmou em entrevista à Rádio Bandnews FM, quando questionado sobre a crise envolvendo o ministro da Secretaria-Geral da Presidência, Gustavo Bebianno, que pode ser exonerado ainda nesta segunda-feira.
+Temer participou com o ex-presidente Fernando Henrique Cardoso de uma entrevista para a rádio e ambos falaram sobre crises e suas experiências na Presidência. "Se começarmos com mensagens pessimistas, estamos atrapalhando não é o governo, é o Brasil", disse. Temer afirmou, ainda, que uma crise deve "sair pequena de um gabinete presidencial", o que se faz por meio do diálogo. "Especialmente com aqueles que se opõem".
+Já Fernando Henrique comentou genericamente a influência de pessoas externas ao governo sobre o presidente. Ele defendeu que o mandatário deve afastar amigos e familiares da condução do governo, e atuar como "árbitro" de diferentes setores governo. FHC disse que é "grave" quando a crise envolve diretamente o gabinete presidencial, e mais ainda quando a família do presidente está envolvida.
+"Amigos, família, tudo isso é problemático para quem está no governo", disse Fernando Henrique. "Eu sempre procurei esvaziar crise. Eu dizia que a crise entrava grande no meu gabinete, e saía pequena."
+O tucano pregou que o chefe de Estado fuja do "olho do furacão" de crises que envolvem o Executivo federal e evite manifestar preferências por alas diferentes do governo, quando há disputas entre ministros envolvidas. "Você torce no seu coração. Você tem de se conter", disse.
+Já Michel Temer disse que as críticas foram importantes em seu mandato para fazê-lo reavaliar posições. "Algumas pessoas chegavam e diziam: você foi mal hoje. É útil porque você se recupera. Quando todo mundo diz que você foi bem, você não se recupera", pondera. "Se não tiver resiliência, como se diz muito hoje, não suporta o exercício da Presidência da República".
+Questionado sobre a autocrítica, Temer respondeu que é um fenômeno democrático. "A meu modo de ver, quando você recua de uma posição, não significa falta de autoridade, significa autoridade democrática, você toma outro caminho sem prejudicar os interesses do País."

@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Advogado de Palocci diz que prisão ocorreu no "estilo ditadura militar""
+date: 2016-09-26
+tags: Advogados,ditadura militar,prisão
+author: None
+---
+Da ABr - O ex-ministro da Fazenda Antônio Palocci, preso temporariamente nesta segunda-feira (26) na 35ª fase na Operação Lava Jato, chegou às 9h à Superintendência da Polícia Federal, na capital paulista. Ele foi preso em casa, na região dos Jardins, zona oeste da capital. Buscas também foram cumpridas em seu escritório.
+Ex-assessores de Palocci foram presos temporariamente na operação. Branislav Kontic foi levado para a superintendência na capital e Juscelino Dourado, preso em Campinas, está a caminho de São Paulo.
+Os três seguem, ao meio-dia, em comboio para o aeroporto de Congonhas, de onde partem para Curitiba. Além das prisões, a polícia cumpre mandados de condução coercitiva para cinco pessoas, cujos nomes não foram divulgados. Duas delas já estão na superintendência e duas não terão a condução cumprida, uma por motivo de viagem e outra por doença.
+O advogado de Palocci, José Roberto Batochio, criticou a prisão de seu cliente, dizendo que tudo ocorreu de maneira secreta, ao estilo ditadura militar. “Estamos voltando aos tempos do autoritarismo, da arbitrariedade. Não há necessidade de prender uma pessoa que tem domicílio certo, que foi duas vezes ministro, que pode dar todas as informações quando for intimado. É por causa do espetáculo?”, disse.
+Batochio disse ainda que causou indignação o nome dado à operação, Omertá, que significa lei do silêncio no código de honra usado pela máfia italiana. “Só porque ele tem um nome descendente de italiano, como eu tenho também, além de ser absolutamente preconceituoso com os descendentes de italianos. Essa designação é perigosa”, disse.
+A suspeita da operação é de que Palocci teria ligação com o comando da empreiteira Odebrecht, uma das principais do país. A operação investiga se o ex-ministro e outros envolvidos receberam dinheiro para beneficiar a empreiteira em contratos com o governo.
+Segundo a PF, as negociações envolviam a Medida Provisória 460, de 2009, que tratava de crédito-prêmio do Imposto sobre Produtos Industrializados (IPI), além do aumento da linha de crédito da Odebrecht no Banco de Desenvolvimento Econômico e Social (BNDES) para um país africano, e a interferência em licitação da Petrobras para a aquisição de 21 navios-sonda destinados à exploração da camada pré-sal.
+O advogado negou as acusações. “Isso é uma coisa absolutamente vaga, vazia. Para quem quer pretexto, isso é pretexto, mas o fato é que o ministro da Fazenda tem que ter uma interlocução com o setor empresarial, com a cadeia produtiva do Brasil, para que se estabeleçam as políticas públicas. Se um ministro conversa com alguém da iniciativa privada, já é suspeito de praticar crime?”, perguntou Batochio.

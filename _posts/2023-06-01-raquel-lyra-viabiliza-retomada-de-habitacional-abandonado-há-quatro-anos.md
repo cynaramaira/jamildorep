@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Raquel Lyra viabiliza retomada de habitacional abandonado há quatro anos"
+date: 2023-06-01
+tags: jamildo, Lula, raquel lyra
+author: Jamildo Melo
+---
+O governo de Pernambuco negociou com sucesso a retomada de projetos habitacionais financiados pelo governo federal que estavam parados no estado. O Minist&eacute;rio das Cidades autorizou a libera&ccedil;&atilde;o de R$ 91 milh&otilde;es para dar continuidade &agrave;s obras do complexo residencial Vanete Almeida, em Serra Talhada. Este empreendimento, que inclui 902 casas, est&aacute; parado h&aacute; quatro anos. A decis&atilde;o de Bras&iacute;lia foi poss&iacute;vel porque o governo do estado garantiu a constru&ccedil;&atilde;o da infraestrutura local, incluindo pavimenta&ccedil;&atilde;o, esgoto e abastecimento de &aacute;gua.
+Segundo Simone Nunes, Secret&aacute;ria de Desenvolvimento Urbano e Habita&ccedil;&atilde;o, &ldquo;De acordo com as regras do programa 'Minha Casa, Minha Vida', s&oacute; &eacute; poss&iacute;vel retomar canteiros parados com a garantia do munic&iacute;pio de entregar obras locais a infraestrutura. A cidade n&atilde;o tinha esses recursos e o estado assumiu a contrapartida.&rdquo;
+Segundo o Estado, projetos de constru&ccedil;&atilde;o parados n&atilde;o apenas representam um desperd&iacute;cio de dinheiro p&uacute;blico, mas tamb&eacute;m n&atilde;o beneficiam milhares de pessoas. Al&eacute;m disso, seu abandono aumenta os preju&iacute;zos da sociedade, pois os canteiros de obras se tornam alvos de roubo de materiais e sofrem degrada&ccedil;&atilde;o natural ao longo do tempo. Por isso, negociar a conclus&atilde;o de obras paralisadas &eacute; um dos pontos do programa Morar Bem PE lan&ccedil;ado em mar&ccedil;o pela governadora Raquel Lyra.
+Al&eacute;m do conjunto habitacional Serra Talhada, o estado negocia com o governo federal a retomada imediata de outros conjuntos habitacionais em Bezerros, Bom Conselho e S&atilde;o Bento do Una. Quando conclu&iacute;dos, esses projetos proporcionar&atilde;o mais de 1.500 novas moradias para os pernambucanos, beneficiando diretamente mais de 6.000 pessoas.
+O esfor&ccedil;o para retomar a constru&ccedil;&atilde;o de moradias &eacute; resultado de levantamento feito pela Secretaria de Estado de Desenvolvimento Urbano e Habita&ccedil;&atilde;o (Seduh) em conjunto com a Caixa Econ&ocirc;mica Federal e o Banco do Brasil. Esses agentes financeiros indicaram quais im&oacute;veis est&atilde;o vinculados a contratos antigos e ainda n&atilde;o est&atilde;o prontos ou ocupados.
+&ldquo;Estamos fazendo um esfor&ccedil;o junto &agrave; Casa Civil, Minist&eacute;rio das Cidades, bancos e entidades ligadas a esses projetos. Com os nossos esfor&ccedil;os e a capacidade da Companhia Estadual de Habita&ccedil;&atilde;o (Cehab), estamos muito pr&oacute;ximos de realizar outras entregas&rdquo;, afirma o secret&aacute;rio Nunes.
+&nbsp;
+&nbsp;

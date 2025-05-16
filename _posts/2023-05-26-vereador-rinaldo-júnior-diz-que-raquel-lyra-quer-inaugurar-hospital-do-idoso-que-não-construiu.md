@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Vereador Rinaldo Júnior diz que Raquel Lyra quer inaugurar hospital do idoso que não construiu"
+date: 2023-05-26
+tags: jamildo, raquel lyra, João Campos
+author: Jamildo Melo
+---
+Rinaldo Junior, vereador do Recife e l&iacute;der do PSB na C&acirc;mara Municipal do Recife, saiu em defesa da gest&atilde;o Jo&atilde;o Campos, na pol&ecirc;mica em torno da gest&atilde;o do hospital do Idoso, em Areias, como rea&ccedil;&atilde;o &agrave; iniciativa da Secretaria de Sa&uacute;de do Estado.
+Conforme informou o blog, mais cedo, a secret&aacute;ria de Sa&uacute;de do Estado de Pernambuco, Zilda Cavalcanti, decidiu nesta manh&atilde; desta sexta-feira (26) pela revers&atilde;o da posse ao Estado do im&oacute;vel onde est&aacute; instalado o Centro de Refer&ecirc;ncia do Idoso, em Areias, por consequ&ecirc;ncia de o processo administrativo instaurado pela Pasta - agora conclu&iacute;do - ter verificado &ldquo;a exist&ecirc;ncia de v&iacute;cios insan&aacute;veis que maculam o Termo de Presta&ccedil;&atilde;o de Contas e Compensa&ccedil;&atilde;o Financeira&rdquo;.
+A cess&atilde;o do im&oacute;vel estadual &agrave; Prefeitura do Recife ocorreu no pen&uacute;ltimo dia do governo Paulo C&acirc;mara, em 30 de dezembro passado, e utilizou como fundamento a presta&ccedil;&atilde;o de contas de um conv&ecirc;nio de coopera&ccedil;&atilde;o t&eacute;cnica firmado na pandemia entre Prefeitura do Recife e Governo de Pernambuco.
+Ao assumir, a nova gest&atilde;o estadual, sob Raquel Lyra, disse ter identificado irregularidades na presta&ccedil;&atilde;o de contas e na execu&ccedil;&atilde;o do conv&ecirc;nio e decidiu abrir o processo administrativo, conclu&iacute;do nesta sexta. Os aliados de Jo&atilde;o Campos chamaram de comiss&atilde;o fake e foram brigar na Justi&ccedil;a do Estado.
+"Estou aqui no N&uacute;cleo de Desenvolvimento do Idoso Recife indignado com o que est&aacute; acontecendo. O Governo de Pernambuco fechou a unidade, impedindo o atendimento de centenas de idosos. E querem fazer isso cometendo arbitrariedades. Montaram uma comiss&atilde;o "fake" formada apenas por cargos comissionados - o que &eacute; vedado pela Lei, para desfazer um conv&ecirc;nio que foi vistado pela Procuradoria do Estado (PGE). E essa comiss&atilde;o ainda possui uma servidora que est&aacute; cometendo improbidade, uma vez que acumula cargos e vencimentos tempor&aacute;rios", afirmou o vereador do PSB.
+CONFIRA O V&Iacute;DEO&nbsp;
+
+"Trata-se de uma a&ccedil;&atilde;o meramente pol&iacute;tica, da m&aacute; pol&iacute;tica que ignora as necessidades do povo. E tem mais: Pernambuco vive um abandono na &aacute;rea da seguran&ccedil;a p&uacute;blica e eles retiraram viaturas da ruas para jogar aqui e impedir que idosos que precisam de atendimento tenham acesso. N&atilde;o h&aacute; outro nome nome se n&atilde;o crueldade. E o neg&oacute;cio &eacute; t&atilde;o exdr&uacute;xulo que mandaram uma placa pra substituir a da prefeitura. Querem inaugurar o que foi feito pela prefeitura?"

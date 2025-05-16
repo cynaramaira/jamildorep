@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Geddel diz que sua integridade física está nas mãos da PF"
+date: 2017-07-03
+tags: esta,física,Irmãos Safdie
+author: None
+---
+Estadão Conteúdo - O advogado de defesa do ex-ministro Geddel Vieira Lima (PMDB-BA), Gamil Föppel, afirmou, nesta segunda-feira (3) que o peemedebista foi "injustamente enredado no bojo da Operação Cui Bono" e que "deposita sua integridade física nas mãos da autoridade policial". Ele foi preso pela Polícia Federal na Bahia por determinação do juiz federal Vallisney de Oliveira, da 10ª Vara do Distrito Federal. A detenção é de caráter preventivo e tem como fundamento elementos reunidos a partir de informações fornecidas em depoimentos recentes do doleiro Lúcio Bolonha Funaro, do empresário Joesley Batista e do diretor jurídico do grupo J&amp;F, Francisco de Assis e Silva, sendo os dois últimos, em acordo de colaboração premiada.
+No pedido enviado à Justiça, os procuradores afirmaram que Geddel tem agido para atrapalhar as investigações. O objetivo de Geddel seria evitar que o ex-presidente da Câmara Eduardo Cunha (PMDB-RJ) e o próprio Lúcio Funaro firmem acordo de colaboração com o Ministério Público Federal. Para isso, segundo os investigadores, tem atuado no sentido de assegurar que ambos recebam vantagens indevidas, além de "monitorar" o comportamento do doleiro para constrangê-lo a não fechar o acordo.
+LEIA TAMBÉM
+» Ex-ministro Geddel Vieira Lima é preso
+» Que desonestos respondam pelos seus atos, diz Calero após prisão de Geddel
+"Decerto, diante da ausência de relevantes informações para sua decisão, inexplicavelmente não relatadas na representação policial, a autoridade judiciária infelizmente laborou em erro. Dessa forma, acabou por não considerar que, desde o momento em que o Senhor Geddel Vieira Lima se viu injustamente enredado no bojo da "Operação Cui Bono", colocou-se à disposição das autoridades constituídas, para apresentar os documentos que lhe fossem solicitados, assim como comparecer a todos os chamados que eventualmente lhe fossem formulados, inclusive abrindo mão dos seus sigilos bancário e fiscal, assim como do seu passaporte", afirma o advogado de Geddel.
+A defesa do ex-ministro ainda reiterou "incompreensão" com a prisão preventiva de Geddel, classificada pelos advogados como "absolutamente desnecessária". Os advogados sustentam ainda que "Joesley Batista foi enérgico em pontuar que jamais pagou propina (ou qualquer tipo de vantagem indevida) ao Senhor Geddel Vieira Lima".
+"Sabedor da sua inocência e confiante na altivez do Poder Judiciário, o Senhor Geddel Vieira Lima segue inabalável na reparação do cerceamento às suas liberdades fundamentais, registrando que, estando custodiado, deposita sua integridade física nas mãos da autoridade policial", alega o advogado Gamil Föppel.

@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Depois do Datafolha, Mendonça Filho vai para cima de Marília Arraes"
+date: 2020-11-06
+tags: Datafolha,Marília Arraes,Mendonça Filho,Pará
+author: None
+---
+Os aliados de Mendonça Filho, do Democratas, ficaram bastante satisfeitos com a mais recente pesquisa do Datafolha, no Recife, que apontou uma recuperação do candidato nos números e uma desidratação da candidata do Podemos, Patrícia Domingos.
+Datafolha no Recife aponta João Campos com 31%; Marília Arraes, 21%; Mendonça Filho, 16%; Delegada Patrícia, 14%
+Após pancadaria, Patrícia Domingos lidera em rejeição no Recife no Datafolha
+"Acho que conseguimos demonstrar a farsa que ela (Patrícia Domingos) é. Já está até mais mansa. O foco agora vai ser o PT", observa uma fonte do partido. Restam dez dias de campanha, neste momento.
+Nesta linha, os estrategistas da campanha devem focar agora no PT, de modo a tentar tomar o segundo lugar da candidata do PT, Marília Arraes, que vem demonstrando reação, depois de colocar o ex-presidente Lula como cabo eleitoral.
+Nesta quinta-feira, os dois grupos trocaram farpas pelas redes sociais.
+Mendonça e Priscila anunciam propostas para a saúde da mulher
+O candidato a prefeito do Recife, Mendonça Filho (DEM), afirmou, nesta sexta-feira (06/11), que a partir de janeiro de 2021 vai direcionar iniciativas específicas na saúde para as mulheres, como a realização de exames periódicos, acompanhamento do pré-natal e parto para as gestantes, requalificação de maternidades e ampliação da cobertura de rede.
+“O descaso das gestões do PT e PSB em relação às iniciativas de saúde específicas para as mulheres vem de anos, principalmente no que diz respeito ao monitoramento das gestantes, que durante a gravidez passam até oito meses para fazer a primeira ultrassonografia. Isso vai acabar e nós vamos mudar essa realidade com ações sólidas para garantir um atendimento humanizado às mulheres em todo o Recife”, disse Mendonça.
+De acordo com o democrata, a saúde será um dos setores em que ele e candidata a vice-prefeita na aliança Recife Acima de Tudo (DEM, PSDB, PTB e PL), Priscila Krause, vão priorizar ao assumir a prefeitura.
+Entre as iniciativas, Mendonça prometeu que haverá o Aniversário da Saúde, destinado às mulheres com mais de 40 anos, e que possibilitará a realização anual, no mês do aniversário, de três importantes e imprescindíveis exames: mamografia (rastreio por imagem que pode detectar nódulos), ultrassom endovaginal (também chamado transvaginal, para avaliação de órgãos internos, como útero, trompas e ovários) e exame preventivo (Papanicolau, para detectar câncer de colo de útero ou demais DSTs).
+Priscila Krause disse que, a partir de janeiro de 2021, a gestão dos democratas vai garantir a realização de todo o pré-natal das gestantes na rede de saúde, própria e conveniada, cuja articulação será realizada diretamente com as maternidades municipais para que sejam garantidas as vagas no período previsto para o parto. Ela diz que, para isso, é necessário requalificar as maternidades, ampliar a cobertura da rede e garantir a realização dos exames, inclusive através de convênios com os serviços privados de saúde.
+“Criamos uma proposta robusta direcionada à saúde da mulher para garantir um atendimento humanizado em todo o Recife e, sobretudo, nas comunidades mais carentes. O desafio é muito grande, ainda mais em relação ao acompanhamento das gestantes e do pré-natal”, disse Priscila.
+"É possível reverter o atual quadro de desassistência médica que as gestantes enfrentam. Sabendo o número de gestantes e a idade gestacional dessas mães teremos um cálculo de quantas mulheres darão à luz em determinados períodos para garantir as vagas necessárias nas maternidades. Isso passa por uma gestão das informações e nós faremos uma mudança radical nesse sentido”, pontuou.
+Os democratas ressaltaram as "estatísticas assustadoras" em relação à demora para a realização de exames distintos. "Atualmente, na rede pública de saúde do Recife há 25.348 exames ultrassonográficos (todo tipo de ultrassonografia), 2.853 consultas em ginecologia e 109 consultas em mastologia. Mendonça e Priscila também reafirmaram o compromisso de requalificar as principais maternidades do Recife: Bandeira Filho (Afogados), Arnaldo Marques (Ibura) e Barros Lima (Casa Amarela), bem como o Hospital da Mulher (Curado)."

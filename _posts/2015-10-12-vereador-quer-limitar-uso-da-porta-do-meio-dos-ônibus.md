@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Vereador quer limitar uso da porta do meio dos ônibus"
+date: 2015-10-12
+tags: meio ambien,ônibus,Portaria,vereador
+author: None
+---
+
+O funcionamento de abertura e fechamento da terceira porta existente no centro dos ônibus convencionais que operam no Sistema de Transporte Público de Passageiros do Recife – STPP/Recife, poderá ser controlado por lei, cujo projeto está tramitando na Câmara Municipal do Recife.
+O autor é o vereador Carlos Gueiros (PTB), para quem o funcionamento da chamada “porta do meio” dos coletivos deve ficar restrito aos terminais de integração e, ao longo dos itinerários das linhas, somente para o embarque e desembarque de cadeirantes, se nelas estiverem sido instaladas plataforma elevatória para uso exclusivo desse tipo de usuário.
+O projeto de lei é o de número 206/2015, que já foi apresentado  em reunião plenária e enviado às comissões de Legislação e Justiça. De Meio Ambiente, Transporte e Trânsito; e de Direitos Humanos, para análise e emissão de pareceres. De acordo com o projeto de lei, deverão ser afixadas nessas portas um “Aviso aos Usuários”, contendo as restrições contidas na lei (caso ela seja aprovada), com a menção do seu número e em modelo semelhante aos outros usuais do sistema.
+A exceção da restrição são os casos de acidentes, evacuação emergencial e outros de incontestável característica fortuita.
+A proposta de limitação do funcionamento da porta do meio dos ônibus é justificada pelo vereador Carlos Gueiros pela questão da segurança aos usuários. “A imprensa tem divulgado os acidentes ocorridos com usuários dos ônibus, envolvendo problemas com as portas que se abrem quando eles estão em movimento. Tradicionalmente, os ônibus só tinham duas portas: uma destinada ao acesso e outra à descida.  Com a obrigatoriedade da instalação da Plataforma de Elevação dos Cadeirantes – PEV–, ônibus urbanos passaram a ter, no meio, uma terceira porta, onde são instalados esses equipamentos para utilização exclusiva para o acesso e descida desses usuários”, historiou.
+O vereador disse que após instaladas e durante muito tempo, essa porta só era utilizada pelos usuários cadeirantes e, com a proliferação dos Terminais Integrados, passou a ser utilizada também nesses terminais, para o embarque e desembarque de todos os passageiros, existindo nelas um “aviso aos usuários” da sua finalidade exclusiva para uso dos cadeirantes ao longo dos itinerários das linhas ou, somente nos TI´s, para embarque/desembarque de todos os passageiros, conforme propomos no presente projeto de lei, com vistas à celeridade das operações integradas.
+“Sem nenhuma explicação, esses “avisos” desapareceram e as três portas passaram a ser utilizadas, indistintamente para todos os passageiros.
+O que propomos, portanto, não é nenhuma novidade, mas apenas criar por lei o retorno de medida anteriormente adotada e injustificadamente modificada que, ao contrário de trazer benefício ao usuário, diminui a sua segurança no interior dos veículos”, disse.

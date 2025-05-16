@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Agora é oficial. Recife será uma das 12 capitais a sediar a Copa do Mundo de 2014"
+date: 2009-05-31
+tags: Capitais,Copa,diário oficial,mundo,Recife,Serasa
+author: None
+---
+Pernambuco na Copa do Mundo
+View more OpenOffice presentations from Jamildo Melo.
+
+Do JC Online
+Recife foi uma das 12 capitais escolhidas para sediar a Copa do Mundo de 2014. O an&uacute;ncio foi feito oficialmente neste domingo (31), um ano e sete meses ap&oacute;s a Fifa confirmar o Brasil como Pa&iacute;s que sediar&aacute; a competi&ccedil;&atilde;o. Ao lado do Recife, tamb&eacute;m foram escolhidas as cidades de Natal, Salvador e Fortaleza (Nordeste). Da Regi&atilde;o Norte, Manaus foi eleita, desbancando Bel&eacute;m e Rio Branco. Do Centro-Oeste, Cuiab&aacute; e Bras&iacute;lia. Ficaram de fora Campo Grande e Goi&acirc;nia. Do Sudeste, foram confirmadas as favoritas S&atilde;o Paulo, Rio de Janeiro e Belo Horizonte. E finalmente, do Sul, Porto Alegre e Curitiba. Florian&oacute;polis sobrou.
+As candidatas receberam, entre janeiro e fevereiro, uma comiss&atilde;o de inspetores da Fifa que conferiram o que foi apresentado nos projetos. Desde a adequa&ccedil;&atilde;o dos est&aacute;dios para receber jogos de porte internacional, como tamb&eacute;m as melhorias na infraestrutura das cidades. Em rela&ccedil;&atilde;o &agrave;s pra&ccedil;as esportivas, tudo precisa ficar pronto at&eacute; dezembro de 2012, ou, no mais tardar, at&eacute; o primeiro semestre de 2013, quando ocorre a Copa das Confedera&ccedil;&otilde;es. J&aacute; as obras estruturais precisam estar em uso pela popula&ccedil;&atilde;o at&eacute; o fim de 2013.
+A cifra para a viabilidade de tudo o que precisa ser feito assusta. O investimento para a competi&ccedil;&atilde;o foi estimado em R$ 35,9 bilh&otilde;es, recursos que precisam ser injetados no Brasil nos pr&oacute;ximos cinco anos. O estudo foi realizado pela Funda&ccedil;&atilde;o Get&uacute;lio Vargas (FGV) e entregue ao presidente da Confedera&ccedil;&atilde;o Brasileira de Futebol (CBF), Ricardo Teixeira, que repassou os c&aacute;lculos ao presidente Luiz In&aacute;cio Lula da Silva. Nos bastidores j&aacute; se comenta que essa conta pode subir ainda mais, vide os Jogos Pan-Americanos do Rio em 2007. Ainda conforme a pesquisa da FGV, a Copa vai gerar 3,6 milh&otilde;es de empregos e resultar em uma renda de R$ 64 bilh&otilde;es.
+Recife tem um projeto ousado. A constru&ccedil;&atilde;o de uma arena para 46 mil torcedores, aliada &agrave; cria&ccedil;&atilde;o de um complexo chamado Cidade da Copa, em S&atilde;o Louren&ccedil;o da Mata &ndash; com um conjunto residencial (com 9 mil apartamentos), estrutura de com&eacute;rcio e hotel.
+Depois de cerim&ocirc;nia realizada no Pal&aacute;cio do Campo das Princesas, o governador Eduardo Campos e o prefeito de S&atilde;o Louren&ccedil;o da Mata, Ettore Labanca, seguem para o munic&iacute;pio, para a festa de comemora&ccedil;&atilde;o, que vai contar com shows de Alceu Valen&ccedil;a, Banda Eva, Saia Rodada, entre outros. A estimativa da pol&iacute;cia &eacute; de que 15 mil pessoas compare&ccedil;am ao p&aacute;tio de eventos. 

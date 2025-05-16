@@ -1,0 +1,27 @@
+---
+layout: post
+title: "Campanha de Haddad critica ‘batidas policiais’ em universidades de todo o país"
+date: 2018-10-26
+tags: campanha,crítica,Fernando Haddad,Universidades
+author: None
+---
+A pedido da Justiça Eleitoral, a Polícia Federal fez uma série de apreensões de material de campanha do candidato do PT, Fernando Haddad, em várias universidades pelo Brasil afora. É crime o uso de espaço público para campanha partidária.
+A campanha não gostou da movimentação e reclamou publicamente, falando em repressão e batidas policiais em universidades de todo o país.
+“As batidas policiais em universidades e as ordens de prisão a professores e alunos por posicionamento político contra o fascismo e a censura são cenas que remetem a tempos de repressão no Brasil, tempos de medo, violência e ditadura. Mas aconteceu em 2018, na última quinta-feira (25/10)”, afirma a campanha do candidato do PT.
+Ao menos 27 instituições de ensino superior foram alvo de ação de agentes do TRE e da polícia federal.
+De acordo com o PT, o suposto objetivo era identificar e recolher materiais de campanha irregulares.
+“Na prática, professores foram abordados por sua “ideologia”; foram recolhidas faixas contra o fascismo e em homenagem a Marielle Franco, vereadora assassinada em março em um crime político ainda sem solução”.
+Na noite desta quinta, uma juíza eleitoral de Niterói determinou a prisão do diretor da Faculdade de Direito da Universidade Federal Fluminense (UFF) caso uma faixa em que se lia “Direito UFF Antifascista”, hasteada na entrada do campus, não fosse removida. Após a ameaça da juíza, o diretor ordenou a retirada do material. Em seu lugar, foram estendidos panos pretos simbolizando luto e uma faixa laranja com a inscrição “censurado”.
+Alinhada desde sempre com o PSOL e o PT, a Ordem dos Advogados do Brasil, seção do Rio de Janeiro, lançou nota em repúdio à censura e à repressão.
+“A OAB-RJ manifesta o seu repúdio diante de recentes decisões da Justiça Eleitoral que tentam censurar a liberdade de expressão de estudantes e professores das faculdades de Direito, que, como todos os cidadãos, têm o direito constitucional de se manifestar politicamente”.
+A manifestação não alinhada a candidatos e partidos não pode ser confundida com propaganda eleitoral. Quaisquer restrições nesse sentido, levadas a efeito, sobretudo por agentes da lei, sob o manto, como anunciado, de ‘mandados verbais’, constituem precedentes preocupantes e perigosos para a nossa democracia, além de indevida invasão na autonomia universitária garantida por nossa Constituição”, diz a nota.
+Em nota oficial, a campanha de Haddad recorre a agência alemã DW, no Brasil.
+Veja os termos abaixo.
+Proibição de palestras contra o fascismo e abordagem policial a professores por sua “ideologia”
+Da DW Brasil
+No Pará, policiais militares entraram no campus para questionar o professor Mário Brasil, coordenador do curso de Ciências Sociais, sobre sua ideologia, de acordo com um relato. Após abordar o tema das “fake news” em uma aula da disciplina “Mídias Digitais”, uma estudante teria se sentido ofendida, alegado “doutrinação marxista” e telefonado para seu pai, soldado da PM.
+Houve casos em que palestras e debates sobre as temáticas da ditadura militar e do fascismo foram proibidos. Foi o caso do evento público “Contra o fascismo. Pela democracia”, previsto para ser realizado na Universidade Federal do Rio Grande do Sul (UFRGS). O debate contaria com a participação de Guilherme Boulos, que concorreu à Presidência pelo PSOL, o ex-ministro Tarso Genro (PT), a deputada federal eleita Fernanda Melchionna (PSOL) e a deputada federal Maria do Rosário (PT).
+“Dei aulas, proferi conferências em Universidades da França, Inglaterra, Portugal, Espanha, Alemanha, Argentina e aqui, mesmo na ditadura. Respeitei sempre os protocolos legais dessas casas de ensino. Hoje, censurado para falar na UFRGS, no RS que governei. Fascismo cresce”, escreve Tarso Genro no Twitter.
+A decisão do TRE local atendia a um pedido do deputado federal Jerônimo Goergen (PP) e do candidato eleito Marcel van Hattem (Novo). Para justificar a medida, o juiz cita o inciso um do artigo 73 da Lei das Eleições, onde está exposto que não é permitido “ceder ou usar, em benefício de candidato, partido político ou coligação, bens móveis ou imóveis pertencentes à administração direta ou indireta da União, dos Estados, do Distrito Federal, dos Territórios e dos Municípios, ressalvada a realização de convenção partidária”.
+O juiz do TRE destaca que, pelo contexto, é nítido que o ato “se trata de evento político-eleitoral, seja a favor do candidato Fernando Haddad, seja contra o candidato Jair Bolsonaro”.
+Nos sindicatos e associações de professores em que foram realizadas diligências da Justiça Eleitoral, além do recolhimento de materiais, foram apreendidos também computadores. Uma nota do Sindicato Estadual dos Profissionais da Educação de Campos dos Goytacazes (RJ) relata que a diligência dos fiscais do TRE apreendeu exemplares informativos da Confederação Nacional dos Trabalhadores da Educação “com o comparativo das propostas para a educação dos dois candidatos à Presidência da República, sem orientação de voto”.

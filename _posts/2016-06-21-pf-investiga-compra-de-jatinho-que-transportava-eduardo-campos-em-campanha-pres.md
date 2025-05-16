@@ -1,0 +1,26 @@
+---
+layout: post
+title: "PF investiga compra de jatinho que transportava Eduardo Campos em campanha presidencial e esquema milionário de lavagem de dinheiro"
+date: 2016-06-21
+tags: campanha,compras online,dinheiro,eduardo campos,esquema criminoso,investigação,lavagem d
+author: None
+---
+A Polícia Federal deflagrou na manhã desta terça-feira (21) a Operação Turbulência para desarticular um esquema de lavagem de dinheiro descoberto após a investigação da compra do jatinho que transportava o ex-governador Eduardo Campos (PSB) durante a campanha presidencial de 2014. Segundo a PF, o esquema teria movimentado mais de R$ 600 milhões desde 2010.
+A PF constatou que as empresas eram de fachada, constituídas em nome de “laranjas”. As transações eram feitas entre as próprias empresas fantasmas e também envolvendo algumas ligadas à Operação Lava Jato. Há suspeita de que parte dos recursos que transitaram nas contas examinadas serviam para pagamento de propina a políticos e formação de “caixa dois” de empreiteiras.
+LEIA TAMBÉM
+» Contrato do jatinho que levava Eduardo Campos não tem nome do comprador
+» Avião de campanha de Eduardo Campos não aparece nas prestações de conta do PSB
+» Empresa que pagou jatinho que levava Eduardo Campos teria recebido R$ 100 mil de doleiro
+Estão sendo cumpridos 60 mandados judiciais, sendo 33 de busca e apreensão, 22 de condução coercitiva e cinco de prisão preventiva, além de mandados de indisponibilidade de contas e sequestro de embarcações, aeronaves e helicópteros dos principais integrantes da organização criminosa.
+Segundo a Globo News, quatro dos mandados de prisão são contra Apolo Santana Vieira e João Lyra de Mello Filho, apontados como donos do avião, e Eduardo Bezerra Leite e Arthur Lapa Rosal, que teriam financiado parte da compra do avião.
+Apolo foi preso por três policiais em uma academia na Zona Sul do Recife. Lyra e Leite foram presos em São Paulo e estão sendo trazidos para a sede da Polícia Federal em Pernambuco. O quinto, Paulo Sérgio de Barros, está foragido.
+» Janot pede para Lava Jato investigar dono do jatinho de campanha de Eduardo Campos
+» Apenas uma moradora atingida pela queda do jatinho de Eduardo teria recebido indenização
+» PT vai processar PSB por suposto caixa dois em jatinho da campanha de Eduardo
+Além do Recife, os mandados estão sendo cumpridos em Jaboatão dos Guararapes, Moreno, Paulista, Vitória de Santo Antão e Lagoa de Itaenga. Entre os bairros da capital pernambucana, os alvos estão nos bairros de Boa Viagem, Cordeiro, Espinheiro, Alto Santa Terezinha, Ibura e Pina. A PF vai divulgar mais informações sobre a operação em coletiva de imprensa ainda nesta manhã.
+O ACIDENTE - Eduardo Campos morreu no dia 13 de agosto de 2014. O jatinho Cessna Citation PR-AFA decolou do Rio de Janeiro em direção à base área de Santos, na cidade do Guarujá, em São Paulo. Além de Eduardo Campos, outras seis pessoas estavam na aeronave: o jornalista Carlos Percol, o fotógrafo Alexandre Severo, o cinegrafista Marcelo Lyra, o assessor Pedro Valadares Neto, e os pilotos Geraldo Magela Barbosa da Cunha e Marcos Martins. Todos morreram no acidente aéreo. A aeronave caiu em um quintal de uma área residencial no bairro do Boqueirão, em Santos. Oito casas foram danificadas e 11 pessoas que estavam na área ficaram feridas após o impacto.
+
+Marina Silva, então candidata a vice, passou a concorrer à presidência, mas o avião não apareceu nas prestações de conta de nenhum dos dois nem do PSB. O contrato de compra do avião, além de não apresentar o nome do comprador, tinha assinatura ilegível. O registro junto à Agência Nacional de Aviação Civil (Anac) tem o nome da empresa AF Andrade, que diz ter vendido o jatinho a Apolo e Lyra, presos mais cedo. O PSB disse, em 2014, não ter responsabilidade sobre a compra da aeronave. As especulações sobre possíveis irregularidades nesse processo começaram logo após a morte de Eduardo. Duas hipóteses eram levantadas: de que a simulação de compra seria uma farsa para encobrir o aluguel da aeronave, que seria irregular, e de que o nome não foi escrito no contrato porque os recursos para o pagamento da aeronave viriam de caixa dois.
+A Força Aérea Brasileira (FAB) e o Centro de Investigação e Prevenção de Acidentes Aeronáuticos (Cenipa) divulgaram em janeiro deste ano o relatório final sobre o acidente do jatinho que vitimou o ex-governador de Pernambuco. O cansaço de Marcos Martins, piloto do avião que caiu em Santos (SP), foi um dos fatores contribuintes para o desastre, que teve uma sequência de falhas humanas.
+Além do uso de "atalho" para acelerar o procedimento de descida na Base Aérea de Santos, outro problema detectado durante os trabalhos foi a falta de treinamento do piloto, específico para aquela aeronave, um Cessna 560 XL, que levou à Aeronáutica, inclusive, a emitir uma recomendação de segurança à Agência Nacional de Aviação Civil (ANAC), três meses depois do acidente.
+» Relembre o adeus ao ex-governador de Pernambuco Eduardo Campos, um dos principais líderes do PSB no Brasil

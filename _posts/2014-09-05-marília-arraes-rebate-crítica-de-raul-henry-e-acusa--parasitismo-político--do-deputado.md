@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Marília Arraes rebate crítica de Raul Henry e acusa "parasitismo político" do deputado"
+date: 2014-09-05
+tags: crítica,deputado,Marília Arraes,Raul Henry
+author: None
+---
+Foto: BlogImagem
+Foi por meio de sua conta oficial no Facebook que a vereadora do Recife Marília Arraes rebateu as críticas do deputado federal Raul Henry (PMDB), vice de Paulo Câmara (PSB) na disputa pelo Governo do Estado, sobre não ter autoridade para falar sobre o ex-governador de Pernambuco Eduardo Campos, se primo falecido no mês passado, porque o teria abandonado no momento em que ele mais precisava.
+No texto, Marília Arraes diz lembrar as críticas que Raul, o senador Jarbas Vasconcelos (PMDB) e o deputado federal Mendonça Filho (DEM) disparavam contra o avô Miguel Arraes, "chamando-o de ladrão e também de senil", e contra o próprio Campos, a quem rotulariam de "ladrão dos precatórios".
+"O que é lamentável é o deputado Raul e seu time, de forma incompreensível, realizarem uma das adesões mais vergonhosas da história política de Pernambuco. Isso mostra a pura intenção do poder pelo poder e do parasitismo político", afirma a vereadora, que disse sempre ter tido uma maravilhosa convivência familiar com o primo.
+"Recebi com estranheza as críticas que ele fez a minha pessoa e fiquei com dúvidas sobre seu tão elogiado conhecimento sobre educação – uma vez que utilizou de forma equivocada a palavra AUTORIDADE", alfinetou ainda.
+No texto, também sobraram farpas para Paulo Câmara, "um cidadão tão desconhecido, inexperiente politicamente e que, visivelmente, precisaria de uma orientação maior".
+Leia a íntegra do texto:
+SOBRE O QUESTIONAMENTO DE "AUTORIDADE" PARA A MINHA OBSERVAÇÃO SOBRE A UTILIZAÇÃO DE ALGUMAS IMAGENS NO HORÁRIO ELEITORAL
+Em primeiro lugar, quero dizer que tenho muita estima pela pessoa do deputado federal e candidato a vice-governador, Raul Henry.
+Recebi com estranheza as críticas que ele fez a minha pessoa e fiquei com dúvidas sobre seu tão elogiado conhecimento sobre educação – uma vez que utilizou de forma equivocada a palavra AUTORIDADE.
+Tenho memória boa e acompanho a política desde cedo. Lembro bem do deputado Raul, do seu companheiro Jarbas, do deputado Mendonça, entre outros integrantes da extinta União por Pernambuco, quando tentaram levar à lama a imagem de Miguel Arraes, meu avô, chamando-o de ladrão e também de senil; e rotulando Eduardo Campos, meu primo, de ladrão dos precatórios. Foi a campanha mais suja e baixa que já presenciei em meus 30 anos de vida.
+Antes de responder a qualquer absurdo afirmado por Raul Henry, quero esclarecer que Miguel Arraes e Eduardo Campos NÃO eram ladrões, nem corruptos, nem tampouco incompetentes. Eles lutaram com todas as forças contra o BOICOTE do Governo Federal, na época comandado por Fernando Henrique Cardoso – a quem os citados senhores davam suporte político – ao Estado de Pernambuco, que era executado por puro instinto de perseguição, bastante característico da velha política. Quem terminou sofrendo foi o povo.
+Agora, devo responder ao deputado e candidato. Apesar de ser prima legítima de Eduardo Campos, ter sempre tido uma convivência familiar e maravilhosa com ele, jamais afirmei falar em nome do núcleo familiar de Eduardo que é formado por mãe, irmão, esposa e filhos. Minha crítica foi pessoal, por acreditar que alguém faleceu merece respeito e descanso. Afinal, quem pode dizer qual seria a vontade de Eduardo agora? Paulo? E, são também críticas políticas. Uma vez que não vejo avanços democráticos a serem conquistados utilizando imagens emocionantes do ex-governador Eduardo, ou até mesmo de seu funeral. Aproveito para dizer que continuo sem entender a razão política de se eleger um cidadão tão desconhecido, inexperiente politicamente e que, visivelmente, precisaria de uma orientação maior: no caso, do falecido Eduardo Campos. Espero que o debate se restrinja ao campo das ideias e da política.
+O que é lamentável é o deputado Raul e seu time, de forma incompreensível, realizarem uma das adesões mais vergonhosas da história política de Pernambuco. Isso mostra a pura intenção do poder pelo poder e do parasitismo político.
+Ao aderir ao ex-governador Eduardo Campos junto com Jarbas, Mendonça e a extinta União por Pernambuco, Raul mostra-se um verdadeiro poliedro – um homem que definitivamente tem vários lados. Na política só tem lugar para pessoas geometricamente retas. Ao decidir não acompanhar o rumo tomado por Eduardo, considero que o fiz por optar estar do mesmo lado em que sempre estive.
+Marília Arraes

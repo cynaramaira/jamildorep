@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Terça-feira de Carnaval pode virar feriado no Recife a partir de 2025? Entenda"
+date: 2024-03-19
+tags: jamildo, feriadão
+author: Jamildo Melo
+---
+Um projeto de emenda &agrave; Lei Org&acirc;nica,&nbsp; em tramita&ccedil;&atilde;o na C&acirc;mara do Recife, pretende acabar com o aperreio de quem trabalha na iniciativa privada e quer curtir pelo menos um dia de folia carnavalesca na capital pernambucana. Isso porque a proposta, de autoria da vereadora Nat&aacute;lia de Menudo (PSB), declara a ter&ccedil;a-feira de Carnaval feriado municipal.
+O texto do projeto, lido na reuni&atilde;o ordin&aacute;ria dessa segunda-feira (18), adiciona o artigo 176-A &agrave; Lei Org&acirc;nica do Recife, declarando a ter&ccedil;a-feira gorda feriado no munic&iacute;pio "independentemente do m&ecirc;s em que o Carnaval for oficialmente comemorado no munic&iacute;pio".
+Na justificativa da proposta, a vereadora afirma que a "medida favorece os trabalhadores da iniciativa privada, que ganham o direito de escolha de exercer suas atividades laborais mediante compensa&ccedil;&atilde;o pecuni&aacute;ria das horas trabalhadas".
+"Os bancos, por exemplo, n&atilde;o abrem nesses dias e s&oacute; reabrem &agrave;s 12h da Quarta-Feira de Cinzas, assim como as reparti&ccedil;&otilde;es p&uacute;blicas. Apesar disso, as empresas podem ter expediente normal e exigir que seus funcion&aacute;rios trabalhem. A festividade s&oacute; &eacute; considerada feriado se estiver prevista em lei estadual ou municipal. No estado do Rio de Janeiro, por exemplo, a ter&ccedil;a-feira de Carnaval foi declarada feriado estadual por meio da Lei n&deg;5243/2008", diz trecho da justificativa.
+O projeto tem at&eacute; o pr&oacute;ximo dia 3 de abril para receber emendas e depois segue para a an&aacute;lise das Comiss&otilde;es de Legisla&ccedil;&atilde;o e Justi&ccedil;a e de Educa&ccedil;&atilde;o, Cultura, Turismo e Esportes.
+"Nas localidades onde a data n&atilde;o &eacute; considerada feriado, a segunda-feira e a ter&ccedil;a-feira, al&eacute;m da Quarta-Feira de Cinzas, podem ser ou n&atilde;o definidas como pontos facultativos. Na pr&aacute;tica, empresas e funcion&aacute;rios podem fazer acordo sobre os dias a serem trabalhados e as formas de compensa&ccedil;&atilde;o das horas. Nos estados e munic&iacute;pios onde o Carnaval &eacute; feriado oficial, via de regra, o trabalhador que n&atilde;o &eacute; dispensado receber&aacute; o pagamento daquele dia em dobro, mas outro tipo de compensa&ccedil;&atilde;o poder&aacute; ser combinado previamente por meio de Acordo Coletivo de Trabalho,como, por exemplo, anota&ccedil;&atilde;o em banco de horas", finaliza a justificativa da proposta.

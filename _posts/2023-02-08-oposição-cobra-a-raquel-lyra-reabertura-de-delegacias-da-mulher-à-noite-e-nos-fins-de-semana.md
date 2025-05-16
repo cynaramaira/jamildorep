@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Oposição cobra a Raquel Lyra reabertura de delegacias da Mulher à noite e nos fins de semana"
+date: 2023-02-08
+tags: jamildo, Pacto Pela Vida, raquel lyra
+author: Jamildo Melo
+---
+Na campanha, todos os candidatos de oposi&ccedil;&atilde;o criticaram a seguran&ccedil;a p&uacute;blica e em muitas oportunidades reclamaram que delegacias estavam fechadas, nos finais de semana. Com a chegada de Raquel Lyra ao poder, agora &eacute; o PSB que cobra a medida. J&aacute; no segundo m&ecirc;s de gest&atilde;o.
+Escalada pelo partido, a deputada estadual Delegada Gleide &Acirc;ngelo (PSB) manifestou preocupa&ccedil;&atilde;o, nesta quarta-feira (8), com o fato de apenas uma das 15 delegacias especializadas no atendimento &agrave;s mulheres funcionar &agrave; noite e nos fins de semana em Pernambuco.
+De acordo com a parlamentar, ex-gestora do Departamento de Pol&iacute;cia da Mulher e que defende essa pauta em seu mandato, &eacute; justamente no per&iacute;odo noturno e aos s&aacute;bados e domingos que ocorre a maior parte dos casos de viol&ecirc;ncia contra esse p&uacute;blico.
+&ldquo;O hor&aacute;rio em que as mulheres mais sofrem viol&ecirc;ncia &eacute; &agrave; noite e no final de semana. Por isso, sempre lutamos para que as delegacias abrissem 24 horas. T&iacute;nhamos conseguido que a de Olinda abrisse no final de semana, por&eacute;m j&aacute; parou de abrir. Hoje, s&oacute; a delegacia da Mulher do Recife, em Santo Amaro, abre 24 horas. As outras 14 delegacias n&atilde;o abrem&rdquo;, disse.
+Conforme a parlamentar,&nbsp; &eacute; necess&aacute;rio completar o efetivo para viabilizar o funcionamento dos plant&otilde;es em todas as unidades policiais, solicita&ccedil;&atilde;o que ela disse ter apresentado, na &uacute;ltima sexta-feira (3), durante reuni&atilde;o entre a governadora Raquel Lyra (PSDB) e as deputadas e os deputados estaduais no Pal&aacute;cio do Campo das Princesas.
+&ldquo;A solu&ccedil;&atilde;o &eacute; abrir com urg&ecirc;ncia o concurso p&uacute;blico, para que, em 2024, os policiais sejam lotados nos plant&otilde;es. Mas as 15 delegacias podem abrir j&aacute; a partir de agora com as cotas de PJES [Programa de Jornada Extra de Seguran&ccedil;a]. Na realidade, todas as delegacias dos munic&iacute;pios deveriam abrir 24 horas. &Eacute; a necessidade da popula&ccedil;&atilde;o e a forma de dar seguran&ccedil;a &agrave; sociedade. Repito o que disse &agrave; governadora em reuni&atilde;o no Pal&aacute;cio: N&atilde;o se faz seguran&ccedil;a p&uacute;blica sem efetivo policial&rdquo;, afirmou.

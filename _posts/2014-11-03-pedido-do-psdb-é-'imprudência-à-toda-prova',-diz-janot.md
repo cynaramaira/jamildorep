@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Pedido do PSDB é 'imprudência à toda prova', diz Janot"
+date: 2014-11-03
+tags: Prova,PSDB
+author: None
+---
+ Crédito da Imagem: Agência Brasil
+
+O procurador-geral da República, Rodrigo Janot, emitiu parecer nesta segunda-feira contrário ao pedido de auditoria especial solicitado pelo PSDB ao Tribunal Superior Eleitoral sobre o resultado do segundo turno das eleições presidenciais. Janot, que é também procurador-geral Eleitoral, considerou o pedido uma extravagância, sem previsão legal e o classificou como "temerário" e "de imprudência à toda prova". Ao pedir a auditoria das eleições, de acordo com o PGR, os tucanos criam risco de uma situação de instabilidade.
+Janot considera que o pedido, baseado em comentários feitos nas redes sociais, "não tem lastro em um único indício de fraude". "O requerimento é, pois, temerário, pois visa a promover gravíssimo procedimento de auditoria sem qualquer elemento concreto que o justifique, baseando-se exclusivamente em especulações sem seriedade efetuadas em redes sociais", escreveu o procurador.
+O volume de manifestações nas redes sociais relativas às eleições, segundo Janot, faz parte de uma nova realidade. "As redes sociais foram transformadas em local propício para a transmissão do descontentamento de parte das pessoas com a resultado das eleições de 2014, o que muitas vezes resulta em comentários desairosos, ou até mesmo criminosos, circunstância alimentada pelo anonimato de seus usuários", avaliou.
+As manifestações na internet, diz Janot, podem até ser explicáveis. O que não se pode, entendeu o PGR, é justificar a postura de um partido político de "em se baseando unicamente em comentários formulados em redes sociais, em boatos muitas vezes camuflados pelo anonimato", pretender a instauração de um procedimento que além de não estar previsto na legislação "pode comprometer a credibilidade" do sistema eleitoral. "Tal medida é de uma imprudência à toda prova, dada a real possibilidade de criar uma situação de instabilidade social e institucional", critica o procurador.
+Janot defende, por exemplo, a divulgação da apuração parcial das eleições apenas após o fechamento de todas as urnas, inclusive em Estados com fuso horário distinto, como o caso do Acre. Ele aponta ainda que o sistema eleitoral brasileiro - ao qual o PSDB "empresta tão pouca credibilidade", escreveu - pode ser "amplamente acompanhado e fiscalizado". O pedido de auditoria feito pelo PSDB foi remetido diretamente ao presidente da Corte, ministro Dias Toffoli. Amanhã, Toffoli deve discutir o tema em plenário na sessão do TSE.

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Dicionário da campanha"
+date: 2006-08-13
+tags: campanha
+author: None
+---
+Do blog de Josias
+Falta um mês e meio para o momento mágico em que você, já no interior da cabine eleitoral, visita sua alma. Súbito, descobre que esqueceu a consciência em casa. Estica o dedo em direção à urna eletrônica e vota a esmo. Transfere o problema para a divina providência. Meses depois, descobre que Deus está morto. Foi assassinado pela omissão coletiva. Não resta senão sentar, rezar, pedir perdão e expiar os pecados. Nesses tempos de culto à hipocrisia, o repórter gosta de reeditar um dicionário que vem colecionando e atualizando. 
+É uma maneira de homenagear a insensatez. A providência é desnecessária. A barafunda nacional não existiria se o eleitor já não estivesse compenetrado no exerc?cio do seu papel. Mesmo assim, a? vão alguns verbetes para aujudá-lo em sua (des)orientação: 
+- Alckmin: nome mais cotado para transformar o adversário em vitorioso;- Candidato: pretensioso que diz coisas definitivas sem definir as coisas;- Campanha: per?odo em que um grupo de loucos apresenta no rádio e na TV sua plataforma para dirigir o hosp?cio;- Coerência: velha maluca que faz tricô enredando-se nas linhas de suas próprias contradições;- Coligação: aliança partidária com fins lucrativos;- Democracia: regime pol?tico que saiu pelo ladrão; espécie de luta de boxe em que a sociedade entra com a cara;- Eleição: uma loteria sem prêmio no final; - Eleitor: cidadão escalado para optar entre o lamentável e o impensável;- Heloisa Helena: Pseudonovidade no seio da pol?tica; a inconseqüência com saliências e reentrâncias;- Lula: ex-operário que se converteu em compositor. Compõe com qualquer um.- Marketing pol?tico: técnica que consiste em enfeitar a forca, conferindo-lhe a aparência de inofensivo instrumento de cordas;- Pesquisa eleitoral: estat?stica que antecipa o nome do herói que será chamado de ladrão depois da posse;- Petista: tucano que conseguiu pôr a mão na chave do cofre;- Programa de governo: tratado de verdades que se esquecerão de acontecer;- Tucano: linhagem de pol?ticos com os pés no chão. E as mãos também;- Voto: equ?voco renovado de quatro em quatro anos;
+Por último, vai aqui uma recomendação: na manhã de 1º de outubro, depois de escovar os dentes e lavar o rosto, olhe fixamente para o espelho. Talvez você enxergue o reflexo de um culpado. 

@@ -1,0 +1,18 @@
+---
+layout: post
+title: "A OAB e a Comissão de Direitos Humanos. Um aviso a sociedade"
+date: 2015-09-16
+tags: aviso prévio,comissão mista,Direitos Humanos,Sociedade Brasileira de Angiologia e Cirurgia Vascular (SBACV)
+author: None
+---
+
+Por Emerson Leônidas, especial para o Blog de Jamildo
+
+Que o Brasil é um país com ótimas leis e que não são cumpridas, disso já sabemos. Mas a pergunta é: para onde foram as Comissões de Direitos Humanos da OAB? Em recente capítulo reservado para o Brasil, o Dr. Maurício Santoro, assessor de Direitos Humanos da Anistia Internacional aqui, em entrevista a concedida a revista Carta Capital  relatou o absurdo número de homicídios praticados por policiais e as péssimas condições do sistema carcerário, passando pela violação dos direitos à terra e pela impunidade dos agentes da ditadura, tudo isso no ano em que o País criou a Comissão da Verdade para revelar os crimes cometidos na ditadura.
+O relatório da Anistia Internacional destacou que atualmente o Brasil tem um déficit de mais de 200 mil vagas no sistema carcerário e que o número de presos não para de aumentar, que os detentos são mantidos em celas fétidas, superlotadas e inseguras. Mulheres e menores ainda são detidos nas mesmas unidades que os homens e os relatos de tortura restaram intermináveis.
+Ainda de acordo com a Anistia Internacional, a ausência de poder punitivo da Comissão da Verdade - instituída para investigar as violações aos Direitos Humanos durante a ditadura, - vai na contramão das decisões de outros países da região como Argentina e Uruguai.
+"A Lei da Anistia brasileira já foi considerada sem valor legal por diversos organismos internacionais. A sensação de impunidade em relação aos crimes autoridades é perceptível e espalhada pelos diversos setores sociais". Mas Direitos Humanos não é só isso. Os hospitais públicos de Pernambuco estão vitimizando gente todos os dias, com óbitos que poderiam ser evitados.
+E o que faz, contra isso, a Comissão de Direitos Humanos da OAB/PE? Ou para que serve ou deveria servir? Aqui, preside essa honrada comissão o Dr. João Olympio Mendonça, advogado criminalistas de grande destaque jurídico, mas que a nosso aviso nada entende de Direitos Humanos.
+Eu também não entendo, confesso, senão da pouca teoria, que nesse campo, ainda que fosse muita, seria absolutamente inútil.Só vim aprendi e entender um pouco, na prática, quando tive que conviver com doentes terminais no Hospital dos Servidores do Estado. Aquilo é um verdadeiro campo de extermínio. Em uma semana vi, com os meus olhos que a terra há de comer, mais de dez óbitos, por falta de respeito mínimo aos Direitos Humanos.
+Nunca me senti tão impotente na vida. E me perguntei: onde anda a OAB? Ou isso não é problema dessa instituição? Defender as prerrogativas dos advogados é primordial, exigir respeito à nossa classe e a nossa profissão é imprescindível, mas peço licença aos doutos para dizer que, há muito, a OAB abandonou o seu papel de guardião da sociedade e de seus interesses sociais.
+Quando se trata de Direitos Humanos, a sociedade não foi esquecida. Ela foi literalmente abandonada. Crime comissivo por omissão, para quem sabe o conceito. E não só a sociedade carcerária - porque direitos humanos não é só para presos ou vitima de violência policial -, mas a própria sociedade, quando se cuida de doentes, velhos, crianças e toda categoria de vulneráveis. Essa realidade tem que mudar!

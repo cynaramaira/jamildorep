@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sérgio Leite reitera que existem jornalistas vendidos à empresa. Diga os nomes e apresente as provas, deputado."
+date: 2007-09-28
+tags: cinthya leite,deputado,empresa,Nomes,Provas,sergio
+author: None
+---
+Resposta do deputado estadual S&eacute;rgio Leite &agrave; coluna Rep&oacute;rter JC
+O deputado estadual S&eacute;rgio Leite (PT) lembra que sua luta em defesa do consumidor pernambucano nunca teve rela&ccedil;&atilde;o com a disputa eleitoral e &eacute; travada muito antes de sua pr&eacute;-candidatura &agrave; Prefeitura de Paulista, quando deu in&iacute;cio a um trabalho na Assembl&eacute;ia Legislativa e que reuniu diversas entidades e a popula&ccedil;&atilde;o contra os reajustes da tarifa de energia no estado, que tantos preju&iacute;zos traz para a economia local. 
+Ele recorda ainda atua&ccedil;&otilde;es mais antigas de compromisso com o consumidor em outras frentes, como quando presidiu a CPI dos Planos de Sa&uacute;de e dos Medicamentos.
+Sobre o coment&aacute;rio a respeito da cobertura da imprensa &agrave;s a&ccedil;&otilde;es da comiss&atilde;o, o parlamentar enfatiza que n&atilde;o se trata de um comportamento generalizado, mas que os deputados, al&eacute;m dos representantes das entidades de defesa do consumidor que d&atilde;o suporte &agrave; CPI, t&ecirc;m sentido que alguns profissionais t&ecirc;m se rendido ao poderio econ&ocirc;mico da Celpe, forte anunciante e que tem travado uma verdadeira guerra para tentar limpar sua imagem, j&aacute; t&atilde;o desgastada junto &agrave; sociedade, seja na aquisi&ccedil;&atilde;o de geladeiras para a popula&ccedil;&atilde;o carente, na dilvuga&ccedil;&atilde;o de pesquisas ou na contrata&ccedil;&atilde;o de escrit&oacute;rios de advogacia mais caros do pa&iacute;s.
+A CPI tem recebido, a cada dia, graves den&uacute;ncias feitas por consumidores, de cobran&ccedil;as indevidas, cortes abusivos, quedas de tens&atilde;o. 
+A falta de investimento da companhia na transmiss&atilde;o e distribui&ccedil;&atilde;o de energia prejudica n&atilde;o s&oacute; o cliente residencial, como a economia pernambucana. 
+Os principais p&oacute;los de desenvolvimento econ&ocirc;mico do estado se mostram prejudicados: a bacia leiteira de Garanhuns e o p&oacute;lo de fruticultura de Petrolina amargam a perda de produtos; enquanto os p&oacute;los gesseiro, em Araripina, de confec&ccedil;&otilde;es e inform&aacute;tica no Agreste reclamam os danos causados aos aparelhos. 
+As queixas foram feitas pelos pr&oacute;prios empres&aacute;rios, durante visitas que os parlamentares realizaram, durante o processo de interioriza&ccedil;&atilde;o das audi&ecirc;ncias. 
+O deputado lembra ainda que, enquanto os empres&aacute;rios contam com um aparato de assessores jur&iacute;dicos e uma forte carga de publicidade, os consumidores est&atilde;o cada vez mais desprotegidos e desrespeitados e que o papel da imprensa &eacute; fundamental para a defesa de seus direitos.
+PS: O Sindicato dos Jornalistas de Pernambuco, caso n&atilde;o concorde com esses ataques &agrave; honra de todos os profissionais locais, deve abrir uma comiss&atilde;o de &eacute;tica urgente para separar o j&oacute;io do trigo, sob pena de, aceitando a generaliza&ccedil;&atilde;o do petista, igualar-se ao conceito que os pol&iacute;ticos desfrutam hoje. Com a palavra, Airton Maciel. A Celpe tamb&eacute;m est&aacute; na obriga&ccedil;&atilde;o de confirmar ou desmentir se adota como pr&aacute;tica a compra de jornalista neste Estado. 

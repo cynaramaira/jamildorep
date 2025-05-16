@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Humberto sobe e nova pesquisa aponta o caminho do 2º turno "
+date: 2006-09-15
+tags: Caminhões,Humberto Costa,pesquisa,Saturno
+author: None
+---
+Por Sérgio Montenegro FilhoDo Jornal do CommercioA 15 dias das eleições, o quadro atual da disputa pelo governo do Estado confirma a tendência de segundo turno em Pernambuco. A nova rodada da pesquisa de intenção de votos, feita pelo Instituto Vox Populi, com exclusividade para o Jornal do Commercio, revela um quadro estável dos três principais concorrentes ao Palácio do Campo das Princesas, com ligeiras oscilações, embora dentro da margem de erro prevista pela amostragem, de 3,1 pontos percentuais para mais ou para menos. A exceção fica para o candidato da coligação Melhor pra Pernambuco, Humberto Costa (PT), que conseguiu crescer quatro pontos percentuais, saindo de 18% obtidos na pesquisa anterior para 22%, na atual.A disputa, porém, ainda é liderada com certa vantagem pelo governador Mendonça Filho (PFL), candidato da União por Pernambuco
+ à reeleição. No levantamento, realizado nos dias 9 e 10 deste mês, o pefelista obteve 35% das intenções de voto, oscilando negativamente em dois pontos percentuais em relação à sondagem anterior, quando figurava com 37%. O mesmo ?ndice de oscilação obtido pelo candidato da Frente Popular de Pernambuco, Eduardo Campos (PSB), que desta vez ficou com 18% das preferências dos entrevistados pelo Vox Populi. No levantamento anterior, o socialista obteve 20%. Entre os outros seis candidatos, apenas o representante do Prona, Clóvis Corrêa, conseguiu um número de citações que totalizou 1%. Os demais não obtiveram ?ndice igual ou superior a um ponto percentual. O ?ndice de eleitores indecisos, no entanto, cresceu um ponto, passando de 16% para 17%. Da mesma forma, o número de eleitores que pretendem votar em branco ou anular o voto aumentou de 6% para 7% em relação ao levantamento anterior.
+(...)
+\"Diante da pesquisa atual, não há dúvidas desse cenário de segundo turno, embora ainda tenhamos 15 dias de campanha pela frente???, acrescenta Marcos Coimbra. Para ele, diante do quadro atual somente Mendonça Filho teria lugar garantido numa segunda votação. Seu adversário, de acordo com os números obtidos por Humberto e Eduardo, ainda está indefinido na opinião do diretor do Vox Populi.
+Leia mais aqui&nbsp;(assinantes JC e UOL). 

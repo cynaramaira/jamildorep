@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Lula anuncia  Plano de Segurança nesta segunda. No discurso, tudo é sempre muito bom"
+date: 2007-08-19
+tags: Caso Banestado,desempreg,discurso,Lula,Plano,segunda onda,Segurança
+author: None
+---
+O governador Eduardo Campos participa nesta segunda (20) do evento organizado pelo Pal&aacute;cio do Planalto para o lan&ccedil;amento do Programa Nacional de Seguran&ccedil;a P&uacute;blica com Cidadania (Pronasci). 
+O programa ter&aacute; um car&aacute;ter regional, seguindo particularidades das 11 regi&otilde;es metropolitanas do pa&iacute;s que apresentam os maiores &iacute;ndices de criminalidade, entre elas a do Recife. Segundo o governo, at&eacute; o final de 2012 (quando Lula j&aacute; deve ter deixado a Presid&ecirc;ncia) ser&atilde;o investidos R$ 6,7 bilh&otilde;es. Para este ano, o Pronasci j&aacute; conta com R$ 483 milh&otilde;es. 
+Em reuni&atilde;o que anteceder&aacute; o lan&ccedil;amento, o presidente Lula dir&aacute; de viva voz a ministros e aos governadores ter determinado que n&atilde;o haver&aacute; contigenciamento de recursos do Pronasci. 
+Tudo muito bonito no papel. Mas o problema &eacute; justamente tirar do papel as boas inten&ccedil;&otilde;es. Assim como acontece aqui no Estado, com o Pacto pela Vida. 
+Milh&otilde;es, bilh&otilde;es de reais anunciados como solu&ccedil;&atilde;o em diversas &aacute;reas v&atilde;o se multiplicando nos discursos presidenciais. E no final, sempre se pode creditar na conta da burocracia a culpa pela falta de a&ccedil;&otilde;es concretas. 
+Aquelas que v&atilde;o entrar em vigor de imediato, por exemplo, parecem ser bem modestas. Uma delas ser&aacute; a disponibilidade de cerca de 500 homens da For&ccedil;a Nacional para qualquer pedido de emerg&ecirc;ncia por parte dos estados. 
+Tamb&eacute;m vem por a&iacute; a Bolsa-Forma&ccedil;&atilde;o. S&eacute;rio. Os policiais que aderirem aos cursos de qualifica&ccedil;&atilde;o e capacita&ccedil;&atilde;o das pol&iacute;cias ter&atilde;o os sal&aacute;rios complementados. 
+O objetivo &eacute; reduzir as diferen&ccedil;as que existem entre os pagamentos efetuados nos Estados aos seus policiais. Seria uma forma de proporcionar uma isonomia em todo o Pa&iacute;s e reduzir as injusti&ccedil;as nos sal&aacute;rios, de regi&atilde;o para regi&atilde;o. 
+Entre os objetivos do Pronasci est&atilde;o melhorar o sistema de seguran&ccedil;a p&uacute;blica e prisional e valorizar os profissionais da &aacute;rea; permitir o acesso de adolescentes e jovens em situa&ccedil;&atilde;o de desagrega&ccedil;&atilde;o familiar &agrave;s pol&iacute;ticas sociais do governo; intensificar e ampliar as medidas de enfrentamento ao crime organizado e &agrave; corrup&ccedil;&atilde;o policial. 
+Comandado pessoalmente pelo presidente Lula, o encontro para o lan&ccedil;amento do Plano ser&aacute; coordenado pelo ministro da Justi&ccedil;a, Tarso Genro. Governadores de v&aacute;rios estados brasileiros estar&atilde;o presentes. 
+&quot;&Eacute; um fato da maior import&acirc;ncia o lan&ccedil;amento de um programa que traz o governo federal para o foco de enfrentamento da quest&atilde;o da seguran&ccedil;a p&uacute;blica no pa&iacute;s&quot;, disse o governador Eduardo Campos, elogiando a iniciativa do presidente e lembrando que, atualmente, os Estados&nbsp;v&ecirc;m sobrecarregados&nbsp;pela responsabilidade praticamente exclusiva sobre o controle da viol&ecirc;ncia.&nbsp;
+O governador aproveita sua passagem por Bras&iacute;lia nesta segunda para reuni&atilde;o de trabalho com o ministro Tarso Genro. Em pauta, a ajuda do governo federal &agrave;s a&ccedil;&otilde;es de seguran&ccedil;a desenvolvidas pelo governo do Estado. Os governadores da Bahia (Jacques Wagner), do Esp&iacute;rito Santo (Paulo Hartung) e de Sergipe (Marcelo Deda) tamb&eacute;m estar&atilde;o presentes. 

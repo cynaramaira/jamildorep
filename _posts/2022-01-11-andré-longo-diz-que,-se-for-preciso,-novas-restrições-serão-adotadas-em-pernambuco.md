@@ -1,0 +1,29 @@
+---
+layout: post
+title: "André Longo diz que, se for preciso, novas restrições serão adotadas em Pernambuco"
+date: 2022-01-11
+tags: pandemia
+author: JAMILDO MELO
+---
+Os secret&aacute;rios estaduais de Sa&uacute;de, Andr&eacute; Longo, e de Turismo e Lazer, Rodrigo Novaes, participaram, na manh&atilde; desta ter&ccedil;a-feira (11.01), de coletiva de imprensa para detalhar as novas regras no plano de conviv&ecirc;ncia com a Covid-19 em Pernambuco, focando em servi&ccedil;os onde a retirada da m&aacute;scara &eacute; recorrente. Tamb&eacute;m foi feita a atualiza&ccedil;&atilde;o dos dados epidemiol&oacute;gicos.
+
+    
+            André Longo fala na possibilidade de novas restrições em Pernambuco
+        
+
+"Nosso grande problema hoje &eacute; o grande volume de vulner&aacute;veis, o que pode gerar uma onda de hospitaliza&ccedil;&otilde;es muito forte. Volto a dizer: contra a &Ocirc;micron, ter apenas uma dose &eacute; o mesmo de estar desprotegido. Precisamos de ao menos duas doses, mas ainda temos mais de 500 mil pessoas com esta segunda dose em atraso. Para as pessoas com mais de 55 anos e tamb&eacute;m as pessoas com doen&ccedil;as pr&eacute;-existentes, a dose de refor&ccedil;o &eacute; crucial para aumentar a prote&ccedil;&atilde;o e reduzir a chance da pessoa se infectar ou reinfectar. Apesar disso, 40% dos idosos que tomaram as duas primeiras doses ainda precisam tomar esta dose de refor&ccedil;o para ter uma prote&ccedil;&atilde;o mais robusta contra a variante &Ocirc;micron", destacou o secret&aacute;rio.
+Pernambuco confirmou a circula&ccedil;&atilde;o da variante &Ocirc;micron da Covid-19, considerada com um maior potencial de contamina&ccedil;&atilde;o, o que pode agravar o cen&aacute;rio pelo grande n&uacute;mero de pessoas com a vacina&ccedil;&atilde;o em atraso.
+A positividade dos testes r&aacute;pidos de ant&iacute;geno para a Covid-19 nos centros de testagem ficou em 15% na &uacute;ltima segunda (10.01), enquanto no dia 28 de dezembro de 2021 era de apenas 3%.
+
+    
+            Estado amplia exigência para passaporte vacinal e reduz número de pessoas em eventos
+        
+
+De acordo com os indicadores, as doen&ccedil;as respirat&oacute;rias em Pernambuco continuam em acelera&ccedil;&atilde;o. Apenas na primeira semana epidemiol&oacute;gica de 2022, foram notificados 1.419 casos de s&iacute;ndrome respirat&oacute;ria aguda grave (Srag), significando um crescimento de 50% em uma semana e de 138% em 15 dias. Esse aumento nos adoecimentos impactou diretamente nas solicita&ccedil;&otilde;es por leitos de UTI: foram 805 pedidos nesta primeira semana epidemiol&oacute;gica, representando um aumento de apenas 2% em uma semana, mas de 82% em 15 dias.
+O secret&aacute;rio de Turismo e Lazer de Pernambuco, Rodrigo Novaes, corroborou com a fala grave de Longo.
+"Essas s&atilde;o decis&otilde;es dif&iacute;ceis, s&atilde;o decis&otilde;es que exigem responsabilidade por parte do poder p&uacute;blico, por parte do Governo do Estado, mas extremamente necess&aacute;rias, tendo em vista a prioriza&ccedil;&atilde;o da sa&uacute;de e da vida dos pernambucanos. &Eacute; preciso que a gente siga com todos os cuidados, com o uso de m&aacute;scara, com o cuidado com higieniza&ccedil;&atilde;o, respeito aos protocolos e as medidas que est&atilde;o sendo anunciadas para que a gente possa, mais uma vez, enfrentar esse momento dif&iacute;cil, para que a gente consiga resguardar a sa&uacute;de preciosa do povo pernambucano".
+Como ficaram as restri&ccedil;&otilde;es
+As novas regras passam a valer a partir da pr&oacute;xima sexta-feira (14.01), at&eacute; o dia 31 de janeiro. Nos servi&ccedil;os de alimenta&ccedil;&atilde;o, ser&aacute; exigido o passaporte vacinal com duas doses ou dose &uacute;nica para pessoas at&eacute; os 54 anos de idade e, a partir dos 55, tamb&eacute;m o refor&ccedil;o. A quantidade de pessoas por mesa n&atilde;o pode passar de 20. A medida &eacute; v&aacute;lida para restaurantes, bares e lanchonetes, inclusive de shoppings e centros comerciais.
+Nos cinemas, teatros e museus, a regra do passaporte vacinal &eacute; a mesma dos servi&ccedil;os de alimenta&ccedil;&atilde;o. Tamb&eacute;m deve ser respeitado o distanciamento de 1 metro entre pessoas que n&atilde;o sejam do mesmo n&uacute;cleo familiar. Caso haja mais de 300 pessoas no ambiente, ainda ser&aacute; exigida a apresenta&ccedil;&atilde;o de um teste negativo para Covid-19, sendo com 24 horas de anteced&ecirc;ncia para exames de ant&iacute;geno e de 72 horas para exames de RT-PCR.
+Para eventos, houve uma redu&ccedil;&atilde;o no p&uacute;blico permitido. Agora, o limite &eacute; de at&eacute; 3 mil pessoas em locais abertos, de 1 mil em espa&ccedil;os fechados ou 50% da capacidade do local, valendo o que for menor. Al&eacute;m da comprova&ccedil;&atilde;o vacinal com duas doses ou dose &uacute;nica para quem tem at&eacute; 54 anos e o refor&ccedil;o para quem tem a partir de 55, tamb&eacute;m haver&aacute; a necessidade de apresentar o teste negativo para a Covid para eventos com mais de 300 pessoas - relembrando que o exame deve ser com 24 horas de anteced&ecirc;ncia no caso do teste r&aacute;pido de ant&iacute;geno e 72 horas para exames de RT-PCR.
+Os eventos programados para este final de semana j&aacute; precisar&atilde;o ser reajustados para essas novas regras. "Estas medidas t&ecirc;m o objetivo de diminuir a circula&ccedil;&atilde;o viral e, proteger nossa popula&ccedil;&atilde;o, estimulando a vacina&ccedil;&atilde;o. E, para garantir que sejam cumpridas, tamb&eacute;m vamos refor&ccedil;ar a fiscaliza&ccedil;&atilde;o", frisou Longo. Ele tamb&eacute;m destacou todo o trabalho que vem sendo feito para amplia&ccedil;&atilde;o de leitos, mas lembrou que "s&oacute; com os esfor&ccedil;os do Governo do Estado n&atilde;o seremos capazes de proteger a popula&ccedil;&atilde;o. Ou todos cooperam, ou teremos perda de vidas e muito mais sofrimento".

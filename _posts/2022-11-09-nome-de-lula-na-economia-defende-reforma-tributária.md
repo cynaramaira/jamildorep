@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Nome de Lula na Economia defende reforma tributária"
+date: 2022-11-09
+tags: jamildo, reforma tributária, Lula
+author: Jamildo Melo
+---
+O economista Persio Arida, um dos formuladores do Plano Real, foi o convidado do Canal Aberto/Observat&oacute;rio Econ&ocirc;mico, evento online realizado na manh&atilde; desta quarta-feira (09/11) pela C&acirc;mara de Com&eacute;rcio Fran&ccedil;a Brasil (CCIFB-SP).
+Arida &eacute; integrante da equipe definida pelo presidente eleito Luiz In&aacute;cio Lula da Silva para atuar na transi&ccedil;&atilde;o e comentou pontos importantes da agenda econ&ocirc;mica do pa&iacute;s para o curto e o m&eacute;dio prazos, como a reforma tribut&aacute;ria e o acordo entre Uni&atilde;o Europeia e Mercosul, al&eacute;m de apresentar suas expectativas para o cen&aacute;rio econ&ocirc;mico global em 2023.
+Entre os pontos da agenda econ&ocirc;mica comentados, Arida afirmou que, negociado h&aacute; muito tempo, o acordo com a Uni&atilde;o Europeia "j&aacute; nasceu velho, ficando aqu&eacute;m daquilo que o Brasil precisaria".
+Em sua opini&atilde;o, no entanto, &eacute; melhor fechar o acordo e, se poss&iacute;vel, garantir a entrada do Brasil na Organiza&ccedil;&atilde;o para a Coopera&ccedil;&atilde;o e Desenvolvimento Econ&ocirc;mico (OCDE), iniciativa "que seria muito bem-vinda para o pa&iacute;s, inclusive do ponto de vista das restri&ccedil;&otilde;es que a organiza&ccedil;&atilde;o coloca em rela&ccedil;&atilde;o a pol&iacute;ticas protecionistas".
+Arida acrescentou que, como ocorre com toda economia emergente, "o caminho do Brasil &eacute; a integra&ccedil;&atilde;o com o mundo".
+Sobre a reforma tribut&aacute;ria, Arida comentou que est&aacute; amadurecida a vertente em que se busca o aumento da produtividade na economia, que est&aacute; embutida na cria&ccedil;&atilde;o do Imposto sobre o Valor Agregado (IVA).
+&ldquo;Deve ser prioridade no pr&oacute;ximo governo, o que &eacute; &oacute;tima not&iacute;cia&rdquo;, disse ele. Ele destacou que a medida ser&aacute; um enorme avan&ccedil;o, considerando o longo prazo de implementa&ccedil;&atilde;o do IVA.
+&ldquo;A ideia &eacute; criar o IVA e reduzir outros impostos, calibrando para a arrecada&ccedil;&atilde;o ficar mais ou menos constante&rdquo;, disse. Em sua opini&atilde;o, a iniciativa facilitaria o ganho de produtividade e resolveria muitos pontos da discuss&atilde;o envolvendo a reindustrializa&ccedil;&atilde;o no pa&iacute;s.
+Outro assunto que foi abordado por Arida &eacute; a agenda ambiental.
+Segundo ele, a sa&iacute;da do governo Bolsonaro renovar&aacute; a expectativa de uma boa agenda ambiental no Brasil, "que tem tudo para se transformar na vanguarda da preserva&ccedil;&atilde;o da natureza", lembrando que, al&eacute;m da Amaz&ocirc;nia, o pa&iacute;s conta com grande diversidade de fontes renov&aacute;veis de energia.
+Em sua opini&atilde;o, essa mudan&ccedil;a contribuiria muito para a atra&ccedil;&atilde;o de fluxos de capitais para o Brasil. "Temos investidores que d&atilde;o peso muito grande ao chamado ESG e que deixaram de considerar o Brasil como op&ccedil;&atilde;o de investimento", disse ele.
+No front fiscal, o economista citou o exemplo da Gr&atilde;-Bretanha &ndash; em que, em sua opini&atilde;o, houve uma "barbeiragem" no an&uacute;ncio da pol&iacute;tica econ&ocirc;mica da ex-primeira-ministra Elizabeth Truss &ndash;, como um alerta ao novo governo no Brasil.
+"N&atilde;o se pode queimar a largada, ou seja, come&ccedil;ar com algo percebido como desastroso", disse ele.
+"A Inglaterra nos faz um alerta: n&atilde;o queimar a largada", acrescentou.
+Arida disse que o Brasil vem de uma pol&iacute;tica fiscal longe de ser contracionista e tem um teto de gastos que vem sendo furado. "A preocupa&ccedil;&atilde;o maior &eacute; o risco de o novo governo enfrentar o que se passou na Gr&atilde;-Bretanha".
+Em rela&ccedil;&atilde;o &agrave; independ&ecirc;ncia do Banco Central, outro tema abordado, o economista destacou que n&atilde;o v&ecirc; possibilidade de revers&atilde;o nessa iniciativa. "A iniciativa foi um enorme avan&ccedil;o. &Eacute; algo que veio para ficar", disse ele. Arida acrescentou que o Banco Central vem fazendo &oacute;timo trabalho para aumentar a competividade no setor financeiro.
+Pedro Ant&ocirc;nio,&nbsp;presidente da CCIFB-SP, agradeceu a participa&ccedil;&atilde;o de Arida no evento, destacando dois pontos abordados na palestra do economista que "est&atilde;o na mesa e que far&atilde;o enorme diferen&ccedil;a no pr&oacute;ximo governo".
+O primeiro &eacute; a reforma do IVA, "uma medida imperativa e que j&aacute; est&aacute; madura". Ele tamb&eacute;m afirmou que o "isolacionismo" em que o Brasil mergulhou nos &uacute;ltimos anos n&atilde;o foi positivo pa&iacute;s", acrescentando que o acordo comercial entre Uni&atilde;o Europeia e Mercosul "insere o Brasil mais rapidamente no cen&aacute;rio internacional e contribuir&aacute; para aumentar nossa produtividade e atrair capitais".

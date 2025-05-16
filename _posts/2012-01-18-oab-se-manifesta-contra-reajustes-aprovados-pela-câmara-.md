@@ -1,0 +1,12 @@
+---
+layout: post
+title: "OAB se manifesta contra reajustes aprovados pela Câmara "
+date: 2012-01-18
+tags: aprovados,Câmara,Contran,manifestante
+author: None
+---
+A Ordem dos Advogados do Brasil &ndash; Seccional Pernambuco (OAB-PE) vem a p&uacute;blico manifestar o seu rep&uacute;dio aos sucessivos aumentos promovidos pela C&acirc;mara dos Vereadores do Recife &ndash; tanto no que diz respeito ao reajuste dos subs&iacute;dios em 62% - quanto no que diz respeito &agrave; eleva&ccedil;&atilde;o em 60,8% do aux&iacute;lio-combust&iacute;vel pago aos vereadores. &ldquo;Esses aumentos ferem princ&iacute;pios b&aacute;sicos da Administra&ccedil;&atilde;o P&uacute;blica, previstos, impl&iacute;cita e explicitamente, na Constitui&ccedil;&atilde;o Federal e na Constitui&ccedil;&atilde;o Pernambucana, tais como o da razoabilidade, o da proporcionalidade, o da moralidade, o da legalidade, o da efici&ecirc;ncia e o da supremacia do interesse p&uacute;blico&rdquo;, afirma o presidente da OAB-PE, Henrique Mariano. 
+
+Segundo Mariano, &eacute; not&oacute;rio que o aumento do aux&iacute;lio-combust&iacute;vel para o patamar de R$ 3.700 representa uma grave distor&ccedil;&atilde;o. &ldquo;Est&aacute; claro que os recursos aprovados s&atilde;o em muito superiores &agrave; capacidade de sua utiliza&ccedil;&atilde;o, fato este que caracteriza um flagrante desvio de finalidade do chamado &lsquo;aux&iacute;lio-combust&iacute;vel&rsquo;. N&atilde;o &eacute; razo&aacute;vel tentar convencer ou justificar o consumo, m&eacute;dio, de 1.368 litros de combust&iacute;vel por m&ecirc;s, notadamente no meio de um ano eleitoral&rdquo;, analisa o presidente. Para ele, essa eleva&ccedil;&atilde;o mais aparenta um aumento salarial disfar&ccedil;ado, perdendo a sua natureza indenizat&oacute;ria e passando a ser configurado como de natureza remunerat&oacute;ria.
+
+O presidente da OAB-PE afirma, ainda, que adotar&aacute; as medidas judiciais cab&iacute;veis contra os atos legislativos municipais que sejam considerados inconstitucionais como, por exemplo, o ingresso de uma&nbsp; A&ccedil;&atilde;o Direta de Inconstitucionalidade perante o Tribunal de Justi&ccedil;a de Pernambuco. &ldquo;Esses reajustes n&atilde;o possuem amparo legal nem na Constitui&ccedil;&atilde;o Estadual, nem na Constitui&ccedil;&atilde;o Federal, muito menos em qualquer outra norma do Pa&iacute;s, do Estado ou do Munic&iacute;pio.

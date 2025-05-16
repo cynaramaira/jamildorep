@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Copergás doa 800 cestas básicas para comunidades carentes no Recife"
+date: 2020-06-10
+tags: copergás,Recife
+author: None
+---
+A Companhia Pernambucana de Gás - Copergás, por meio da ONG Novo Jeito, doou 800 cestas básicas à população em situação de risco da Região Metropolitana do Recife. A Companhia se integrou à iniciativa Empresários por Pernambuco, que reúne entidades da sociedade, com o apoio do Governo do Estado e das Prefeituras.
+Cerca de 12 toneladas de alimentos foram distribuídas nas comunidades de Brasília Teimosa, Santa Luzia, Alto Treze de Maio, Cabanga, Portelinha, Santo Amaro, Berardo, Ribeirinha de Cajueiro, Coelhos, Aguazinha, Tururu, Bode, Pina, Fosfato e do Alto Santo Isabel. Oitocentas famílias foram beneficiadas com a doação.
+Para o diretor presidente da Copergás, André Campos, a doação de cestas básicas é mais uma demonstração clara do compromisso da Companhia com Pernambuco. “Essa ação solidária é fundamental para ajudar as famílias em situação de risco a superar as dificuldades criadas pela pandemia.
+No início de abril, a Copergás, com o intuito de minimizar os danos causados pela pandemia da Covid-19, efetuou doação de R$ 500 mil para a Saúde Pública de Pernambuco, por meio da Fundação Alice Figueira. O valor foi destinado para a compra de 3 ventiladores pulmonares SynoVentE3; 8.500 respiradores descartáveis PFF2/N95; 3.100 máscaras de proteção descartáveis; 1.500 aventais manga longa descartáveis e 11.228 máscaras de TNT.
+Por meio das doações, a Copergás reforça o seu compromisso com a população pernambucana e reforça a política de responsabilidade social, que compreende a ajuda humanitária, buscando prover famílias carentes de itens alimentícios, reduzir o sofrimento das pessoas contaminadas pelo vírus e ajudar na proteção dos profissionais da Saúde.
+Distribuir o gás natural de forma ética e sustentável, econômica e ambientalmente é a missão da Copergás, visando promover o desenvolvimento do Estado de Pernambuco, respeitando as relações com clientes e demais partes interessadas. A Companhia se dedica a expandir a infraestrutura de GN para atender os setores industrial, comercial, residencial, veicular, termoelétrico e de cogeração de energia. A rede de distribuição já ultrapassa os 800 km de extensão e beneficia mais de 28 municípios de Pernambuco.
+A Copergás é uma empresa de economia mista, tendo o Governo de Pernambuco, a Gaspetro e a Mitsui como acionistas. Atualmente, a empresa é única do Brasil a possuir uma tríplice certificação no Sistema de Gestão Integrado, confirmando seu compromisso com a qualidade ao prestar o serviço, segurança no trabalho e responsabilidade ambiental.
+As atividades da Companhia foram consideradas essenciais pelo Governo de Pernambuco. Parte do seu quadro de colaboradores continuou exercendo suas funções em campo e parte passou a trabalhar de casa.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "STF pede explicações ao Planalto sobre lei que autoriza pílula do câncer"
+date: 2016-04-22
+tags: Câncer
+author: None
+---
+Da ABr - O Supremo Tribunal Federal (STF) pediu explicações à presidenta Dilma Rousseff sobre a Lei 13.269 que  aprova o uso da fosfoetanolamina no País. O uso da substância, conhecida como pílula do câncer, foi autorizado por lei sancionada há uma semana pela presidenta. Médicos e A Agência Nacional de Vigilância Sanitária (Anvisa) são contra o dispositivo legal.
+LEIA MAIS:
+&gt;&gt; Dilma sanciona lei que libera “pílula do câncer”
+&gt;&gt; Deputado quer que MP obrigue governos a dar a ‘pílula do câncer’
+&gt;&gt; Deputados querem abrir CPI da ‘pílula do câncer’
+A decisão, proferida pelo ministro Marco Aurélio Mello, do STF, foi uma resposta à Ação Direta de Inconstitucionalidade da Associação Médica Brasileira (AMB), alegando que a lei libera o uso de uma substância que não passou pelos testes clínicos necessários para comprovar segurança e eficácia. O prazo para as explicações é de cinco dias, a partir da publicação da decisão, emitida ontem (20).
+“A nossa preocupação é que essa lei, na maneira que está colocada, permite que uma substância que a gente não conhece de maneira técnica, embasada em testes de segurança e eficacia, seja liberada para os pacientes sem registro no Ministério da Saúde ou na Anvisa. É uma grande violação da legislação que hoje regula o uso de medicamentos”, detalhou o diretor da AMB, José Bonamigo.
+O médico explica que todo medicamento deve passar por fases de testes para ser comercializado.”Os testes envolvem se esse paciente tem intolerância, efeitos adversos. Em outra fase, você testa doses diferentes para saber a eficácia. Depois essa droga é comparada com placebo, no caso de não ter um medicamento especifico para a doença, ou com outras drogas que já sejam padrão para aquela doença. Todos os tipos de câncer têm hoje tratamentos já estudados como eficazes, então não seria correto usar de maneira indiscriminada esta substância sem uma segurança do conhecimento, se ela tem segurança e qual o perfil de segurança”, defendeu Bonamigo, acrescentando que AMB não quer que a fosfoetanolamina seja proibida, e sim estudada adequadamente.
+No Brasil, para um medicamento ser comercializado, é necessário que a Agência Nacional de Vigilância Sanitária conceda um registro. Este documento só é dado quando a agência analisa e aprova todos os testes feitos pelo laboratório fabricante.
+Em palestra na Fiocruz, em Brasília, na semana passada, o presidente da Anvisa, Jarbas Barbosa, disse que a lei da fosfoetanolamina é uma “barbaridade” em todos os pontos de vista. “A Anvisa não registra substâncias, ela registra medicamentos. Ser autorizada como substância em geral vai querer dizer o que? Vai ter bula? Vai ter data de fabricação e de validade? Na bula, vai aparecer que a fosfoetanolamina funciona melhor sem quimioterapia? O que vai impedir que amanhã um produtor inescrupuloso coloque farinha em capsula e venda como fosfoetanolamina? Não vai ter autoridade sanitária para fiscalizar como temos com os medicamentos registrados. O potencial de dano é tremendo”, disse Barbosa.

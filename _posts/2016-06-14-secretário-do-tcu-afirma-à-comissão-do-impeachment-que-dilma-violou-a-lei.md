@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Secretário do TCU afirma à Comissão do Impeachment que Dilma violou a lei"
+date: 2016-06-14
+tags: comissão mista,Dilma,impeachment
+author: None
+---
+Da ABr - Convidado para falar à Comissão Processante do Impeachment do Senado Federal sobre a edição dos decretos de créditos suplementares pela presidenta afastada Dilma Rousseff, o secretário de macroavaliação governamental do Tribunal de Contas da União (TCU), Leonardo Albernaz, disse nesta segunda-feira (13), que o governo deveria ter feito acompanhamento ao longo do ano de 2015 do cumprimento da meta fiscal para evitar a perda de controle das contas públicas e, ao não fazer isso, o governo Dilma violou a Lei Orçamentária, a Lei de Diretrizes Orçamentárias e a Constituição Federal.
+Após observação da senadora Vanessa Grazziotin (PCdoB-AM) de que a meta é anual e, por isso, a presidenta Dilma não poderia ser criminalizada pela edição de decretos antes do fim do ano, quando a meta seria auferida, o secretário ressaltou que o governo teria que fazer o controle ao longo do ano para promover os contingenciamentos que fossem necessários: “Eu não posso tratar as contas públicas de qualquer forma e imaginar que, ao fim do ano, tudo se acerta. Os relatórios quadrimestrais e semestrais são essenciais”.
+Ainda segundo Albernaz, a não promoção desses contingenciamentos, quando necessários, implica em infração da lei de crimes fiscais por parte do governo. Leonardo Albernaz explicou ainda que o fato de a presidente ter enviado ao Congresso um projeto de lei modificando a meta fiscal, não concedia a ela o direito de agir de acordo com essa nova meta antes de ela ser aprovada.
+“Admitir que um projeto de lei faça as vezes de lei, é admitir que o Poder Executivo invada a competência legiferante do Congresso Nacional. A meu ver, isso significa um risco grave para a democracia e um atentado contra o nosso sistema de freios e contrapesos”, disse o secretário.
+
+Secretários do TCU confirmam 'pedaladas fiscais' do governo de Dilma Rousseffhttps://t.co/Au7ILF15rF
+— Senado Federal (@SenadoFederal) 14 de junho de 2016
+
+Albernaz também afirmou que as práticas adotadas pelo governo não são “meros fatos contábeis”, de menor importância, mas “desvios bastante contundentes” e “violação a princípios muito relevantes da responsabilidade fiscal. A meu ver, embora seja difícil isolar os fatores e quantificar a sua influência, parte da crise social e econômica que vivemos hoje está relacionada à falta de cuidado com a gestão das finanças pública ao longo dos últimos anos, incluindo 2015”, disse o secretário do TCU.
+Albernaz explicou que o órgão não faz a tipificação penal em seus relatórios e, no máximo, dá ciência sobre o cometimento de algum crime ao Ministério Público ou ao Congresso Nacional. No entanto, ele disse que os técnicos do Tribunal identificaram que houve violações às leis por parte do governo.
+“Você tem violação à Lei Orçamentária, à Lei de Diretrizes Orçamentárias e à Constituição Federal. Ou seja, esses três normativos, que normatizam o controle das finanças públicas, foram violados em alguns dos seus artigos”, disse Albernaz.
+A Comissão Processante do Impeachment terá nova reunião amanhã (14), a partir das 10h. Os senadores vão ouvir três testemunhas de defesa: o ex-presidente do Banco Nacional de Desenvolvimento Econômico e Social (BNDES), Luciano Coutinho, o ex-secretário de Política Agrícola do Ministério da Agricultura, André Nassar, e o ex-secretário de Planejamento e Investimentos Estratégicos do Ministério do Planejamento, Gilson Alceu Bittencourt.
+Os três atuaram no governo da presidente afastada Dilma Rousseff em 2015, ano no qual ela praticou atos contábeis que ensejaram o processo de impeachment e as acusações de crimes de responsabilidade pela edição de decretos de suplementação orçamentária e operações de crédito com o Banco do Brasil referentes ao pagamento do Plano Safra.

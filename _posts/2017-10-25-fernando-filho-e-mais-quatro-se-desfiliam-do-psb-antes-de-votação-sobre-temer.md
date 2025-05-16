@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Fernando Filho e mais quatro se desfiliam do PSB antes de votação sobre Temer"
+date: 2017-10-25
+tags: animais,Fernando Collor,filho,Michel Temer,quatro pessoas,variantes,votação
+author: None
+---
+Alvo de processo de expulsão do PSB, o ministro de Minas e Energia, Fernando Filho, se adiantou e pediu desfiliação do partido nesta quarta-feira (25). O auxiliar do presidente Michel Temer (PMDB) foi exonerado para votar a favor do peemedebista esta tarde na Câmara, contra a denúncia, posição contrária à dos socialistas. Apesar da saída do ministro, a sigla afirmou que não entrará na Justiça para pedir o mandato dele.
+Além de Fernando Filho, se desfiliaram nessa terça-feira (24) mais quatro deputados do PSB: Danilo Forte (CE), Adilton Sachetti (MT), Fábio Garcia (MT) e Tereza Cristina (MS), que era líder do partido até a semana passada, quando os socialistas manobraram e a retiraram do cargo, colocando Júlio Delgado (MS) no lugar.
+O PSB também não deverá pedir os mandatos deles. O próprio partido entregou uma carta com a justificativa de incompatibilidade política, ideológica e programática.
+O ministro, Forte, Garcia e a ex-líder enfrentavam desde abril processo de expulsão do PSB. Alinhados ao governo Temer, os quatro votaram a favor da reforma trabalhista, ao contrário da posição da sigla, que fechou questão contra o projeto. A votação do diretório nacional do partido estava marcada para a próxima sexta-feira (27), em Brasília.
+Os deputados já negociavam a saída do PSB, mas aguardavam a janela partidária, em março, para não perder os mandatos. Fernando Filho, por exemplo, deve seguir os passos do pai, o senador Fernando Bezerra Coelho, que foi para o PMDB e chegou a provocar um racha na executiva local da nova legenda. A filiação ao partido do presidente só deverá ser definida na próxima semana.
+Ao todo, calcula-se que haja 13 divergentes que negociam a saída do PSB e aguardam a janela partidária, em março, para não perder os mandatos no Legislativo. A bancada socialista tinha 36 deputados.
+O clã dos Coelho foi cortejado por dois meses pelo presidente da Câmara, Rodrigo Maia (DEM-RJ), para que escolhessem o Democratas, mas foi atraído pelo líder do governo, Romero Jucá (PMDB-RR), com a promessa de que receberiam o comando do partido em Pernambuco, o que ainda não aconteceu por causa de uma briga com o deputado federal Jarbas Vasconcelos (PMDB-PE), tradicionalmente líder dos peemedebistas locais, e com o atual presidente estadual da sigla, Raul Henry. A disputa foi parar nas Justiças pernambucana e do Distrito Federal, que concederam liminares a favor de Jarbas e Raul.
+Pai e filho estão na oposição e articulam o nome do ministro na disputa ao Governo de Pernambuco contra Paulo Câmara (PSB). Como hoje o PMDB é o principal aliado dos socialistas, a troca de palanque é um dos motivos da briga.
+Paulo é vice-presidente nacional do PSB. Para o governador, os socialistas alinhados a Temer devem procurar um novo rumo.
+Da mesma forma que o ministro e o senador, Tereza Cristina, Danilo Forte e Fábio Garcia foram procurados por PMDB e Democratas, criando uma disputa entre os dois partidos e deixando Maia irritado com Temer em meio à tramitação das denúncias contra o presidente na Câmara.

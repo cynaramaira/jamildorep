@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Renato Antunes 'detona' PSB por ignorar almoço oferecido por Raquel Lyra em Brasília "
+date: 2023-08-17
+tags: jamildo, Eleições 2024
+author: Jamildo Melo
+---
+O l&iacute;der do PL na Assembleia Legislativa de Pernambuco, deputado Renato Antunes, questionou e lamentou o boicote do PSB ao encontro com a governadora Raquel Lyra, em Bras&iacute;lia nesta quarta-feira, conforme revelado pelo blog.
+Em uma das suas redes sociais, o parlamentar do PL de Bolsonaro e aliado de Raquel Lyra apontou que a postura socialista demonstra uma falta de comprometimento com os interesses de Pernambuco e destacou ainda que outras siglas de oposi&ccedil;&atilde;o ao governo estadual marcaram presen&ccedil;a na reuni&atilde;o.
+&ldquo;&Eacute; lament&aacute;vel a atitude do PSB, que decidiu boicotar a reuni&atilde;o da bancada de Pernambuco com a governadora em Bras&iacute;lia. Diferentemente de outras siglas, que mesmo n&atilde;o sendo da base governista estiveram presentes no encontro, a decis&atilde;o do PSB &eacute; um aviso para popula&ccedil;&atilde;o. Isso tudo parece ser motivado apenas por desaven&ccedil;as pol&iacute;ticas eleitorais, &eacute; o poder pelo poder, e a sigla demonstra sua inaptid&atilde;o para unir for&ccedil;as em prol dos problemas reais de nosso estado&rdquo;, disparou Renato Antunes.
+"A decis&atilde;o pol&iacute;tica do PSB de n&atilde;o participar do encontro com Raquel, que contou com parlamentares e lideran&ccedil;as de outros partidos, &eacute; por quest&atilde;o eleitoral". Na vis&atilde;o do deputado, que preside o PL no Recife, &eacute; preciso responsabilidade para fazer oposi&ccedil;&atilde;o.
+&rdquo;Isso tudo parece ser motivado apenas por desaven&ccedil;as pol&iacute;ticas eleitorais, &eacute; o poder pelo poder, e a sigla demonstra sua inaptid&atilde;o para unir for&ccedil;as em prol dos problemas reais de nosso estado. Isso n&atilde;o &eacute; ser oposi&ccedil;&atilde;o, &eacute; ser contra Pernambuco&rdquo;, afirmou Renato, acostumando-se a ser vidra&ccedil;a na atual legislatura.
+Os deputados federais Eduardo da Fonte, Clodoaldo Magalh&atilde;es, Renildo Calheiros, Iza Arruda, Coronel Meira, Guilherme Uch&ocirc;a J&uacute;nior, Carlos Veras, Augusto Coutinho, T&uacute;lio Gad&ecirc;lha, Pastor Eurico, Andr&eacute; Ferreira, Lula da Fonte, Fernando Rodolfo, Luciano Bivar, Silvio Costa Filho, Fernando Filho, Waldemar Oliveira e Fernando Monteiro tamb&eacute;m estiveram no encontro.

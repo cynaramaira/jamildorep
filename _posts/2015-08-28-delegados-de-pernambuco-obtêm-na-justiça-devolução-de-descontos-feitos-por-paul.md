@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Delegados de Pernambuco obtêm na Justiça devolução de descontos feitos por Paulo Câmara"
+date: 2015-08-28
+tags: devolução,Justiça,Paulo Câmara,pernambuco,Prefeitos
+author: None
+---
+Sem alarde, na quarta-feira, a Justiça de Pernambuco determinou através de liminar que o Estado devolva valores descontados dos salários de quatro delegados de polícia que se negaram a participar de plantões criados pela Chefia de Polícia da Secretaria de Defesa Social (SDS).
+A liminar foi concedida no dia 26 pelo juiz Breno Duarte Ribeiro da 1ª Vara da Fazenda da Capital.
+Os delegados Sara Gouveia, Margarete Galdino, Paollus Edwardo e Abraão Didier se negaram a cumprir escalas de plantão no mês de julho. Em razão disto, tiveram seus salários descontados pela SDS e pela Polícia Civil. Eles reclamaram que a decisão foi arbritária e que os plantões eram clandestinos.
+Para a Adeppe (Associação dos Delegados de Polícia de Pernambuco), os descontos foram feitos com claro intuito de coagir os delegados a cumprir as escalas, mas não funcionou. A Adeppe ingressou com ações judiciais e vem obtendo êxito em todas elas.
+"Os delegados trabalham 40 horas semanais e, neste caso, foram escalados para trabalhar no sábado e domingo, perdendo o direito ao seu repouso semanal remunerado. Obviamente, todos se negaram e a SDS passou a perseguir os servidores, instaurando processos administrativos e efetuando descontos no salário”, acusa a entidade sindical.
+No mês de julho os delegados resolveram em assembleia da categoria deixar o PJES (Programa de Jornada Extra da Segurança), que servia de suporte para manutenção dos plantões no interior do Estado. Com a decisão judicial, o Estado terá que devolver os valores aos delegados sob pena de multa diária de R$ 500, em caso de descumprimento. A categoria comemorou a decisão.
+No mesmo dia da decisão judicial, o Sinpol realizou o “Dia Estadual de Mobilização” , em dez cidades do estado de Pernambuco. Panfletos denunciavam a falta de estrutura e condições de trabalho. “Governo do Estado sucateia quem investiga e soluciona os crimes”, diziam as faixas.
+Em Recife, o ato foi realizado, ás 9h, na Praça do Derby. Simultaneamente, outros atos foram realizados em Palmares, Goiana, Serra Talhada e Salgueiro. No agreste pernambucano, Caruaru e Garanhuns. Diretores do Sinpol também foram até Petrolina. Rafael Cavalcanti, vice-presidente do Sindicato, e o secretário geral, Douglas Lemos, realizaram um ato público, junto com os policiais civis, em frente à Prefeitura.
+“A violência está crescendo de uma forma assustadora em Pernambuco e o Governo do Estado não está preocupado em resolver essa situação. Não estamos nas ruas apenas reivindicando melhorias para a polícia civil. Queremos melhores condições de trabalho para realizar bem nosso papel. Não temos a quantidade necessária de policiais civis para atender bem a população, nem estrutura adequada nas delegacias. Precisamos, urgentemente, que o Governo olhe para a população pernambucana e veja que o medo está tomando conta dos cidadãos”, disse Áureo Cisneiros, presidente do Sinpol, em discurso.

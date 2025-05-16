@@ -1,0 +1,40 @@
+---
+layout: post
+title: "Juiz eleitoral queria abandonar comarca com medo da violência. TJPE nega"
+date: 2008-12-09
+tags: fundo eleitoral,prejuízos,tjpe
+author: None
+---
+&nbsp;CONSELHO DA MAGISTRATURA
+Presidente: Des. Jones Figueir&ecirc;do Alves
+SOB A PRESID&Ecirc;NCIA DO EXM&ordm; SR. DES. BARTOLOMEU BUENO DE FREITAS MORAIS (PRESIDENTE EM EXERC&Iacute;CIO), REALIZOU-SE, NO DIA 20 (VINTE) DE NOVEMBRO DE 2008, NO 3&ordm; ANDAR DO PAL&Aacute;CIO DA JUSTI&Ccedil;A, MAIS UMA SESS&Atilde;O ORDIN&Aacute;RIA DO CONSELHO DA MAGISTRATURA. PRESENTES OS EXM&ordm;S. SRS. DESEMBARGADORES; JOS&Eacute; FERNANDES DE LEMOS (CORREGEDOR GERAL DA JUSTI&Ccedil;A); LUIZ CARLOS DE BARROS FIGUEIREDO; ROMERO DE OLIVEIRA ANDRADE; FAUSTO DE CASTRO CAMPOS E ALEXANDRE GUEDES ALCOFORADO ASSUN&Ccedil;&Atilde;O (SUPLENTE). AUSENTES, JUSTIFICADAMENTE, O EXM&ordm; SR. DESEMBARGADOR JONES FIGUEIR&Ecirc;DO ALVES (PRESIDENTE).
+J U L G A M E N T O PROCESSO RELATADO PELO EXM&ordm; SR. DES. JOS&Eacute; FERNANDES DE LEMOS (CORREGEDOR GERAL DA JUSTI&Ccedil;A): 
+Processo n&ordm; 157/2008-4-CM. 
+Tipo de Processo: 
+Requerimento (autoriza&ccedil;&atilde;o para residir na Comarca do Recife).
+Parte Requerente: O Exm&ordm; Sr. Dr. ..., Juiz de Direito da Comarca de ....
+&quot;Decidiu o Conselho, &agrave; unanimidade, indeferir o pedido do magistrado de n&atilde;o pernoitar na Comarca indicada, por falta de seguran&ccedil;a, publicando-se o voto do Relator, com as omiss&otilde;es do nome do magistrado e da Comarca, acolhendo-se, ainda, a Proposi&ccedil;&atilde;o oral do Exm&ordm; Sr. Des. Romero de Oliveira Andrade, de que o brilhante voto do Relator, Corregedor Geral da Justi&ccedil;a, sirva de par&acirc;metro, para os casos semelhantes ou an&aacute;logos&quot;.
+VOTO
+Em primeiro lugar, deixo registrada minha perplexidade ante o pleito formulado pelo magistrado titular da ... Vara ... Comarca de .... Digo isso porque esse munic&iacute;pio n&atilde;o det&eacute;m, ao menos que seja conhecimento de dom&iacute;nio p&uacute;blico, nenhum &iacute;ndice excepcionalmente negativo de viol&ecirc;ncia que destoe de outros de nosso Estado com caracter&iacute;sticas semelhantes.
+Em segundo lugar, deixo registrado, tamb&eacute;m, que o magistrado n&atilde;o demonstrou nenhuma raz&atilde;o objetiva para fundamentar o pleito formulado. Ali&aacute;s, sua peti&ccedil;&atilde;o foi elaborada sem nenhum cuidado, dando n&iacute;tida impress&atilde;o de que n&atilde;o existem raz&otilde;es reais a embas&aacute;-la. O magistrado refere-se apenas a fatos ocorridos na &uacute;ltima elei&ccedil;&atilde;o, veiculados na imprensa do Estado.
+O requerente n&atilde;o se preocupou, sequer, em narr&aacute;-los em sua peti&ccedil;&atilde;o: contentou-se em anexar fotoc&oacute;pias de jornais. &Eacute; evidente que se sabe o que ocorreu em ... nas &uacute;ltimas elei&ccedil;&otilde;es; isso &eacute; fato p&uacute;blico.
+No entanto, n&atilde;o explica o motivo concreto pelo qual afirma: &quot;n&atilde;o mais sinto seguran&ccedil;a em passar as noites nesta cidade [...]&quot;. A Constitui&ccedil;&atilde;o Federal &eacute; expressa em determinar que o magistrado deve residir na comarca em que possua exerc&iacute;cio. As raz&otilde;es para esse comando normativo s&atilde;o &oacute;bvias e est&atilde;o todas conectadas &agrave; melhor presta&ccedil;&atilde;o jurisdicional e &agrave; sensa&ccedil;&atilde;o de seguran&ccedil;a que isso transmite &agrave; sociedade. Assim, um juiz que pretende deixar de residir na comarca deve convencer de modo cabal ao &Oacute;rg&atilde;o Especial do Tribunal. Os motivos devem ser expl&iacute;citos e relevantes, sob pena de absoluto desrespeito a um important&iacute;ssimo valor positivo pela Carta da Rep&uacute;blica.
+No caso presente o juiz n&atilde;o se refere, sequer, a uma eventual falta de seguran&ccedil;a generalizada a amea&ccedil;ar todos os munic&iacute;pios. A aceitar a vaga e irrespons&aacute;vel alega&ccedil;&atilde;o do magistrado, nenhum cidad&atilde;o poderia &quot;passar as noites na cidade&quot;. Mesmo que se admitisse que os temores do magistrado se referem ao fato de estar na condi&ccedil;&atilde;o de juiz eleitoral na comarca, tampouco assim teria sentido seu pleito.
+&nbsp;Isso pela raz&atilde;o &oacute;bvia de que n&atilde;o existe qualquer prova ou ind&iacute;cio de que as eventuais &quot;inseguran&ccedil;as&quot; ocorridas no processo eleitoral continuem. O requerente tamb&eacute;m parece n&atilde;o acompanhar as informa&ccedil;&otilde;es acerca dos tr&aacute;gicos &iacute;ndices que demonstram o grau de viol&ecirc;ncia e inseguran&ccedil;a das cidades brasileiras: lamentavelmente o Recife encontra-se dentre as piores colocadas. Assim, e de modo emp&iacute;rico, pode-se afirmar que ningu&eacute;m pode pensar em obter maior seguran&ccedil;a mudando-se de ... para a Capital do Estado.
+Parece, tamb&eacute;m, que o requerente se esquece de algo imprescind&iacute;vel: o Poder Judici&aacute;rio deve estar presente, de modo muito mais efetivo, nos locais onde est&atilde;o os conflitos.
+Provavelmente em um &quot;reino de santos&quot; n&atilde;o haveria necessidade da presen&ccedil;a de um juiz.
+Como justificar que um magistrado simplesmente porque &quot;n&atilde;o se sente seguro de estar em uma comarca&quot;, sem demonstrar nenhuma raz&atilde;o objetiva, abandone-a deixando os jurisdicionados &agrave; pr&oacute;pria sorte.
+Se o requerente necessita de algum tipo especial e extraordin&aacute;rio de seguran&ccedil;a, que a requeira &agrave; inst&acirc;ncia competente; simplesmente deixar de &quot;passar as noites&quot; na comarca n&atilde;o &eacute; a forma jur&iacute;dica mais adequada para resolver o suposto problema. A hist&oacute;ria de Pernambuco est&aacute; repleta de fatos her&oacute;icos e grandiosos que mudaram o curso das coisas.
+Conhecemos pessoas que, como verdadeiros m&aacute;rtires, entregaram-se integralmente aos ideais em que acreditavam. Fatos, por exemplo, como aqueles que envolvem as &quot;Hero&iacute;nas de Tejucupapo&quot; devem inspirar a todos, autoridades p&uacute;blicas ou n&atilde;o, no sentido de reconhecer que o medo que paralisa &eacute; a porta por onde entram v&iacute;cios como a covardia.
+Registra nossa hist&oacute;ria que h&aacute; mais de 350 anos na Batalha de Tejucupapo, ocorrida no distrito do mesmo nome, situado no Munic&iacute;pio de Goiana, as mulheres expulsaram os invasores holandeses munidas apenas de panelas de barros, &aacute;gua fervente com pimenta e utens&iacute;lios de pesca.
+Muito mais perto de n&oacute;s est&aacute; o exemplo de tr&ecirc;s ju&iacute;zas que no desempenho das suas fun&ccedil;&otilde;es judicantes sofreram e sofrem verdadeiramente pondo em risco a pr&oacute;pria vida. Cito, apenas de modo exemplificativo, as doutas magistradas Maria Auri Alexandre Ribeiro, quando estava em Floresta, In&ecirc;s Maria Albuquerque Alves, com desempenho na Vara do Tribunal do J&uacute;ri da Comarca de Jaboat&atilde;o dos Guararapes e Mariza Silva Borges na 1&ordf; Vara da Comarca de Goiana.
+Essas ju&iacute;zas cumpriram e v&ecirc;m cumprindo suas fun&ccedil;&otilde;es apesar de todas as adversidades que tiveram e t&ecirc;m de enfrentar e, em momento algum, deixaram de residir em suas Comarcas sob a alega&ccedil;&atilde;o de falta de seguran&ccedil;a: tinham e t&ecirc;m consci&ecirc;ncia de que sua presen&ccedil;a f&iacute;sica junto aos jurisdicionados era e &eacute; imprescind&iacute;vel.
+Essa postura &eacute; um exemplo que dignifica a magistratura. 
+N&atilde;o vejo, no caso presente, nenhuma raz&atilde;o que justifique o pleito ora formulado. Ao contr&aacute;rio, concordar com os (insuficientes) argumentos do requerente &eacute; prestar verdadeiro desservi&ccedil;o &agrave; magistratura.
+Por essas raz&otilde;es indefiro o pleito.
+&Eacute; como voto.
+Recife, 20 de novembro de 2008.
+Des. Jos&eacute; Fernandes de Lemos Corregedor Geral da Justi&ccedil;a. 
+Recife, 27 de novembro de 2008.&nbsp;
+&nbsp;
+Veja o original aqui. 

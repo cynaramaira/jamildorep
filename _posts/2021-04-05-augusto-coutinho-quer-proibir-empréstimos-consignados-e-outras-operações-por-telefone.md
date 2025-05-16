@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Augusto Coutinho quer proibir empréstimos consignados e outras operações por telefone"
+date: 2021-04-05
+tags: Augusto Aras,empréstimos,operações policiais,Philippe Coutinho,telefones
+author: None
+---
+O Projeto de Lei 928/2021, de autoria do deputado federal Augusto Coutinho (Solidariedade-PE), veda a oferta, por telefone, de empréstimos, financiamentos, seguros, aplicações financeiras, ou qualquer outro tipo de operação com desconto de prestações em folha de pagamento.
+"Uma prática comum, acompanhada muitas vezes de abuso por parte das instituições financeiras, pode estar com os dias contados", diz. “O assédio das instituições financeiras para vender crédito consignado está entre as principais reclamações de aposentados e pensionistas, o que além de ser incômodo, pode ser altamente arriscado”, justifica o parlamentar.
+O projeto de lei tem como objetivo inibir a abordagem abusiva na oferta ostensiva de crédito consignado por meio de métodos comerciais coercitivos, sobretudo em ligações telefônicas constantes e insistentes das instituições financeiras e seus representantes.
+“Há, inclusive, diversos relatos de aposentados que contratam empréstimo consignado apenas para ver se conseguem parar de receber as incômodas ligações”, destaca Augusto Coutinho, lembrando que, em muitos casos, informações parciais e incompletas são repassadas aos consumidores por telefone e, por não terem o contrato em meio físico para averiguarem o que foi falado, acabam sendo ludibriados ou contratando algo que nem ao menos entenderam o funcionamento e as condições.
+O projeto de lei permite apenas que esses empréstimos e essas operações por telefone sejam realizados quando o consumidor seja correntista da instituição financeira em questão. O descumprimento da medida estará sujeito a multa que deve ser regulamentada pelo Poder Executivo.
+“Desta forma, a oferta irresponsável de crédito pelas instituições financeiras deve ser inibida. Nós temos que dar também uma atenção especial aos idosos, parcela da população que possui maior vulnerabilidade. O consumidor deve ter a oportunidade de tomar conhecimento prévio do todo o conteúdo do contrato, das taxas de juros e ter tempo para pensar a respeito do impacto das parcelas para o pagamento do empréstimo no seu orçamento”, afirma o deputado.
+Segundo o deputado, a oferta persistente de crédito por meio telefônico dificulta a racionalização dos termos contratuais, fazendo com que muitos agentes financeiros se prevaleçam da fraqueza ou falta de informação do consumidor, tendo em vista sua idade, saúde, conhecimento ou condição social, para pressioná-los a adquirir seus serviços.
+“A contratação de empréstimo consignado por meio de contato telefônico, sem o fornecimento de contrato escrito no ato da celebração é uma prática abusiva que deve ser amplamente abordada na legislação”, justificou.

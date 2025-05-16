@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Fenafisco diz que congelamento salarial é indigno e vexatório"
+date: 2020-05-06
+tags: abono salarial
+author: None
+---
+Em razão da votação, pela Câmara dos Deputados, do PLP 39/2020, que estabelece o Programa Federativo de Enfrentamento ao coronavírus, a Federação Nacional do Fisco Estadual e Distrital (Fenafisco) vem a público manifestar o seguinte posicionamento:
+A Câmara dos Deputados fez justiça a um conjunto amplo de servidores públicos civis e militares da União, dos Estados, do Distrito Federal e dos Municípios, ao excluí-los do congelamento salarial de quase 2 anos que fora imposto pelo Senado Federal.
+Pela decisão sujeita à confirmação pelo Senado Federal, ficaram excluídas do congelamento salarial as seguintes categorias: I) militares das Forças Armadas (Marinha, Exército e Aeronáutica); II) polícia federal; III) polícia rodoviária federal; IV) polícia ferroviária federal; V) polícias civis; VI) polícias militares e corpos de bombeiros militares; VII) polícias penais federal, estaduais e distrital; VIII) policiais legislativos; IX) técnicos e peritos criminais; X) agentes socioeducativos; XI) limpeza urbana; XII) assistência social; XIII) profissionais de saúde; XIV) trabalhadores da educação pública.
+Juntas, essas carreiras compreendem a imensa maioria dos servidores públicos dos Poderes Executivos das três esferas de governo.
+Além de fazer justiça a milhões de servidores públicos de todo o país, a Câmara dos Deputados reparou, em parte, a decisão do Senado Federal do último dia 2 de maio, que tomou os servidores públicos como os responsáveis pela salvação da economia nacional, a pretexto de que “todos devem dar a sua cota de sacrifício”, impondo-lhes o congelamento salarial como prova desse sacrifício, enquanto os detentores de grandes fortunas seguem fora do alcance até mesmo do pagamento de tributos compatíveis com sua capacidade econômica.
+Sem desmerecer a importância da medida dispensada à ampla maioria dos servidores públicos, a Fenafisco entende que se mostra insustentável do ponto de vista fiscal, injustificável do ponto de vista constitucional (pelo princípio da isonomia) e incompreensível do ponto de vista político, a manutenção do congelamento salarial para os demais servidores públicos. Insistir no congelamento salarial para alguns servidores públicos (que estão seguramente entre os que pagam mais impostos no Brasil) é indigno e vexatório, para não falar de legalmente frágil.
+Nesse momento dramático da vida nacional, a Fenafisco apela aos mandatários eleitos pela sociedade em perigo, para que se espelhem no exemplo dos principais países do mundo, que vêm aumentando o gasto social e fortalecendo o Estado (leia-se: serviço público) para salvar vidas, garantir o sustento dos mais vulneráveis e manter empregos para sair o quanto antes da pandemia com capacidade para retomar o crescimento econômico.
+Federação Nacional do Fisco Estadual e Distrital (Fenafisco)

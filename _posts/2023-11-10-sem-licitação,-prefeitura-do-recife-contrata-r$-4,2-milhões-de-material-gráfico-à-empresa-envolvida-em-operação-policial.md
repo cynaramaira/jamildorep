@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Sem licitação, Prefeitura do Recife contrata R$ 4,2 milhões de material gráfico à empresa envolvida em operação policial"
+date: 2023-11-10
+tags: jamildo, prefeitura do recife
+author: Jamildo Melo
+---
+Uma semana ap&oacute;s a opera&ccedil;&atilde;o Brucia la Terra, do Minist&eacute;rio P&uacute;blico do Estado de Pernambuco (MPPE), com apoio da Pol&iacute;cia Civil, fontes policiais detectaram novas e recentes contrata&ccedil;&otilde;es da empresa do grupo empresarial Sebasti&atilde;o Figueiroa.
+De acordo com um mapeamento realizado pela oposi&ccedil;&atilde;o a Jo&atilde;o Campos, a Secretaria de Educa&ccedil;&atilde;o do munic&iacute;pio do Recife, por exemplo, contratou entre setembro e outubro deste ano, atrav&eacute;s de uma ades&atilde;o &agrave; ata de registro de pre&ccedil;os de uma associa&ccedil;&atilde;o de munic&iacute;pios de Minas Gerais, a gr&aacute;fica Gr&aacute;fica e Editora Quinta das Fontes (antiga Gr&aacute;fica Cana&atilde;) para confec&ccedil;&atilde;o de R$ 4,2 milh&otilde;es em materiais de apoio &agrave;s escolas da rede p&uacute;blica municipal. A empresa foi alvo de busca e apreens&atilde;o na Opera&ccedil;&atilde;o.
+Entre as medidas cautelares determinadas pela ju&iacute;za Roberta Nogueira, est&aacute; a proibi&ccedil;&atilde;o dessa empresa ser contratada pelo poder p&uacute;blico em Pernambuco. A decis&atilde;o s&oacute; veio &agrave; tona sete dias ap&oacute;s a emiss&atilde;o do empenho pela gest&atilde;o municipal.
+A ades&atilde;o em forma de carona a uma ata de registro de pre&ccedil;os &eacute; uma possibilidade legal de a administra&ccedil;&atilde;o p&uacute;blica contratar um fornecedor sem realizar licita&ccedil;&atilde;o pr&oacute;pria. Os empenhos est&atilde;o disponibilizados no Portal Tome Contas, do Tribunal de Contas do Estado, e somam R$ 2,21 milh&otilde;es (empenho 2023NE05982000) e R$ 2,28 milh&otilde;es (empenho 2023NE06272000).
+Emitidos em 22 de setembro e 16 de outubro, respectivamente, os empenhos &ndash; ainda n&atilde;o liquidados e pagos &ndash; contratam para a rede municipal de educa&ccedil;&atilde;o itens como 8.760 pastas em nylon (R$ 67,10 a unidade), 7.00, agendas (R$ 60,00 a unidade) e 4.140 faixas em lonas vin&iacute;licas (R$ 76,10 a unidade), por exemplo.
+Nos documentos internos, o TCE informa que a Prefeitura do Recife aderiu &agrave; ata 001/2023 da Associa&ccedil;&atilde;o dos Munic&iacute;pios do M&eacute;dio S&atilde;o Francisco (AMMESF).
+Embora j&aacute; tenham sido publicados os empenhos, tamb&eacute;m registrados no Portal da Transpar&ecirc;ncia do munic&iacute;pio do Recife, a ades&atilde;o &agrave; ata da AMMESF ainda n&atilde;o foi formalizada no Di&aacute;rio Oficial do Munic&iacute;pio, apurou a oposi&ccedil;&atilde;o.
+A empresa em quest&atilde;o pertence formalmente aos filhos do empres&aacute;rio Sebasti&atilde;o Figueiroa, Davidson Mendon&ccedil;a Figueiroa e Suellen Mendon&ccedil;a Figueiroa de Mello, que tamb&eacute;m foram presos pela Opera&ccedil;&atilde;o realizada na semana passada.
+A Justi&ccedil;a determinou que 14 empresas e 16 pessoas f&iacute;sicas ficassem suspensas temporariamente de contratar com o poder p&uacute;blico, entre essas a Quinta das Fontes e os empres&aacute;rios Davidson e Suellen Figueiroa.
+Outro lado
+Com a palavra, a Prefeitura da Cidade do Recife, entendendo que sejam necess&aacute;rios esclarecimentos adicionais. Por &oacute;bvio, o blog de Jamildo explica que a divulga&ccedil;&atilde;o de informa&ccedil;&otilde;es n&atilde;o significa endosso a nenhuma das partes

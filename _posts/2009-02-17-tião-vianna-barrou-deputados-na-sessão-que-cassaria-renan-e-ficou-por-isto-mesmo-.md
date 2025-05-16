@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Tião Vianna barrou deputados na sessão que cassaria Renan e ficou por isto mesmo "
+date: 2009-02-17
+tags: deputados,leonardo bastião,pistolas,Renan Calheiros,sessão solene
+author: None
+---
+O ministro do Supremo Tribunal Federal (STF) Celso de Mello determinou o arquivamento do procedimento penal (PET 4468), em tramita&ccedil;&atilde;o na Corte, que investigava se o senador Ti&atilde;o Vianna (PT-AC) cometeu crime de desobedi&ecirc;ncia ao impedir a entrada de deputados federais na sess&atilde;o do Senado que ia deliberar sobre a cassa&ccedil;&atilde;o do senador Renan Calheiros (PMDB-AL), em setembro de 2007.
+Em sua decis&atilde;o, o ministro revela que o Minist&eacute;rio P&uacute;blico Federal (MPF) reconheceu que o senador acreano, vice-presidente do Senado &agrave; &eacute;poca, n&atilde;o desrespeitou decis&atilde;o da Corte (liminar no Mandado de Seguran&ccedil;a 26900) que permitiu a entrada de deputados federais para acompanhar a sess&atilde;o. Na ocasi&atilde;o seria decidida a cassa&ccedil;&atilde;o do senador Renan Calheiros (PMDB-AL) no epis&oacute;dio envolvendo o pagamento de pens&atilde;o aliment&iacute;cia para a jornalista Monica Velloso.
+A investiga&ccedil;&atilde;o foi instaurada para apurar suposto abuso de autoridade por parte da pol&iacute;cia legislativa do Senado, que barrou a entrada dos deputados no plen&aacute;rio da Casa para acompanhar a sess&atilde;o secreta. Os policiais diziam cumprir ordens de Ti&atilde;o Vianna. No curso da investiga&ccedil;&atilde;o, explicou o MPF, teriam surgido ind&iacute;cios de que o senador pelo Acre teria cometido o crime de desobedi&ecirc;ncia (artigo 330 do C&oacute;digo Penal).
+Ap&oacute;s ouvir as testemunhas, por&eacute;m, o pr&oacute;prio MPF frisou &ldquo;n&atilde;o vislumbrar a exist&ecirc;ncia de ind&iacute;cios m&iacute;nimos de autoria que pudessem justificar, quanto ao congressista detentor da prerrogativa de foro perante o STF, a formula&ccedil;&atilde;o de opinio delicti (den&uacute;ncia)&rdquo;. E, em conseq&uuml;&ecirc;ncia disso, pediu ao ministro o arquivamento do processo contra Ti&atilde;o Vianna.
+Celso de Mello acolheu o pedido do Minist&eacute;rio Publico, determinando, ainda que quanto aos demais investigados &ndash; da pol&iacute;cia legislativa do Senado &ndash;, o processo seja remetido para a 10&ordf; Vara Criminal Federal do Distrito Federal.
+&nbsp; 

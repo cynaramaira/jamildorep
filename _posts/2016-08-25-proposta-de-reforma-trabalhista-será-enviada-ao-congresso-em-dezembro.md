@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Proposta de reforma trabalhista será enviada ao Congresso em dezembro"
+date: 2016-08-25
+tags: Congresso,dezembro,proposta,reformas,regras trabalhistas,Serasa
+author: None
+---
+Estadão Conteúdo - O ministro do Trabalho, Ronaldo Nogueira, disse nesta quinta-feira (25) no Rio que o governo vai enviar ao Congresso na primeira quinzena de dezembro a proposta de atualização da legislação trabalhista. Ele garantiu que os trabalhadores não têm o que temer com relação a direitos já adquiridos. "O trabalhador não será traído pelo ministro do Trabalho", afirmou Nogueira, depois de participar da abertura do seminário que comemora os 75 anos da Justiça de Trabalho no Brasil, na Fundação Getulio Vargas.
+"Quero reiterar aqui para que não tenha nenhuma especulação por parte de setores mal intencionados: direito você não revoga, você aprimora. O trabalhador não corre nenhum risco, não há nenhuma possibilidade de parcelamento de 13º salário, de fatiamento de férias, de aumento de jornada de trabalho, nem de alteração das regras do Fundo de Garantia por Tempo de Serviço (FGTS)", afirmou.
+ Nogueira afirmou que direitos serão aprimorados, não revogados (Foto: Lúcio Bernardo JR/ Câmara dos Deputados)
+"O Brasil não pode esperar mais. O Congresso tem a consciência disso. Nós temos a coragem necessária para fazer o enfrentamento e promover a reforma e atualização da legislação. O trabalhador não será prejudicado. Terá a oportunidade de ser mais ativo em sua representação sindical", assegurou Nogueira.
+A proposta a ser apresentada pelo governo tem três eixos, segundo o ministro: dar segurança jurídica para os contratos de trabalho, criar oportunidades de ocupação com renda e consolidar direitos. "Precisamos atualizar a legislação trabalhista para que a leitura do contrato seja fiel, seja a mesma por parte do empregador, do trabalhador e do juiz. O investidor não pode conviver com o fantasma de uma ação trabalhista e de uma decisão injusta que onere seu patrimônio. Pretendemos prestigiar a negociação coletiva", explicou.
+O ministro acredita que a conclusão do processo de impeachment da presidente afastada, Dilma Rousseff, e a confirmação do presidente em exercício, Michel Temer, no cargo deve ajudar na retomada de investimentos no País, recuperação da economia e consequente redução do número de desempregados, hoje em 20 milhões de pessoas.
+"Não dá para vincular uma coisa à outra, mas o governo do presidente em exercício demonstra uma credibilidade maior para o mercado, e o mercado tem sinalizado isso. Inclusive os próprios investidores se movimentam para investir no Brasil e isso traz um cenário muito positivo para a recuperação da economia".

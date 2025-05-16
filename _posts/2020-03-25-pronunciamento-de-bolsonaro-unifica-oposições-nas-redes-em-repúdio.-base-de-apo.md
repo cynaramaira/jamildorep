@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Pronunciamento de Bolsonaro unifica oposições nas redes em repúdio. Base de apoio do presidente foi isolada, diz FGV"
+date: 2020-03-25
+tags: Bolsonaro,FGV,Presidente,Pronunciamento,redes,Texto-Base
+author: None
+---
+Sala de Democracia Digital, da FGV, do Rio de Janeiro - No Twitter, grupos "não alinhado" e de "esquerda" se fundem em reação ao pronunciamento, que gerou 3,5 milhões de postagens entre as 20h30m desta terça e a 0h desta quarta. Grupo de "direita" mantém nível similar ao observado desde o início da crise da pandemia, embora com leve queda de presença no debate em comparação com a segunda-feira (23). No YouTube, reações negativas superam as positivas desde o fim da fala de Bolsonaro.
+Twitter
+O pronunciamento do presidente Jair Bolsonaro em cadeia nacional, na noite de terça-feira (24), provocou uma forte convergência das oposições em repúdio ao tom adotado como reação à crise do Covid-19. Pela primeira vez desde o anúncio, pela OMS, da pandemia do coronavírus, análise da Diretoria de Análise de Políticas Públicas da Fundação Getulio Vargas (FGV DAPP) identificou no Twitter uma união entre os grupos "não alinhado" e de "esquerda" em reação ao discurso.
+O grupo que inclui a base de apoio bolsonarista manteve nível similar de participação no debate observado desde o início da crise (oscilando diariamente entre 6% e 8% de presença na rede), embora com leve queda de presença no debate em comparação com a segunda-feira (23), indicando um aumento do isolamento da base de apoio do presidente nas redes.
+No total, foram 6 milhões de postagens no Twitter, nesta terça-feira, sobre o coronavírus e a conjuntura política, o pico histórico de debate diário observado pela FGV DAPP desde o começo de março; apenas entre as 20h30 (começo do pronunciamento) e a 0h, 3,5 milhões de menções. no período total de monitoramento, já se somam 50 milhões de postagens na rede social relacionadas à pandemia no país.
+A reorganização de um grupo unificado entre perfis à esquerda e de outros lados do espectro político acentua a relevância da resposta de diferentes setores da sociedade em oposição ao presidente, inclusive entre antigos apoiadores. Só permanece como mobilizador da base pró-governo o conjunto estável de parlamentares bolsonaristas, influenciadores alinhados a Olavo de Carvalho e os perfis do presidente e de sua família.
+YouTube
+A FGV DAPP acompanhou também a evolução das avaliações ao vídeo do pronunciamento de terça (24) do presidente Jair Bolsonaro no Youtube. De acordo com o levantamento, o vídeo, transmitido ao vivo por um canal da TV Brasil,TV BrasilGov, foi reproduzido 3,9 milhões de vezes até às 12h de quarta (25), sendo avaliado 529 mil vezes, das quais foram 175 mil avaliações positivas e 354 mil negativas. A distância entre os dislikes e os likes aumentou 5,2 vezes entre 21h e 01h. Até 12h quarta (25), a distância era de 179 mil dislikes.
+Ganha espaço em debate sobre COVID-19 em Youtube e Whatsapp e base bolsonarista mira China para orientar reação
+Grupo pró-Bolsonaro mantém baixo volume de interações no Twitter, oscilando entre 6% e 8% das discussões, superado pela esquerda; grupo central amplo, também com visão crítica sobre o presidente, segue como principal mobilizador.
+Desinformação cai em todas as principais plataformas, substituída por veículos jornalísticos.
+Ambas, em geral, são as fontes de maior propagação de notícias falsas, conteúdo acusatório (ou apócrifo) e teorias da conspiração. Isso se verificou no começo do debate sobre o COVID-19 no país, mas, ao longo da última semana, houve queda de engajamento em desinformação no site e no aplicativo.
+Dentre os vídeos mais assistidos do Youtube no período, quase todos são de veículos jornalísticos, e mesmo em grupos políticos do WhatsApp o link mais compartilhado nos últimos sete dias foi a plataforma brasileira coronabr.com.br, de auxílio diagnóstico.
+Os ataques à China
+Em contraposição, persiste forte atividade de produção de conteúdos, por influenciadores da ala alinhada a Olavo de Carvalho, de culpabilização da China em relação à pandemia, sobretudo no WhatsApp. Esse recorte temático é hoje central ao engajamento da direita nas redes sobre o vírus.

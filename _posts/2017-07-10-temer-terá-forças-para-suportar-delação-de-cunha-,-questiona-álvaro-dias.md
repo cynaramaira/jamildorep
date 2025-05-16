@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Temer terá forças para suportar delação de Cunha?, questiona Álvaro Dias"
+date: 2017-07-10
+tags: Álvaro Odriozola,Forças Armadas,Fred Dias,Michel Temer,terapia,thiago cunha
+author: None
+---
+Em pronunciamento no Senado, Álvaro Dias, pré-candidato à presidência pelo Podemos, comentou a denúncia contra o presidente Michel Temer (PMDB) por corrupção passiva e previu que o peemedebista não deve se manter no cargo. "A crise avança. É possível até que o Presidente Temer consiga preservar o seu mandato neste primeiro momento, em razão desta denúncia primeira. Mas será que terá forças para suportar novas denúncias do Procurador-Geral da República?", questionou. "Ou será que terá forças para suportar a eventual delação anunciada do senhor Eduardo Cunha?".
+O relator da denúncia contra Temer na Comissão de Constituição e Justiça (CCJ), Sérgio Zveiter (PMDB-RJ), votou nesta segunda-feira (10) pelo prosseguimento da investigação. Para ele, as acusações são graves e as evidências não são frágeis. O procurador-geral da República, Rodrigo Janot, ainda apura se o presidente pode ter cometido o crime de obstrução de Justiça.
+"O que cabe agora analisar é porque chegamos a essa situação dramática. O mal na política brasileira é que políticos importantes se acostumaram a não ver nada, a não saber de nada. Eu indago: não sabiam quem era o presidente Temer? Há quanto tempo se sabe quem é o Presidente Temer? Fernando Henrique Cardoso não sabia? Lula não sabia? Dilma não sabia? Os partidos políticos não sabiam?", indagou ainda.
+
+"É evidente que sabiam. É que nasceu no Brasil o político avestruz. O avestruz, você sabe, coloca a cabeça na areia para não se aperceber do perigo que o ronda. Todos sabiam, mas, no momento em que se instalou o processo de impeachment da presidente Dilma, poucos se aventuraram a afirmar que o correto seria o impeachment da presidente e do Vice-Presidente, até porque Michel Temer também praticou o crime das pedaladas, como praticou Dilma Rousseff."
+Dias ainda usou o discurso para criticar a dissolução da força-tarefa da Operação Lava Jato na Polícia Federal de Curitiba, em meio à denúncia contra Temer. Na última quinta-feira (6), a PF confirmou que os delegados que atuam na Lava Jato e na Carne Fraca passarão a assumir outros casos. "Em operações dessa dimensão, importância e notoriedade, é evidente que se recomenda a exclusividade. E as demandas não se esgotaram, ao contrário. Ao que tudo indica, elas crescem", disse.
+"Não há como não afirmar que há aí, sim, uma predisposição de fulminar a Operação Lava Jato. Mas ela é tão consistente e de robustez inigualável, apoio popular incomum, que certamente prosseguirá para superar todos esses obstáculos à sua frente, colocados pelas autoridades temerosas de que as investigações possam alcançá-las."
+&nbsp;

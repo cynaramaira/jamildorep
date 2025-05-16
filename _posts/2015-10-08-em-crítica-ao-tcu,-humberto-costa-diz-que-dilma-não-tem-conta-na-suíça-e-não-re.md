@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Em crítica ao TCU, Humberto Costa diz que Dilma não tem conta na Suíça e não recebeu dinheiro de propina"
+date: 2015-10-08
+tags: crítica,Dilma,dinheiro,Humberto Costa,Naomi Campbell,propina
+author: None
+---
+A estratégia do PT de tentar dividir e separar o presidente da Câmara Eduardo Cunha e os tucanos, enfraquecendo assim a aliança em favor do impeachment contra Dilma, fica cada vez mais clara. Até o nome do TCU foi usado nas assertivas dos representantes do governismo.
+O líder do PT no Senado, Humberto Costa (PE), criticou a decisão do Tribunal de Contas da União (TCU) de aprovar o parecer pela rejeição das contas da Presidência da República de 2014.
+Segundo ele, o julgamento foi maculado por influência política, em prejuízo da análise técnica, e será objeto de deliberação no Congresso Nacional. "Após apreciação séria e profunda, pautada por muita racionalidade".
+Na avaliação do parlamentar, todos os pontos questionados pelo TCU foram sobejamente explicados pelo Governo Federal e não houve nada levantado sobre as movimentações contábeis, fiscais e financeiras que não tenha tido respostas absolutamente técnicas.
+“Aquele tribunal, induzido pelo relator, o ex-deputado Augusto Nardes, rendeu-se ao corporativismo. Na tentativa de defender o relator da arguição de impedimento suscitada pelo governo, meteram a Corte de Contas em situação difícil. Foi uma condenação involuntária, lamentavelmente induzida”, declarou.
+Humberto Costa desafiou os integrantes da oposição – que concedem o benefício da dúvida e apoiam o presidente da Câmara dos Deputados, Eduardo Cunha (PMDB-RJ), acusado de ter recebido recursos em contas da Suíça – a apontar algum erro nas contas da presidenta Dilma que não seja apenas questão de procedimento e de forma.
+“A oposição quer dar um golpe a qualquer custo. São antidemocratas. A presidenta Dilma não se beneficiou de nenhum ponto apontado pelo TCU. Ela não tem conta na Suíça e não recebeu dinheiro de propina. Mas ela, a oposição condena. O presidente da Câmara, a oposição festeja e com ele se alia.", comparou.
+Humberto Costa ressaltou que os fatos questionados este ano pelo tribunal ocorreram em todos os governos após a redemocratização.
+“Causa espécie que as contas não eram reprovadas, mas sim, no máximo, aprovadas com ressalvas. Com Dilma, o tribunal resolveu ser implacável. Desde Getúlio Vargas, outro presidente que sofreu um cerco violentíssimo, um Chefe do Executivo brasileiro não tinha um posicionamento de rejeição de contas vindo do TCU”.
+No entendimento do parlamentar, a defesa apresentada pela Advocacia-Geral da União (AGU) fulmina cada um dos pontos levantados pelo TCU. Para ele, o tribunal não condenou a prestação de contas da presidenta da República, mas sim o resultado das eleições de 2014 e de uma política exitosa que levou o Brasil ao maior processo de inclusão social da sua história.
+"As pessoas precisam entender que a linha adotada ontem no parecer do tribunal quer punir a presidenta Dilma pelo esforço dela de assegurar o pagamento das parcelas do Bolsa-Família, em dar sequência ao Minha Casa Minha Vida e em evitar interrupção nos recursos do seguro-desemprego e do abono salarial", tergiversou. Dilma não estava impedida de fazer nada disto, desde que não descumprisse a Lei de Responsabilidade Fiscal, gastando além do orçamento, financiando-se por meio dos bancos públicos.
+“É absolutamente reprovável classificar operações rotineiras do Poder Executivo com o pejorativo termo de pedaladas”, criticou, ao falar do suposto represamento de repasses da União aos bancos públicos para pagamento dos programas sociais.
+Ele explicou que, nesses quatro anos de gestão de Dilma, o saldo médio dos repasses da União à Caixa Econômica para pagamentos de benefícios sociais bateu sucessivos recordes positivos. Em razão disso, a Caixa sempre pagou juros à União, exatamente como fez nos últimos 21 anos.
+“Então, onde está o erro? As operações sobre as quais o tribunal lançou questionamentos não oferecem motivo para uma decisão como a de ontem, sob bases legais”, disse.
+Para o líder do PT, caberá ao Congresso Nacional, agora, deliberar sobre o parecer do TCU com muita racionalidade, num exercício sério que vai mostrar que não existem motivos legais para a rejeição das contas da presidenta da República.
+“O governo dela termina quando o mandato acaba: em 2018”, afirmou. A conferir.

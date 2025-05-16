@@ -1,0 +1,8 @@
+---
+layout: post
+title: "CTTU vai reforçar fiscalização em Boa Viagem"
+date: 2011-10-14
+tags: boa viagem,CTTU,Fiscalização
+author: None
+---
+Em aten&ccedil;&atilde;o a nota intitulada &ldquo;Leitor denuncia mais irregularidades no tr&acirc;nsito recifense&ldquo;, a Companhia de Tr&acirc;nsito e Transporte Urbano do Recife (CTTU) esclarece que ir&aacute; refor&ccedil;ar a fiscaliza&ccedil;&atilde;o na &aacute;rea com o objetivo de coibir o estacionamento irregular na Rua Padre Carapuceiro. A CTTU lembra que intensificou a fiscaliza&ccedil;&atilde;o no bairro de Boa Viagem desde a implementa&ccedil;&atilde;o de v&aacute;rias interven&ccedil;&otilde;es do &oacute;rg&atilde;o de tr&acirc;nsito com a finalidade de melhorar a fluidez e circula&ccedil;&atilde;o nas vias. Exemplo disso foi a cria&ccedil;&atilde;o do bin&aacute;rio entre as ruas Francisco da Cunha e Ministro Nelson Hungria. Com essa medida, v&aacute;rias ruas tiveram o estacionamento proibido e a fiscaliza&ccedil;&atilde;o refor&ccedil;ada para garantir o sucesso da a&ccedil;&atilde;o. Por fim, a CTTU alerta que, segundo o C&oacute;digo de Tr&acirc;nsito Brasileiro (CTB), estacionar o ve&iacute;culo em local n&atilde;o permitido &eacute; considerado infra&ccedil;&atilde;o, que pode variar de leve &agrave; grav&iacute;ssima. Caso o ve&iacute;culo seja flagrado dessas condi&ccedil;&otilde;es o propriet&aacute;rio ir&aacute; receber multa e acumular de tr&ecirc;s a sete pontos na Carteira Nacional de Habilita&ccedil;&atilde;o (CNH) como penalidade.

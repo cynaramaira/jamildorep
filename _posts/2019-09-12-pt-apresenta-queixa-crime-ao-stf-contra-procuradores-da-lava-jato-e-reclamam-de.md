@@ -1,0 +1,16 @@
+---
+layout: post
+title: "PT apresenta queixa-crime ao STF contra procuradores da Lava Jato e reclamam de ‘conduta criminosa’"
+date: 2019-09-12
+tags: APRESENTADORA,Contran,Crime,Lava Jato,Queixas
+author: None
+---
+O líder do PT no Senado, Humberto Costa (PE), e demais membros da bancada do partido e da oposição, entraram com uma queixa-crime no Supremo Tribunal Federal (STF) para que agentes da força tartefa da Lava Jato sejam investigados.
+Na manhã desta quinta-feira (12), Humberto e os colegas parlamentares se reuniram com a procuradora-geral da República, Raquel Dodge, para tratar do assunto.
+O pedido formal ocorre após novos vazamentos do site Intercept, com informações de que procuradores da Lava Jato supostamente omitiram gravações telefônicas que mostravam que Lula assumiria a Casa Civil do governo Dilma para ajudar “a arrumar a gestão e não para fugir da operação”.
+“Isso tudo precisa ser investigado na sua plenitude. Ela está no final do seu mandato. Mas, se tiver o mínimo de apreço pela instituição que ainda comanda, não deixará o cargo sem determinar que se investigue o grupelho que se apossou do Ministério Público para submetê-lo aos próprios caprichos", afirmou.
+“A manipulação seletiva dos grampos feitos pelos integrantes da Lava Jato no telefone usado por Lula, incluindo a gravação ilegal de uma conversa dele com Dilma sobre a indicação à Casa Civil, é gravíssima e tem de ser punida. Esse escândalo divulgado pela imprensa esta semana deixa claro que os membros da operação agiram politicamente para impedir que Lula fosse nomeado por Dilma. Eles ‘venderam” à opinião pública e ao ministro Gilmar Mendes, relator do caso no STF, a ideia de que Lula queria assumir o cargo para ter foro privilegiado. Só que eles sabiam que isso era mentira e desconsideraram grande material comprobatório que desmontava a tese deles”, disse, no Senado.
+O senador disse que o episódio deixou “profundas marcas na democracia brasileira” pois “mudou o curso da história política no país ao estimular o impeachment de Dilma e desgastar a imagem de Lula perante o eleitorado”.
+“Existe um conjunto de indícios robustos que mostra a ação criminosa dos procuradores, e possivelmente do então juiz Sergio Moro, para manipular o STF. Sem essa manobra, Lula teria se tornado ministro e Dilma não teria caído”, ressaltou.
+O parlamentar contou que, na reunião com a procuradora-geral, ele informou que estão protocolando no STF uma representação para impedir que registros de ações possivelmente ilegais cometidas no início da Lava Jato, no âmbito da Receita Federal, sejam apagados.
+“Informamos à Dodge que recebemos uma denúncia do Tribunal de Contas da União (TCU) de que os rastros de iniciativas ilegais na Receita Federal contra cidadãos, políticos e empresas estão desaparecendo. A denúncia diz que esses registros e rastros vêm sendo apagados. Uma investigação vai permitir identificar a participação de integrantes do Ministério Público e até do ex-juiz Sergio Moro. Ela nos disse que, se o Supremo pedir uma manifestação da parte dela, vai procurar agilizar esse posicionamento”, contou.

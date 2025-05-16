@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Metroviários vão cobrar ao ministro de Lula plano de recuperação do Metrô do Recife"
+date: 2023-05-23
+tags: jamildo, Renildo Calheiros, Metrô do Recife
+author: Jamildo Melo
+---
+O presidente do Sindmetro-PE, Luiz Soares, esteve reunido no escrit&oacute;rio pol&iacute;tico do deputado federal Renildo Calheiros, em Recife. Na pauta, a retirada da CBTU do PND (Plano Nacional de Desestatiza&ccedil;&atilde;o); o apoio ao Plano de Recupera&ccedil;&atilde;o do Metr&ocirc; do Recife.
+Os sindicalista dizem que ele foi apresentado ao Ministro das Cidades, Jader Barbalho Filho, no dia 14 de mar&ccedil;o, mas at&eacute; agora o Minist&eacute;rio da Cidades n&atilde;o se pronunciou.
+O deputado Federal Renildo Calheiros disse que iria ajudar na demanda. &ldquo;Tenho compromisso na defesa do Brasil soberano, com sa&uacute;de, educa&ccedil;&atilde;o, saneamento, cultura, desenvolvimento econ&ocirc;mico e social. Sobre o transporte p&uacute;blico, &eacute; fundamental que o Metr&ocirc; do Recife n&atilde;o seja privatizado, vamos lutar incansavelmente para retirar a CBTU do PND (Plano Nacional de Desestatiza&ccedil;&atilde;o). Vou articular para que o Ministro das Cidades, Jader Barbalho, apresente ao povo pernambucano o Plano de Recupera&ccedil;&atilde;o do Metr&ocirc;.&rdquo;
+Jo&atilde;o Campos e o metr&ocirc; do Recife
+O deputado estadual Sileno Guedes (PSB-PE) informou que agendar&aacute; uma reuni&atilde;o do prefeito do Recife Jo&atilde;o Campos (PSB-PE), com o presidente do Sindmetro-PE, Luiz Soares.
+"A pauta dos metrovi&aacute;rios &eacute; importante! Parab&eacute;ns ao Sindicato dos Metrovi&aacute;rios de Pernambuco pela atua&ccedil;&atilde;o contra a privatiza&ccedil;&atilde;o do Metr&ocirc;, pela busca dos recursos financeiros para tir&aacute;-lo do sucateamento, ampliando, dessa forma, esse meio de transporte p&uacute;blico t&atilde;o importante para a cidade do Recife. &Eacute; imprescind&iacute;vel que a prefeitura tenha um olhar peculiar para o Metr&ocirc;, para as esta&ccedil;&otilde;es e as integra&ccedil;&otilde;es que est&atilde;o em nossa cidade. Na condi&ccedil;&atilde;o de presidente estadual do PSB de Pernambuco, articularei para que o prefeito do Recife, Jo&atilde;o Campos, receba o presidente do Sindicato dos Metrovi&aacute;rios de Pernambuco. Somaremos esfor&ccedil;os aqui na Assembleia Legislativa, junto &agrave; bancada dos deputados federais, com os senadores, os vereadores da cidade do Recife e com o governo do Estado de Pernambuco para que o Metr&ocirc; atenda com qualidade a popula&ccedil;&atilde;o pernambucana."
+O encontro aconteceu nesta segunda-feira (22), no gabinete na Assembleia Legislativa de Pernambuco. Participaram da reuni&atilde;o, Luiz Soares, presidente do Sindmetro-PE e os dirigentes sindicais Jos&eacute; Natal&iacute;cio e Jonas Maropo.

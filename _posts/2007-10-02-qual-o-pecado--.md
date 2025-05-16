@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Qual o pecado? "
+date: 2007-10-02
+tags: Homicídio Qualificado
+author: None
+---
+Por Isaltino Nascimento
+A pergunta t&iacute;tulo deste artigo &eacute; dirigida ao arcebispo de Olinda e Recife, dom Jos&eacute; Cardoso Sobrinho, que mais uma vez deu mostras aos cat&oacute;licos pernambucanos da sua intoler&acirc;ncia religiosa. Indiferente ao significado de ecumenismo, o arcebispo acionou o Vaticano para castigar o padre Ewaldo Gomes, que est&aacute; &agrave; frente da Par&oacute;quia de Casa Forte, no Recife, h&aacute; 36 anos. 
+A puni&ccedil;&atilde;o veio. Padre Edwaldo foi condenado a ficar afastado da par&oacute;quia por tr&ecirc;s meses e ainda teve que se retratar por escrito. O pecado que cometeu? Aos olhos de dom Jos&eacute;, padre Edwaldo errou ao concelebrar junto com dois bispos anglicanos, em 4 de dezembro do ano passado, uma missa em comemora&ccedil;&atilde;o aos seus 50 anos de sacerd&oacute;cio.
+Voltemos &agrave; pergunta t&iacute;tulo. Desta vez, com mais alguns questionamentos. Que pecado h&aacute; em recepcionar, na casa de Deus, integrantes de outras igrejas crist&atilde;s em um momento t&atilde;o especial como a comemora&ccedil;&atilde;o de 50 anos de sacerd&oacute;cio?
+Fa&ccedil;o outra indaga&ccedil;&atilde;o. Em que a Igreja Cat&oacute;lica foi diminu&iacute;da com a atitude do padre Edwaldo? O ecumenismo &eacute; uma pr&aacute;tica aceita por v&aacute;rias denomina&ccedil;&otilde;es religiosas e refor&ccedil;a o respeito &agrave; diversidade de cultos. Afinal, prega a aproxima&ccedil;&atilde;o, a coopera&ccedil;&atilde;o e a busca fraterna da supera&ccedil;&atilde;o das divis&otilde;es entre as diferentes igrejas crist&atilde;s.
+Agora, fa&ccedil;o mais uma interroga&ccedil;&atilde;o. O que a Igreja Cat&oacute;lica perde com o posicionamento de dom Jos&eacute; Cardoso? Do meu ponto de vista, esta vis&atilde;o conservadora afasta ainda mais os fi&eacute;is dos templos. E isso n&atilde;o &eacute; de agora. 
+Desde que assumiu o lugar antes ocupado por dom H&eacute;lder C&acirc;mara (o Dom da Paz), dom Jos&eacute; vem apagando os vest&iacute;gios de uma igreja, que gra&ccedil;as ao trabalho de um religioso vision&aacute;rio, tinha se voltado aos interesses da sociedade e lutava contra a opress&atilde;o aos mais pobres. 
+Bons tempos aqueles, quando a juventude se sentia estimulada a lotar as igrejas e a trabalhar por um mundo mais crist&atilde;o. Fiz parte do movimento de jovens da igreja na Mangabeira, na Par&oacute;quia de Nossa Senhora de F&aacute;tima, vivenciando aquele momento rico da nossa hist&oacute;ria. 
+Naquela &eacute;poca existiam em nosso Estado dois espa&ccedil;os importantes para o fortalecimento da f&eacute; cat&oacute;lica e da Igreja voltada para os mais humildes. O Semin&aacute;rio Regional Nordeste II (Serene), cuja miss&atilde;o era formar padres que desempenhavam sua miss&atilde;o religiosa a partir da conviv&ecirc;ncia com a realidade das comunidades em que o templo estava inserido.
+E o Instituto de Teologia do Recife (Iter), local que proporcionava a forma&ccedil;&atilde;o de crist&atilde;os leigos cat&oacute;licos, que al&eacute;m de fortalecer a participa&ccedil;&atilde;o na Igreja, principalmente dos jovens, formando muitas das lideran&ccedil;as que hoje desempenham atividades nas mais diversas &aacute;reas dos movimentos sociais em nosso Estado e na regi&atilde;o.
+A Pastoral dos Jovens do Meio Popular (PJMP) e as Comunidades Eclesiais de Base (Cebs) s&atilde;o tamb&eacute;m marcas deixadas pelo Dom da Paz, s&iacute;mbolos de uma igreja libertadora e popular.
+Hoje, vejo com tristeza como a igreja est&aacute; afastada da maioria da sociedade. E em conseq&uuml;&ecirc;ncia deste distanciamento, n&atilde;o atrai mais tantos jovens. Ao inv&eacute;s de firmar-se e expandir-se, perde terreno para outras denomina&ccedil;&otilde;es religiosas.
+Vendo pecado na atitude de padre Edwaldo, dom Jos&eacute; caminha em sentido inverso ao pregado por Jesus Cristo: que todos os seus seguidores estivessem unidos. Assim como Ele e o Pai, que s&atilde;o um s&oacute;.
+PS: Isaltino Nascimento (www.isaltinopt.com.br) &eacute; deputado estadual pelo PT e l&iacute;der do governo na Assembl&eacute;ia Legislativa, escrevendo &agrave;s ter&ccedil;as feiras no Blog de Jamildo. 
+ 

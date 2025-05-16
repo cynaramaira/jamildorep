@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Relator da Previdência na CCJ deve apresentar parecer até 9 de abril"
+date: 2019-03-29
+tags: Relatório,skate
+author: None
+---
+Foi escolhido, nesta quinta-feira (28), o nome do relator da proposta de Reforma da Previdência na Comissão de Constituição e Justiça (CCJ), da Câmara dos Deputados. Será o deputado federal Delegado Marcelo Freitas (PSL-MG).
+A decisão foi anunciada na tarde desta quinta-feira (28), pelo presidente da CCJ, deputado Felipe Francischini (PSL-PR). Segundo ele, o nome de Marcelo Freitas foi confirmado após reunião com o ministro-chefe da Casa Civil, Onyx Lorenzoni; o secretário Especial de Previdência e Trabalho do Ministério da Economia, Rogério Marinho; a líder do Governo no Congresso, Joice Hasselmann (PSL-SP); a primeira vice-presidente da CCJ, Bia Kicis (DF); e o líder do PSL na Câmara, Delegado Waldir (GO).
+“Fico muito feliz de poder anunciar que a nossa decisão em conjunto, em consenso, que eu sempre busquei, com muita responsabilidade, é o nome do deputado do PSL, delegado da Polícia Federal, Marcelo Freitas, doutor em Direito, na Argentina”, afirmou Francischini, que ainda elogiou o currículo jurídico do escolhido. “Um grande currículo na área jurídica. Tem uma experiência muito grande em operações importantes para o país, já foi analista do Supremo Tribunal Federal e tem um currículo invejável”, diz.
+A análise pela Comissão de Constituição e Justiça é a primeira etapa do trâmite da reforma Previdência na Câmara dos Deputados. Cabe à CCJ avaliar se a proposta está de acordo com a Constituição Federal. Portanto, agora o deputado Delegado Marcelo Freitas terá a missão de elaborar o parecer que será analisado pelo colegiado da comissão.
+De acordo com Francischini, a expectativa é de que o documento seja produzido já nas próximas semanas. “Conhecimento jurídico haverá de sobra. O relatório será, com certeza, emitido após a vinda do ministro Paulo Guedes e da nossa reunião na próxima quinta (4/4) com os juristas da área de direito constitucional previdenciário. Será um relatório muito técnico porque eu sei da capacidade da competência do Delegado Marcelo Freitas”, garantiu.
+O relator da Previdência na CCJ afirmou que deve apresentar o parecer até 9 de abril. Se aprovado, o texto da reforma da Previdência será analisado por uma comissão especial formada por deputados para discutir o mérito da proposta. Passando mais uma vez pelo consentimento do colegiado, a proposta segue para a votação no Plenário da Câmara, onde precisará de 308 dos 513 votos, antes de entrar em pauta na Comissão de Constituição e Justiça (CCJ) do Senado.
+Da forma como foi enviada ao Congresso Nacional, o texto da nova Previdência estabelece, entre outras coisas, que a idade mínima para se aposentar seja de 62 anos para mulheres e 65 para homens. Os beneficiários deverão ainda contribuir por um período mínimo de 20 anos.
+O texto propõe ainda que policiais civis, federais, agentes penitenciários e socioeducativos possam se aposentar com 55 anos de idade e com tempo de contribuição específico para cada categoria.

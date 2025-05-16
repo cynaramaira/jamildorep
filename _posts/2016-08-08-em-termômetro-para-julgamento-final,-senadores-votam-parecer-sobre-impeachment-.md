@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Em termômetro para julgamento final, senadores votam parecer sobre impeachment de Dilma"
+date: 2016-08-08
+tags: Dilma,Final,impeachment,Julgamento,senadores
+author: None
+---
+O plenário do Senado volta a analisar, nesta terça-feira (8), o impeachment contra a presidente afastada Dilma Rousseff (PT). Em sessão que deve durar aproximadamente 20 horas, os senadores vão votar mais um relatório sobre o impedimento, desta vez decidindo se o caso vai a julgamento final, previsto para o fim de agosto. Se 41 ou mais parlamentares se manifestarem a favor da perda definitiva do mandato da petista, o que representa a maioria simples da Casa, ela vai a julgamento. Por isso, a reunião que começa às 9h é considerada um termômetro.
+A votação que encerra a fase de pronúncia, segunda etapa do processo de impeachment, já será comandada pelo presidente do Supremo Tribunal Federal (STF), ministro Ricardo Lewandowski. O primeiro a falar será o relator do processo, senador Antonio Anastasia (PSDB-MG), que terá 30 minutos para apresentar o relatório que foi aprovado na Comissão Especial do Impeachment na semana passada.
+LEIA TAMBÉM
+» Mais de 30 senadores se inscrevem para discursar em sessão do impeachment
+» Humberto Costa diz que aliados de Dilma vão apresentar 11 questões de ordem e recorrer ao STF
+Os outros senadores falam depois. Cada um tem direito a minutos. Até o fim dos trabalhos do Senado nesta segunda-feira (8), 33 haviam feito a inscrição para subir à tribuna. Porém, outros podem registrar o pedido para discursar ao longo da sessão.
+ Temer foi vice de Dilma nos dois mandatos, mas rompeu com a petista no fim do ano passado (Foto: Lula Marques/PT)
+Questões de ordem e manifestações pela ordem poderão durar até cinco minutos. De acordo com o líder do PT no Senado, o pernambucano Humberto Costa, os aliados de Dilma pretendem pedir 11 questões de ordem. Questões já resolvidas não poderão ser refeitas e não cabe recurso ao plenário sobre a decisão desse tipo de solicitação. Além disso, o mérito não poderá ser discutido.
+Costa reconheceu que a presidente afastada não tem votos suficientes para impedir a aprovação da sentença de pronúncia, mas disse acreditar ainda na reversão do resultado no julgamento final – quando serão necessários os votos de ao menos 54 dos 81 senadores. Pelas contas dele, são necessários apenas cinco votos para conquistar os 28 favoráveis à Dilma, o que impediria a condenação dela.
+» Dilma diz que “mesmo se pudesse, não voltaria para ficar” na Presidência
+» Para Dilma, PT tem de reconhecer erros
+Serão admitidos até quatro destaques para voto em separado. Se não houver esses pedidos, até cinco senadores de cada lado, oposição e governo, poderão encaminhar votação por até cinco minutos. Havendo pedido de destaque, o número cai pra dois senadores favoráveis e dois contrários. O Senado decidiu que não será permitida orientação partidária. Já estão previstos dois intervalos, das 13h às 14h e das 18h às 19h. Porém, outras pausas poderão acontecer a cada quatro horas ou por decisão de Lewandowski.
+» Por 14 votos a 5, comissão no Senado aprova relatório a favor de impeachment de Dilma
+» Veja como votou cada senador da comissão do impeachment sobre parecer contra Dilma
+» Ex-ministro de Dilma, FBC alega ‘voto de esperança’ em relatório do impeachment
+Quando os parlamentares concluírem seus pronunciamentos, a acusação e a defesa terão meia hora, cada um. A votação, aberta e nominal, acontecerá na sequência, registrada em painel eletrônico. A decisão que os senadores deverão tomar é se as provas apresentadas contra a presidente afastada são relevantes e substanciais e, portanto, se a denúncia é pertinente e se Dilma Rousseff deve ir a julgamento. Não é agora, portanto, que se  delibera sobre o mérito das acusações contra a petista.
+O processo de impeachment começou a ser articulado no ano passado, mas só foi aceito no dia 2 de dezembro, quando o então presidente da Câmara, Eduardo Cunha (PMDB-RJ) – afastado na semana passada pelo Supremo Tribunal Federal (STF) por usar o cargo para agir em benefício próprio, além de ser réu na Operação Lava Jato – acolheu pedido dos juristas Helio Bicudo, Reale Junior e Janaína Paschoal. Veja linha do tempo com alguns dos principais fatos do impeachment até agora:
+
+O pedido de afastamento, apresentado em outubro, usou como o atraso no repasse de recursos para a Caixa Econômica Federal e o Banco do Brasil, referentes a despesas com programas sociais do governo e com o Programa de Sustentação de Investimentos (PSI), que é a chamada “pedalada fiscal”. Além disso, os juristas alegam que houve três decretos envolvendo créditos suplementares assinados pela presidente sem autorização do Congresso Nacional. Em documento de centenas de páginas, o advogado de Dilma, José Eduardo Cardozo, defendeu que não houve crime de responsabilidade. Como a denúncia é composta por quatro fatos - os três decretos "pedaladas" -, os senadores poderão apresentar requerimentos para votar quaisquer deles separadamente.

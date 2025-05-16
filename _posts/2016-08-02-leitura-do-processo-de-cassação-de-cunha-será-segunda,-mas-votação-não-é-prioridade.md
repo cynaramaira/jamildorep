@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Leitura do processo de cassação de Cunha será segunda, mas votação não é prioridade"
+date: 2016-08-02
+tags: leitura,Naomi Campbell,prioridade,processo,segunda onda,Serasa,thiago cunha,votação
+author: None
+---
+Estadão Conteúdo - O presidente da Câmara, Rodrigo Maia (DEM-RJ), informou nesta terça-feira (2) que vai fazer a leitura, em plenário, do processo de cassação do deputado afastado Eduardo Cunha (PMDB-RJ) na próxima segunda-feira (8). "Será feita a leitura na segunda-feira durante o expediente", afirmou Maia após encerrar sessão da Câmara.
+O deputado ressaltou, contudo, que antes de colocar em votação o processo pretende votar o projeto que estabelece a renegociação da dívida dos Estados. A discussão da proposta estava prevista para acontecer no dia de hoje, mas por falta de um consenso a votação passou para a próxima semana.
+"Vou votar o PLP 257 antes de qualquer outra proposta. É a prioridade", ressaltou Maia. "Não estou dizendo que a data de votação [da cassação de Eduardo Cunha] será na segunda-feira, apenas que vou lê-lo", emendou. Depois de feita a leitura, o processo passa a tramitar como "prioridade" no plenário, após o prazo de 48 horas. Ele, no entanto, não tem o poder de trancar a pauta de votações.
+
+A decisão de Maia foi anunciada após integrantes da oposição pressionarem, ao longo do dia, pela marcação de uma data para o julgamento do caso de Cunha. "Embora o Código de Ética e Decoro Parlamentar e o Regimento Interno não estabeleçam um prazo certo para que esta presidência proceda à leitura no Expediente, a apreciação da matéria em plenário sobre processos que concluem pela perda de mandato não pode exceder a 90 dias úteis", protestou em plenário a líder da Minoria, Jandira Feghali (PCdoB-RJ).
+"Peço a todos os Líderes, que, na reunião de líderes, pediram para se colocar em votação no dia 9 a cassação do deputado Eduardo Cunha, que ocupem esta tribuna, que sejam coerentes e peçam à presidência que marque a data para se votar", ressaltou o líder do PSOL, Ivan Valente (SP).
+Apesar das comemorações dos opositores em plenário, após o anúncio de Maia, o líder da Rede, deputado Alessandro Molon (RJ) lembrou que a próxima "batalha" será a marcação de uma data para o julgamento. "Vencemos a batalha que tínhamos hoje. Conseguimos garantir a data para a leitura do relatório. A próxima batalha será marcar a data da cassação. Com a leitura do relatório, o ônus de não por um fim ao processo de Cunha passa a ser do plenário da Câmara", afirmou Molon.
+Segundo Rodrigo Maia, não "há chances" de o caso de Cunha não ser julgado antes das eleições municipais, previstas para outubro. A votação do processo de cassação deverá ser aberta e para que Eduardo Cunha perca o mandato é necessário ao menos 257 votos a favor do parecer pela perda do mandato.

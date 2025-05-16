@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Audiência pública para discutir Programa Atitude é cancelada devido a “bolo” de representantes do Estado"
+date: 2015-12-14
+tags: Estado,programa
+author: None
+---
+
+Por Letícia Lins, do JC nas Ruas
+Prevista para acontecer na manhã dessa segunda-feira, a audiência pública para discutir o tema “Política de Drogas, Direitos Humanos e Terceirização”, terminou não se realizando. A reunião foi convocada pelo Deputado Lupércio Carlos do Nascimento, o Professor Lupércio (Solidariedade), a pedido do Conselho Estadual de Políticas sobre Drogas (Cepad). O encontro foi cancelado devido a um “bolo” passado por autoridades estaduais. Ou seja, ninguém do Governo de Pernambuco compareceu ao encontro, nem enviou justificativa. “Fui pego de surpresa. Nenhum ofício foi enviado”, lamentou o deputado. “Fiquei sabendo da desistência do pessoal da Secretaria de Desenvolvimento Humano, Criança e Juventude informalmente. Nas próximas horas, entrarei em contato com o Secretário Isaltino Nascimento, responsável pela pasta, para saber o motivo da ausência”, disse.
+LEIA TAMBÉM:
+&gt; De olho na Prefeitura de Olinda, Lupércio recebe secretário-geral do Solidariedade em PE
+&gt; Professor Lupércio vistoria uso irregular de aterro sanitário em Olinda
+&gt; Na Alepe, mais cinco deputados dizem não ao aumento de impostos de Paulo Câmara
+Lupércio atua nessa área e administra uma comunidade terapêutica, localizada em Igarassu, na Região Metropolitana, onde atende pessoas como Hermano Augusto Oliveira, que se curou da dependência química, ao ser atendido no estabelecimento, que procurou por vontade própria, depois de chegar “ao fundo do poço”. Por conta da experiência com o setor, em outubro Lupércio foi nomeado como representante da Casa para mediar a audiência pública que deveria ter começado às 9h de hoje. “A audiência foi articulada pelo Conselho Estadual de Políticas Antidrogas - Cepad, e a Secretaria Executiva de Políticas sobre Drogas – Sepod. O objetivo era buscar alternativa para minimizar os problemas do Programa Atitude, pois sabemos que ele está passando por um momento difícil”, afirma nota distribuída pelo parlamentar. Os próprios convidados decidiram por não realizar o encontro.
+“Na ocasião, os presentes se reuniram e decidiram democraticamente pelo cancelamento da audiência, uma vez que o principal interessado não enviou nenhum representante. Mas, acredito que deve existir uma motivo que justifique a falta, uma vez que em outras ocasiões discutimos com a Secretaria sem problema”, disse ele.
+Na verdade, o encontro deveria abordar um assunto muito delicado: a situação de servidores terceirizados que atuam no Atitude Estadual, que passa por crise reconhecida pelo próprio Governo. Sofreu corte de R$ 2 milhões, está com duas unidades fechadas no Recife. Só em uma delas, o Centro de Apoio, localizado no bairro de Parnamirim, Zona Norte do Recife, mil atendimentos deixaram de ser realizados por mês. Ultimamente terceirizados têm se queixado de salários em atraso, e demissões também já ocorreram. Oito pessoas – inclusive representantes de organizações não governamentais, autoridades do Estado e do Município – foram convocados para a mesa.
+O Programa Atitude foi implantado ainda na gestão do então Governador Eduardo Campos (PSB), com o objetivo de dar atendimento integral a usuários de drogas e a seus familiares. Mas entrou em crise no segundo semestre desse ano. Duas de suas unidades, inclusive o Centro de Apoio (que fica no bairro do Parnamirim), estão fechadas. Cortes e atrasos no pessoal terceirizado que trabalha no Programa também se tornaram comuns. Com a palavra, a Secretaria de Desenvolvimento Humano, Infância e Juventude.

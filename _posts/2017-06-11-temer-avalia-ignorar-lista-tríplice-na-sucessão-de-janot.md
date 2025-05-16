@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Temer avalia ignorar lista tríplice na sucessão de Janot"
+date: 2017-06-11
+tags: avaliação,Lista,Michel Temer
+author: None
+---
+Estadão Conteúdo - O presidente Michel Temer vai analisar outras opções, além da lista tríplice da Associação Nacional dos Procuradores da República (ANPR), para a escolha do sucessor de Rodrigo Janot no comando da Procuradoria-Geral da República. Caso isso aconteça, o presidente vai romper com uma tradição (ele não é obrigado pela lei a aceitar a indicação da associação) de indicar o nome mais votado pelos procuradores entre três apresentados pela entidade.
+A disputa pela cadeira de procurador-geral ganhou atenção especial desde que o Ministério Público Federal e o Palácio do Planalto entraram em rota de colisão. O novo chefe do MPF assumirá em setembro, quando vence o mandato de Janot.
+&gt;&gt; Cármen Lúcia diz que suposta ação do governo para investigar ministro do STF é inadmissível
+Temer é alvo de inquérito criminal no Supremo Tribunal Federal (STF) aberto com base na delação premiada dos acionistas e executivos do grupo J&amp;F - holding que inclui a JBS. O presidente, investigado pelos crimes de corrupção passiva, obstrução de Justiça e participação em organização criminosa, poderá ser denunciado nos próximos dias pelo procurador-geral da República, Rodrigo Janot.
+Caso seja acusado formalmente, o Supremo precisará obter uma autorização da Câmara dos Deputados para abrir ou recusar uma ação penal.
+Oito subprocuradores se inscreveram para concorrer na eleição interna organizada pela ANPR. Todos defendem a continuidade das investigações da Operação Lava Jato. A votação que definirá a lista tríplice da categoria será no fim deste mês.
+Histórico. Constitucionalmente, o presidente da República não precisa escolher o procurador-geral entre os nomes aprovados pela ANPR. O ex-presidente Fernando Henrique Cardoso não seguiu a lista votada pela associação, em 2001, quando a iniciativa foi inaugurada pela instituição.
+Na avaliação do Palácio do Planalto, segundo afirmou um interlocutor do presidente, o novo procurador-geral da República deve ter um perfil distinto de Janot, considerado hoje o inimigo número 1 do governo.
+Declarações recentes do novo ministro da Justiça, Torquato Jardim, deixaram a associação dos procuradores federais em alerta. O ministro sugeriu que outras associações ligadas ao Ministério Público da União (MPU), além da ANPR, apresentem nomes para o cargo.
+A fala foi vista como um indicativo de que o Planalto pode quebrar a tradição iniciada no primeiro governo do ex-presidente Luiz Inácio Lula da Silva de escolher o mais votado entre os representantes do Ministério Público Federal. O procurador-geral da República é chefe, ao mesmo tempo, do Ministério Público da União - que abriga, além do MPF, o Ministério Público do Trabalho (MPT), o Ministério Público Militar e o Ministério Público do Distrito Federal e Territórios.
+"Deve o Brasil se perguntar se a alguém interessa, e a quem interessaria, enfraquecer o Ministério Público Federal neste momento da vida nacional. Acreditamos, firmemente, que não é esta a intenção das entidades do Ministério Público da União, mas mesmo as nossas coirmãs chamamos a refletir se não estão sendo usadas como peças de um jogo que visa a prejudicar, enfraquecer e retirar a liderança efetiva e independente do Ministério Público Federal", afirmou, por meio de nota, o presidente da ANPR, José Robalinho Cavalcanti.
+Candidatos. Dentre os oito candidatos a chefiar a Procuradoria-Geral da República que se inscreveram na eleição da associação, metade é considerada de oposição a Janot - Carlos Frederico Santos, Raquel Dodge, Eitel Santiago e Sandra Cureau. Concorrem também Nicolao Dino, aliado do atual procurador-geral, e candidatos que apresentam críticas moderadas à atual gestão: Mario Bonsaglia, Ela Wiecko e Franklin Rodrigues da Costa. Neste mês, mais de 1.200 membros do Ministério Publico Federal votarão em três dos oito concorrentes.
+As informações são do jornal O Estado de S. Paulo.

@@ -1,0 +1,18 @@
+---
+layout: post
+title: "CPI da Petrobras ouve policiais federais sobre interceptações telefônicas"
+date: 2015-08-06
+tags: Petrobras,policiais,taxas federais
+author: None
+---
+ Primeira reunião da CPI da Petrobras, nessa quarta, terminou às 23h. Foto: Reprodução/Internet
+Da ABr - A primeira reunião da Comissão Parlamentar de Inquérito (CPI) da Petrobras, nessa quarta-feira (5), terminou às 23h, depois de quase nove horas de trabalho. Com previsão dos depoimentos dos presidentes das empresas Mitsui, Shinji Tsuchiya  e Samsung Heavy Industry no Brasil, J.W.Kim, apenas Tsuchya foi ouvido, mas também depuseram integrantes da Polícia Federal (PF), sobre a interceptação de informações telefônicas do doleiro Alberto Youssef e do ex-deputados, André Vargas e Luiz Argôlo.
+Os parlamentares colheram os depoimentos do agente da PF Sérgio Ramalho Rezende e dos delegados José Navas Júnior, Ricardo Hiroshi Ishida e Sérgio de Arruda Costa Macedo. Em 2012, eles viajaram ao Canadá obter as informações junto à empresa RIM (Research in Motion), fabricante do aplicativo usado pelos telefones celulares BlackBerry. O aplicativo criptografava as mensagens trocadas entre o doleiro, Vargas e Argôlo.
+As defesas de André Vargas, Luiz Argôlo e da empreiteira OAS argumentam que os dados foram obtidos ilegalmente e pedem a anulação das provas. Aos deputados, os policiais disseram que a operação serviu para aprender a decifrar o código das mensagens e que não surgiu “de uma demanda específica, mas de uma demanda de cidadãos brasileiros praticando crimes em território nacional por meio da troca de mensagens”, disse o delegado Ricardo Hiroshi Ishida, coordenador da equipe que foi ao Canadá.
+O deputado Valmir Prascidelli (PT-SP) criticou a operação. “Se era para buscar tecnologia, munir a PF de mais tecnologia para as operações, porque tanto sigilo?”, questionou.
+A reunião da CPI foi marcada por bate-boca  e crítica de deputados a algumas convocações da CPI, que ocorreram por votação simbólica e em bloco junto com cerca de 80 outros requerimentos, entre eles o da advogada Beatriz Catta Preta.
+A advogada, convocada no dia 9 de julho, atuou em nove dos 22 acordos de delação premiada firmados na Operação Lava Jato, entre os quais o do ex-consultor da Toyo Setal Júlio Camargo, que acusa o presidente da Câmara, Eduardo Cunha (PMDB-RJ), de pedir US$ 5 milhões em propina.
+"Em 13 minutos, essa casa aprovou mais de uma centena de requerimentos. Na sessão seguinte, levou duas horas apenas para ler os requerimentos. Não assino embaixo esse requerimento sem que haja discussão”, disse o deputado Sérgio Sola (PT-BA).
+A deputada Eliziane Gama (PPS-MA) também criticou a convocação que segundo ela, retira o foco de investigação da CPI. “Nós temos que ter mais foco na CPI. A gente fica aqui fazendo a investigação da investigação, questionando a tecnologia da informação”.afirmou.
+Autor do requerimento, o deputado Celso Pansera (PMDB-RJ) defendeu a convocação da advogada para prestar informações a respeito do pagamento de honorários e de que estaria sendo intimidada por integrantes da CPI. "Se um contador não pode receber dinheiro ilegal, nem o médico, nem o engenheiro, por que o advogado pode?", disse.
+A CPI colhe nesta quinta-feira (6) o depoimento do lobista Milton Pascowitch. Segundo a Polícia Federal, os depoimentos do delator foram essenciais para justificar a prisão do ex-ministro José Dirceu, na 17ª fase da Operação Lava Jato, denominada Pixuleco.

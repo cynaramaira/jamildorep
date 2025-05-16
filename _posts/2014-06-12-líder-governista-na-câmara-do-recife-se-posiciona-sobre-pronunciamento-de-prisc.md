@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Líder governista na Câmara do Recife se posiciona sobre pronunciamento de Priscila Krause"
+date: 2014-06-12
+tags: Câmara,Priscila Cruz,Pronunciamento,Recife,Seguradora Líder
+author: None
+---
+O líder da bancada do governo na Câmara Municipal do Recife, o vereador Gilberto Alves (PTN), enviou uma nota, nesta quinta-feira (12), sobre o pronunciamento de Priscila Krause (DEM) nessa quarta (11), em que disse disse que o prefeito Geraldo Julio (PSB) decretou a transferência de R$ 5,9 milhões previstos inicialmente para a “restauração, preservação e aquisição de bens culturais” em benefício da realização de shows e eventos e criticou a decisão. Leia a nota:
+"Ao contrário do que tenta insinuar a vereadora Priscila Krause, o recurso em questão não se trata da verba a ser destinada à reforma do Teatro do Parque, uma vez que a esta obra está sendo conduzida pelo Gabinete de Projetos Especiais,  com a supervisão da Secretaria de Cultura e da Fundação de Cultura da Cidade do Recife. A transferência viabilizada através dos decretos que a vereadora menciona foi necessária para complementar os contratos de infraestrutura e apresentações artísticas do São João do Recife 2014.
+É importante lembrar que a suplementação orçamentária é um procedimento normal, definido em lei, e, na Prefeitura  do Recife, é planejado e executado pela Secretaria de Planejamento e Gestão (Seplag).  Cabe à Seplag  verificar o andamento da execução orçamentária por todos os órgãos da administração municipal, identificar, para o momento, qual a fonte de recursos mais adequada para ser realocada e suprir as demandas dos contratos, sem comprometer qualquer ação planejada em outras áreas da administração. Em momento oportuno será feita nova suplementação para garantir as ações das fontes realocadas. Este procedimento é absolutamente corriqueiro em qualquer esfera da administração pública.
+Quanto ao Teatro do Parque, ressaltamos que o mesmo está fechado desde 2010 e a atual gestão fez da sua reestruturação uma prioridade. Foi contratado um Plano de Gestão da Conservação do Teatro, ainda em 2013, junto ao Centro de Estudos Avançados de Conservação Integrada (CECI). Atualmente os projetos que compõem o Plano estão em fase final de revisão por técnicos do Gabinete de Projetos Especiais, para lançamento da licitação. A expectativa é que o edital das obras seja publicado ainda na primeira quinzena de julho."
+LEIA MAIS: Priscila Krause diz que Geraldo Julio transferiu dinheiro da reabertura do Teatro do Parque para shows

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Em operação inédita, Suape recebe aerogeradores para eólicas"
+date: 2024-04-30
+tags: jamildo, Suape
+author: Jamildo Melo
+---
+O Porto de Suape recebeu uma remessa de oito aerogeradores, equivalentes a 24 p&aacute;s e&oacute;licas, al&eacute;m de outras pe&ccedil;as para a montagem e opera&ccedil;&atilde;o de equipamentos de gera&ccedil;&atilde;o de energia limpa.
+Vindas da China, as h&eacute;lices t&ecirc;m impressionantes 84 metros de comprimento, o que as coloca como a maior carga desse tipo j&aacute; desembarcada no porto pernambucano.
+Esta &eacute; a primeira vez que um conjunto e&oacute;lico completo chega ao porto p&uacute;blico pernambucano em uma &uacute;nica remessa. Est&atilde;o previstas outras opera&ccedil;&otilde;es semelhantes at&eacute; julho de 2025, totalizando 108 turbinas distribu&iacute;das em 11 viagens para Suape. A empresa chinesa Goldwind, l&iacute;der global na fabrica&ccedil;&atilde;o de turbinas e&oacute;licas, &eacute; respons&aacute;vel por essa expedi&ccedil;&atilde;o mar&iacute;tima da China at&eacute; Suape.
+Com um peso pr&oacute;ximo de 7 mil toneladas, a carga foi embarcada no porto de Lianyungang, localizado na prov&iacute;ncia de Jiangsu. A jornada at&eacute; Suape durou 40 dias e foi conduzida pelo navio Tian Lu, registrado em Singapura, um pa&iacute;s da &Aacute;sia Oriental.
+Segundo Rinaldo Lira, diretor de Desenvolvimento e Gest&atilde;o Portu&aacute;ria de Suape, a opera&ccedil;&atilde;o teve in&iacute;cio no domingo (29) e est&aacute; prevista para durar de 4 a 6 dias adicionais.
+Lira explica que &eacute; uma opera&ccedil;&atilde;o complexa que demanda o uso de caminh&otilde;es com at&eacute; 16 eixos e guindastes capazes de erguer 400 toneladas combinadas. Inicialmente, as pe&ccedil;as ficar&atilde;o armazenadas no p&aacute;tio do Terminal de Cont&ecirc;ineres de Suape (Tecon) aguardando libera&ccedil;&atilde;o pelos &oacute;rg&atilde;os reguladores.
+Ap&oacute;s a libera&ccedil;&atilde;o da carga, os componentes, como p&aacute;s e&oacute;licas, rotores, torres, caixas de transmiss&atilde;o e geradores, ser&atilde;o transportados por via terrestre para a Serra da Palmeira, na Para&iacute;ba. L&aacute;, est&aacute; sendo instalado um parque e&oacute;lico que abranger&aacute; os munic&iacute;pios de Picu&iacute;, Bara&uacute;na, S&atilde;o Vicente do Serid&oacute;, Nova Palmeira e Pedra Lavrada. A CTG Brasil, uma das principais geradoras de energia limpa do pa&iacute;s, &eacute; respons&aacute;vel pela implementa&ccedil;&atilde;o e opera&ccedil;&atilde;o desse complexo e&oacute;lico.

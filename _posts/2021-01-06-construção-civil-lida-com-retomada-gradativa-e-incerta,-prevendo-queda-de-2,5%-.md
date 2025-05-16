@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Construção Civil lida com retomada gradativa e incerta, prevendo queda de 2,5% em seu PIB até o fim deste ano"
+date: 2021-01-06
+tags: construção civil,queda,retomada
+author: None
+---
+A construção civil apresentou resultados bastante positivos nos últimos meses, mas ainda lida com um futuro incerto. A expectativa de crescimento prevista no início do ano mudou com a chegada da pandemia.
+O Sindicato da Indústria da Construção Civil do Estado de São Paulo (Sinduscon-SP) avalia a possibilidade de uma queda de 2,5% no PIB do setor até o encerramento deste ano.
+Segundo a entidade, os rendimentos atuais não são capazes de assegurar uma recuperação consistente do segmento.
+Estimulada pela majoração do número de obras de reparo durante a pandemia, a construção civil viveu um período de grandes avanços em 2020.
+Entre dezembro de 2019 e outubro deste ano, o setor gerou cerca de 138 mil vagas de emprego com carteira assinada no Brasil e acabou incentivando o desenvolvimento de várias outras áreas e segmentos. A comercialização de cimento, por exemplo, registrou uma elevação de 10,1% entre os meses de janeiro e outubro deste ano, tendo por comparação o mesmo intervalo de tempo de 2019.
+"A busca por novas obras, tanto por parte de famílias quanto de empresas, aumentou muito ao longo da temporada de isolamento social, principalmente, as de menores proporções. Acredito que o surgimento do auxílio emergencial contribui significativamente para a criação do cenário recente", disse o diretor comercial da empresa de revestimentos sustentáveis Ecogranito, Renato Las Casas.
+Segundo o empresário, para manter o contexto favorável, o sucesso da construção civil deve ser acompanhado pela boa performance de outros setores.
+"No entanto, isso não está acontecendo. A retomada econômica está ocorrendo de maneira distinta para cada segmento. Esse fato fica evidente quando observamos alguns dados recentes. Conforme o Sinduscon, as vendas de varejo alcançaram uma alta de 7,8% entre janeiro e outubro, enquanto a produção industrial apresentou um declínio de 4,7% no mesmo período. A pesquisa de Sondagem da Construção, realizada pela FGV-Ibre, ainda mostrou a diminuição das taxas de atividade do setor nos segmentos de instalações, acabamentos, construção, edificações, obras viárias, obras voltadas a criação de túneis, pontes ou viadutos e a preparação de terrenos. Esta análise também revelou que os maiores obstáculos que o setor enfrenta atualmente são baseados na insuficiência de demanda, crescimento da rivalidade e disputa entre empreendimentos do próprio setor e o encarecimento de matérias-primas", comenta.
+De acordo com Renato Las Casas, a obtenção de alguns materiais ficou mais difícil, mas isso não chegará a acarretar a escassez dos mesmos.
+"O problema maior neste momento é a elevação dos preços de produtos que estão sob o domínio de poucos fornecedores, como por exemplo, o PVC, que teve um significativo aumento. Além disso, a alta do dólar, que atingiu os 40% no último ano, afetou a fabricação de todos os materiais provenientes do petróleo", destaca.
+"A inércia econômica atrapalha bastante o movimento de recuperação. A situação de incertezas, dúvidas e insegurança acaba adiando a concretização de grandes investimentos no Brasil. Hoje, o nosso país possui intensos problemas fiscais e a sua economia expõe uma produtividade muito baixa. A junção destes fatores faz com que os avanços da construção civil se mostrem instáveis e oscilantes com o passar dos anos", afirma.
+Renato aponta que de acordo com o Sinduscon, os efeitos do aquecimento do mercado imobiliário durante a pandemia – em razão da evolução do crédito e diminuição das taxas de juros – não foram sentidos em todas as regiões de nosso território.
+"Esse mercado demonstrou ganhos mais suntuosos em cidades com maiores rendas, como São Paulo, mas o seu deslocamento ascendente não se fez presente no Rio de Janeiro e em Recife, por exemplo. Entretanto, apesar de todo este contexto e a preocupação com os altos preços dos insumos, a previsão é que em 2021 a construção civil se recupere e registre um aumento de 3,8% no PIB", conclui.

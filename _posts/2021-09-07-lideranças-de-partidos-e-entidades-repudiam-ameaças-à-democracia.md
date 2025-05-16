@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Lideranças de partidos e entidades repudiam ameaças à democracia"
+date: 2021-09-07
+tags: DEMOCRACIA
+author: JAMILDO MELO
+---
+A organiza&ccedil;&atilde;o Direitos J&aacute;!, que re&uacute;ne lideran&ccedil;as pol&iacute;ticas de 16 partidos pol&iacute;ticos e de diversas organiza&ccedil;&otilde;es sociais brasileiras, divulgou manifesto repudiando amea&ccedil;as do Poder Executivo &agrave; democracia e &agrave; Constitui&ccedil;&atilde;o Brasileira. Veja os termos, abaixo.
+EM DEFESA DA ORDEM DEMOCR&Aacute;TICA
+A tradi&ccedil;&atilde;o constitucional brasileira, de freios e contrapesos capazes de fazerem robusta nossa jovem democracia, est&aacute; sob risco para servir a um projeto de orienta&ccedil;&atilde;o fascista, capitaneado pelo pr&oacute;prio chefe do Poder Executivo. Jair Messias Bolsonaro ensaia &ldquo;cruzar o Rubic&atilde;o&rdquo; ao se insurgir contra decis&otilde;es leg&iacute;timas do Poder Judici&aacute;rio e acirrar seguidores contra o Supremo Tribunal Federal (STF) e seus ministros.
+T&atilde;o grave quanto, o presidente convulsiona o tecido social ao promover campanha de armamento de cidad&atilde;os, apropriar-se de data nacional, a Independ&ecirc;ncia, e convocar milicianos armados &agrave;s ruas em marcha contra um pilar do sistema democr&aacute;tico.
+O momento, de grande tens&atilde;o, imp&otilde;e a vigil&acirc;ncia dos setores democr&aacute;ticos. Motivo pelo qual a Direitos J&aacute;! F&oacute;rum pela Democracia lan&ccedil;a este alerta em manifesto.
+Bolsonaro encena uma crise pol&iacute;tica, com atos de golpismo expl&iacute;cito, para desviar a aten&ccedil;&atilde;o do desemprego que grassa; da fome que campeia; da grave devasta&ccedil;&atilde;o ambiental, que acelera a crise h&iacute;drica e energ&eacute;tica; e da infla&ccedil;&atilde;o, j&aacute; definitivamente em ascens&atilde;o.
+Sigamos atentos e vigilantes neste Sete de Setembro. Que fique garantido &agrave;queles que queiram protestar em favor do presidente que possam faz&ecirc;-lo de modo ordeiro. No entanto, que qualquer atitude atentat&oacute;ria &agrave; independ&ecirc;ncia dos poderes, ao primado da lei e &agrave; liberdade dos cidad&atilde;os seja duramente reprimida e debelada pela autoridade da Constitui&ccedil;&atilde;o, na defesa da ordem democr&aacute;tica.Direitos J&aacute;! F&oacute;rum pela Democracia
+ Direitos J&aacute;! F&oacute;rum pela Democracia &eacute; uma iniciativa da sociedade civil em defesa dos valores fundamentais expressos na Constitui&ccedil;&atilde;o Cidad&atilde;. Re&uacute;ne, desde 2019, lideran&ccedil;as de partidos pol&iacute;ticos, organiza&ccedil;&otilde;es da sociedade civil e 10 mil cidad&atilde;os mobilizados com um consenso: a defesa da democracia. Partidos com lideran&ccedil;as pol&iacute;ticas no Direitos J&aacute;!: PDT, MDB, PSB, PCdoB, PSOL, PSL, PT, PSDB, PV, Rede, Podemos, Solidariedade, Cidadania, PL, DEM e PSD.

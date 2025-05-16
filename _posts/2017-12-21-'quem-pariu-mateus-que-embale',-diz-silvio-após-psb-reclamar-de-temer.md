@@ -1,0 +1,15 @@
+---
+layout: post
+title: "'Quem pariu Mateus que embale', diz Silvio após PSB reclamar de Temer"
+date: 2017-12-21
+tags: apostas,esquema criminoso,Mateus Solano,Michel Temer,Silvio Costa
+author: None
+---
+Cada vez mais próximo do PT, o PSB tem usado a estratégia de se descolar do governo Michel Temer (PMDB). Nos últimos dias, parlamentares do partido acusaram o presidente de retaliação pela queda nos repasses para Pernambuco e por questões como o não cumprimento da promessa de entregar a autonomia do Porto de Suape. O deputado Silvio Costa (Avante-PE), que tenta afastar petistas e socialistas para 2018, aproveitou o discurso dos opositores para criticá-los e lembrou nesta quinta-feira (21) que eles foram articuladores do impeachment de Dilma Rousseff (PT). "Quem pariu Mateus que o embale", rebateu a reclamação do PSB.
+Silvio Costa afirma que, sem os votos do PSB, Dilma não teria sido afastada. A abertura do processo de impeachment foi aprovada na Câmara por 367 deputados - 25 a mais do que os 342 que eram necessários. No período da votação, em abril do ano passado, o partido tinha 31 deputados e orientou votação a favor do afastamento da petista.
+"Se o PSB não tivesse votado a favor de Temer, participado dessa articulação, Dilma não tinha caído. Lembro quando o prefeito dizia: 'Nós temos que tirar aquela mulher'. Então eu acho que seria mais palatável o PSB dizer que estava arrependido do golpe e não ficar reclamando", afirmou o deputado. "Eles que colocaram Temer aí e agora reclamam de Temer e estão atrás do PT para as eleições de 2018", disse ainda.
+"Passaram quatro anos batendo no PT, em Lula, em Dilma. Arrancaram Dilma do poder e agora estão arrependidos? Peçam desculpas a Dilma pelo menos", criticou.
+O deputado ainda atribui a movimentação do PSB à insegurança sobre o PMDB para 2018. Hoje, com o grupo de Jarbas Vasconcelos e Raul Henry, o partido é o principal aliado de Paulo Câmara e também o que garante o maior tempo de televisão. Em articulação da executiva nacional, porém, pode ir para a oposição, levado por Fernando Bezerra Coelho. "Perderam o apoio do PMDB porque Jarbas perdeu o PMDB para FBC. Perdeu o tempo de televisão e agora está correndo atrás do PT", avalia Silvio.
+Com 60 deputados, o PMDB tem a maior bancada, o que garante o tempo de propaganda partidária na televisão. O PT vem segundo, com 57 parlamentares. Paulo Câmara tem ampliado os espaços do terceiro maior, o PP, com 52, no governo para garantir o apoio em 2018.
+PSB e PT começaram a romper em 2012, nas eleições municipais do Recife. Um ano depois, Eduardo Campos, com intenção de disputar o Palácio do Planalto, também decidiu encerrar a aliança em nível nacional. Este ano, os presidentes dos dois partidos, Carlos Siqueira e Gleisi Hoffmann, respectivamente, retomaram as conversas, que podem respingar em Pernambuco. Com isso, Silvio Costa, aliado do PT e opositor do PSB, não teria palanque do lados dos petistas, com quem quer se lançar candidato ao Senado.
+&nbsp;

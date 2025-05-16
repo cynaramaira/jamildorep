@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Odebrecht delata caixa 2 em dinheiro vivo para Alckmin, diz jornal"
+date: 2016-12-09
+tags: Caixa,dinheiro,geraldo Alckmin,JORNAL,Pará
+author: None
+---
+Em delação premiada à força-tarefa da Lava Jato, executivos da Odebrecht disseram que teriam repassado dinheiro de caixa 2, em dinheiro em espécie, para as campanhas de 2010 e 2014 de Geraldo Alckmin (PSDB) a governador de São Paulo. Segundo reportagem da Folha de S. Paulo, o pagamento teria sido feito a duas pessoas próximas a Alckmin. Eles disseram que não chegaram a discutir o assunto diretamente com o governador.
+Ainda conforme a delação, R$ 2 milhões em dinheiro vivo teriam sido repassados ao empresário Adhemar Ribeiro, irmão da primeira-dama, Lu Alckmin, durante a campanha que elegeu o tucano em 2010. Na briga pela reeleição, um dos operadores, segundo a empreiteira, seria o atual secretário de Planejamento do governo paulista, Marcos Monteiro. A Folha não obteve os valores que teriam sido pagos na campanha para a reeleição.
+Dados do Tribunal Superior Eleitoral (TSE) indicam que não há doações diretas da Odebrecht à conta da candidatura de Alckmin em 2010 e 2014. O tribunal registra, na primeira campanha, apenas uma doação oficial de R$ 100 mil da Braskem, braço petroquímico da empreiteira, à direção do PSDB em São Paulo. No ano de 2014, foi informada uma doação de R$ 200 mil da mesma empresa ao comitê financeiro da campanha a governador, valor que foi repassado pelo comitê à conta da candidatura do tucano.
+O codinome de Alckmin nas listas de propina e caixa 2 da empreiteira era "Santo", segundo informação publicada pela revista Veja. O apelido aparecia associado nas planilhas da Odebrecht apreendidas pela Polícia Federal à duplicação da rodovia Mogi-Dutra, uma obra do governo Alckmin de 2002.
+Contrapontos
+Geraldo Alckmin (PSDB-SP): por meio de sua assessoria, disse à Folha que "é prematura qualquer conclusão com base em informações vazadas de delações não homologadas". "Apenas os tesoureiros das campanhas, todos oficiais, foram autorizados pelo governador Geraldo Alckmin a arrecadar fundos dentro do que determina a legislação eleitoral", diz em nota.
+Sobre o codinome "Santo" que aparece em planilha da Odebrecht, a nota afirmou que o apelido "aparece em outros documentos oficiais apreendidos na Operação Lava-Jato referentes aos anos de 2002 e 2004, sem qualquer relação com eleições disputadas pelo governador Geraldo Alckmin".
+A assessoria do governo informou que Marcos Monteiro, citado pela Odebrecht como intermediário de caixa 2 na campanha de 2014, foi o tesoureiro daquela campanha.
+Marcos Monteiro: o atual secretário de SP disse que ele é o tesoureiro do diretório estadual do PSDB há dois anos e "presta contas do fundo partidário à Justiça Eleitoral com regularidade".
+Adhemar Ribeiro: a Folha entrou em contato com a empresa do cunhado de Alckmin, citado pela empreiteira como operador do caixa dois em 2010, e deixou recado sobre o teor da reportagem. Ele não atendeu ao telefonema e nem retornou o contato até a conclusão deste texto.
+Odebrecht: a empresa diz que não se manifesta sobre negociação com a Justiça. Sua assessoria afirmou que a empreiteira "reforça seu compromisso com uma atuação ética, íntegra e transparente, expresso por meio das medidas concretas já adotadas para reforçar e ampliar o sistema de conformidade nas empresas do grupo".

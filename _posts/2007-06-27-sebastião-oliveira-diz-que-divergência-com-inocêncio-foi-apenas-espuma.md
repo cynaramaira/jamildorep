@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Sebastião Oliveira diz que divergência com Inocêncio foi apenas espuma"
+date: 2007-06-27
+tags: Jorge Oliveira
+author: None
+---
+Colocado na berlinda por conta de uma contrariedade que&nbsp;teria causado ao primo Inoc&ecirc;ncio Oliveira (PR), o&nbsp;secret&aacute;rio de Transportes do Estado Sebasti&atilde;o Oliveira (tamb&eacute;m do PR) disse na tarde desta quarta (26), &agrave; rep&oacute;rter&nbsp;Ana L&uacute;cia Andrade, do JC, que o problema entre os dois n&atilde;o&nbsp;passou de espuma.
+&quot;Foram buzinar no ouvido de Inoc&ecirc;ncio que eu estaria&nbsp;entrando em suas bases&quot;, contou, negando que tenha tentado&nbsp;ganhar espa&ccedil;o na seara do deputado. Mas foi seu pr&oacute;prio primo quem disse, em entrevista a Inaldo Sampaio, publicada&nbsp;nesta quarta no Jornal do Commercio, que Sebasti&atilde;o estaria&nbsp;tentando viabilizar sua candidatura &agrave; C&acirc;mara Federal em&nbsp;2010, a partir do l&ccedil;an&ccedil;amento de Inoc&ecirc;ncio para o Senado.
+&quot;Sebasti&atilde;o queria que eu me lan&ccedil;asse candidato ao Senado&nbsp;porque estava com a expectativa, ali&aacute;s justa, de me suceder&nbsp;na C&acirc;mara Federal e eu disse a ele que n&atilde;o era hora, que s&oacute;&nbsp;seria candidato a senador, numa hip&oacute;tese remot&iacute;ssima, se&nbsp;porventura fosse convocado pelo governador Eduardo Campos e&nbsp;todas as for&ccedil;as pol&iacute;ticas que o ap&oacute;iam&quot;, explicou Inoc&ecirc;ncio&nbsp;na entrevista.
+A diverg&ecirc;ncia pol&iacute;tica entre os primos &eacute; fato novo no&nbsp;entrevero entre os dois. Logo que a contrariedade de&nbsp;Inoc&ecirc;ncio em rela&ccedil;&atilde;o a Sebasti&atilde;o Oliveira veio &agrave; tona, no&nbsp;in&iacute;cio do m&ecirc;s, comentava-se que o problema era de ordem&nbsp;administrativa. 
+Indicado por Inoc&ecirc;ncio para a secretaria estadual de&nbsp;Transportes, Sebasti&atilde;o Oliveira teria desagradado o primo&nbsp;por conta do veto a uma concorr&ecirc;ncia do DER.
+Na entrevista a Inaldo Sampaio, Inoc&ecirc;ncio desmentiu que&nbsp;tenha feito qualquer reparo &agrave; atua&ccedil;&atilde;o administrativa do&nbsp;secret&aacute;rio. 
+&quot;Tenho por princ&iacute;pio n&atilde;o me envolver em quest&otilde;es&nbsp;administrativas. Tanto que podem quebrar o meu sigilo&nbsp;banc&aacute;rio, fiscal e telef&ocirc;nico que n&atilde;o v&atilde;o encontrar nada.&nbsp;Falou-se que eu teria brigado com ele por causa de uma&nbsp;licita&ccedil;&atilde;o do DER, mas isso nunca existiu&quot;, afirmou&nbsp;Inoc&ecirc;ncio. 
+&quot;O que houve foi uma licita&ccedil;&atilde;o do governo anterior que&nbsp;Sebasti&atilde;o e o Dr. Eug&ecirc;nio Moraes (do DER), que s&atilde;o pessoas&nbsp;muito s&eacute;rias, mandaram por precau&ccedil;&atilde;o para a Procuradoria Geral do Estado e nada mais do que isto. Tenho 33 anos de&nbsp;vida p&uacute;blica honesta, s&eacute;ria, decente, e n&atilde;o conhe&ccedil;o nenhuma&nbsp;empreiteira que trabalha para o DER&quot;, garantiu o deputado&nbsp;federal.
+Inoc&ecirc;ncio faltou ao almo&ccedil;o do Caxang&aacute; &Aacute;gape em homenagem a&nbsp;Sebasti&atilde;o Oliveira, nesta quarta. Mas mandou a mulher e as&nbsp;duas filhas represent&aacute;-lo, garantindo que o epis&oacute;dio est&aacute;&nbsp;superado e a paz, selada.
+Leia mais abaixo o que publicamos sobre a homenagem ao&nbsp;secret&aacute;rio de Transportes.  

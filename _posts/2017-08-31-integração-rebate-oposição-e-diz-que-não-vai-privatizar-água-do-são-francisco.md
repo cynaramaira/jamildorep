@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Integração rebate oposição e diz que não vai privatizar água do São Francisco"
+date: 2017-08-31
+tags: água,Naomi Campbell,Oposição,Papa Francisco,são
+author: None
+---
+A oposição não perdeu tempo para criticar os estudos que estão em andamento para analisar a viabilidade de conseguir um parceiro privado para operar a transposição do rio São Francisco. O líder da bancada no Senado, Humberto Costa (PT-PE), chegou a afirmar que, "em fúria privatizante, Temer quer vender até o rio". Para rebater, o Ministério da Integração Nacional divulgou uma nota nesta quinta-feira (31), informando que "não é correta a interpretação de que esses estudos visem a privatização das águas", e sim a operação do projeto.
+A ideia até agora, como informou o Blog de Jamildo, é de que de a operação da transposição seja administrada pela Companhia de Desenvolvimento dos Vales do São Francisco e do Parnaíba (Codevasf), que é vinculada ao ministério e já atua no projeto, enquanto o Banco Nacional de Desenvolvimento Econômico e Social (BNDES) não termina o estudo que prevê a viabilidade de uma gestão privada.
+LEIA TAMBÉM
+ » Governo estuda privatizar transposição do São Francisco
+» Reservatórios do São Francisco têm menor vazão já liberada
+ » Paulo Câmara aceita divisão de custos da transposição e promete isentar mais pobres
+Em entrevista publicada pelo site Poder360 nessa quarta-feira (30), o ministro Helder Barbalho confirmou que a análise da viabilidade da privatização e a modelagem está sendo feita pelo banco. A expectativa do gestor é de que os estudos sejam concluídos até 2018, para quando é prometida a entrega do último trecho da transposição em construção, o eixo norte, que vai de Pernambuco ao Ceará.
+O ministério enfatizou que a realização dos estudos começou em outubro do ano passado, quando foram solicitados ao secretário do Programa de Parcerias de Investimentos (PPI), Moreira Franco.
+A pasta de Integração Nacional enfatizou ainda que o objetivo de fazer a concessão é de tentar minimizar o impacto financeiro para o governo. O custo anual gira em torno de R$ 500 milhões, principalmente por causa do preço da energia para bombear a água pelos canais. "Essa redução de custos, caso os estudos indiquem sua viabilidade, deve ser repassado aos moradores dos estados favorecidos pelo projeto", afirma a nota.
+» População espera transposição, mas cobrança por consumo aflige
+ » Um ano depois, obras são retomadas no eixo norte da transposição
+» MPF pede ao TSE para multar Lula por ato político na transposição
+Humberto Costa acusou ainda o governo federal de fazer com que os Estados beneficiados pelo empreendimento - Pernambuco, Ceará, Rio Grande do Norte e Paraíba - paguem pela água. Esse pagamento, porém, já estava previsto e era reconhecido pelo governador Paulo Câmara (PSB). O presidente da Companhia Pernambucana de Saneamento (Compesa), Roberto Tavares, chegou a estimar um aumento de 8% nas tarifas.
+O ministério afirmou que em 2005, antes do início das obras, foram assinados os convênios entre a União e os governos estaduais com essa regra - de que os estados deveriam pagar à Codevasf. "Nestes acordos foram estabelecidos os direitos e deveres de cada um dos entes da federação envolvidos no Projeto de Integração do São Francisco. Portanto, as regras de operação e custeio da operação do Projeto foram negociados e acertados entre o governo federal e os governos estaduais. Qualquer interpretação diferente dessa não corresponde à realidade", responde a nota.
+Obras complementares à transposição
+O eixo leste foi entregue em março, em cerimônia com o presidente Michel Temer (PMDB) que demonstrou a briga pela paternidade da transposição, iniciada em 2007, no governo Lula (PT). Apesar de esse trecho ter cerca de 200 quilômetros de canais passando por Pernambuco, o Estado não é beneficiado ainda - a não ser aproximadamente 30 mil habitantes do município de Sertânia. Isso porque faltam concluir obras complementares, como a Adutora e o Ramal do Agreste, mesmo problema vivenciado por outros estados.
+A nota do Ministério da Integração enfatiza que a responsabilidade pela distribuição da água é dos estados. A pasta não menciona, porém, que boa parte dos repasses para a realização das obras complementares são do governo federal. No caso da Adutora do Agreste, a gestão estadual culpa a União pelo atraso. A previsão de repasse para a obra, que deveria ter sido concluída em 2014 e até hoje tem 55% finalizados, era de R$ 240 milhões e foram enviados R$ 56,5 milhões. O Ramal, sob responsabilidade do ministério, sequer foi iniciado.
+O eixo norte foi retomado em julho, após passar um ano com obras paradas entre Pernambuco e Ceará. A Mendes Júnior, envolvida na Operação Lava Jato, deixou os canteiros alegando dificuldade de obter crédito e a licitação levou um semestre para ser retomada, além de ter passado por um imbróglio judicial após ser concluída. A conclusão do projeto vai custar ao todo R$ 516,8 milhões, mas só a primeira ordem de serviço foi assinada, liberando R$ 132 milhões.

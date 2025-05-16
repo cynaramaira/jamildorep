@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Bolsonaro e Haddad decidirão eleição para presidente no segundo turno"
+date: 2018-10-07
+tags: Bolsonaro,eleição,Fernando Haddad,Presidente,segundo turno
+author: None
+---
+Jair Bolsonaro (PSL) e Fernando Haddad (PT) decidirão em segundo turno, no próximo dia 28, quem será o futuro presidente do Brasil. O resultado ficou matematicamente confirmado às 20h51, informou o Tribunal Superior Eleitoral (TSE). Com 95,57% das urnas apuradas, o ex-militar obteve 47.756.864 votos (46,70 %) no primeiro turno e o petista, 29.013.095 votos (28,37 %), segundo o TSE. Ciro Gomes (PDT) recebeu 12.731.156 votos (12,52%) e ficou em terceiro lugar na disputa.
+Depois de quatro eleições consecutivas, essa será a primeira vez que candidatos de PT e PSDB não disputarão o segundo turno – em 2002, Luiz Inácio Lula da Silva (PT) venceu José Serra (PSDB); em 2006, Lula se reelegeu contra Geraldo Alckmin (PSDB); em 2010, Dilma superou Serra e, em 2014, Dilma venceu Aécio Neves.
+Considerada uma campanha eleitoral carente de propostas e repleta de ataques, a eleição de 2018 mais uma vez polarizou o País - desta vez não entre PT e PSDB - como em 2014 e por pouco não ganhou contornos trágicos com o atentado sofrido em setembro por Jair Bolsonaro. O embate entre os postulantes à Presidência do Brasil no primeiro turno, ganhou cenas de desconstrução da imagem de candidatos e de falta de debates sobre as reais necessidades do País.
+Nesta eleição, Bolsonaro polarizou com o PT e apostou no discurso ‘anti-petista’ que lhe garantiu o apoio de grande parte dos brasileiros mesmo não falando durante boa parte do processo eleitoral. Sem a presença física do ex-presidente Lula nos atos políticos pelo Brasil, mas com o apoio do líder petista que está preso em Curitiba, Haddad não conseguiu descolar da imagem de Lula e contou com a bandeira ‘anti-PT’, levantada por Bolsonaro, como o maior fator que o impediu de vencer o pleito no primeiro turno.
+A campanha e o ‘fator’ Lula
+A campanha eleitoral passou por uma reviravolta depois que o registro do ex-presidente Lula foi negado pelo TSE e após a facada recebida por Jair Bolsonaro durante ato de campanha em Minas Gerais, em 6 de setembro.
+Até então, as pesquisas indicavam uma situação de estabilidade, com Bolsonaro à frente de Marina e Ciro Gomes, posteriormente, em segundo. Com a oficialização de Fernando Haddad como candidato do PT, o ex-prefeito de São Paulo começou a crescer nas pesquisas de intenção de voto, colando na imagem do ex-presidente e assumindo a segunda posição.
+Após o atentado que retirou Bolsonaro da campanha eleitoral, o presidenciável atingiu o número de 32% das intenções de voto na última pesquisa divulgada pelo Ibope e não largou o primeiro lugar da disputa. 
+A campanha foi marcada por fortes ataques contra o candidato do PSL. A ascensão e estabilização de Bolsonaro logo após a facada fez com que se tornassem mais duros os discursos dos adversários contra ele. Em atos de campanha e nos programas eleitorais de TV, candidatos pediam com frequência aos eleitores que votassem contra a "intolerância" e contra a “volta do PT”. Presidenciáveis, mais uma vez, adotaram o “discurso do medo”.
+ 

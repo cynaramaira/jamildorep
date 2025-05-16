@@ -1,0 +1,15 @@
+---
+layout: post
+title: "'Minha opção é Miguel Coelho para governador', diz Mendonça Filho"
+date: 2022-02-04
+tags: eleições 2022, Mendonça Filho
+author: JAMILDO MELO
+---
+O ex-ministro da Educa&ccedil;&atilde;o, Mendon&ccedil;a Filho, falou na Rede Pernambuco de R&aacute;dios sobre o processo para escolha do candidato que ir&aacute; representar a oposi&ccedil;&atilde;o nas elei&ccedil;&otilde;es de outubro. Mendon&ccedil;a aponta o nome da sua prefer&ecirc;ncia para disputar a vaga majorit&aacute;ria em Pernambuco e defendeu o esfor&ccedil;a para haver uma coes&atilde;o entre as oposi&ccedil;&otilde;es no estado.
+&ldquo;&Eacute; um jovem competente, trabalhador, articulado. Tem se dedicado muito a sua miss&atilde;o como pr&eacute;-candidato ao Governo. Tenho certeza que Miguel ser&aacute; um grande candidato e ter&aacute; todas as condi&ccedil;&otilde;es de ganhar as elei&ccedil;&otilde;es para governador de Pernambuco&rdquo;, afirmou.
+&ldquo;Precisamos ampliar e unir a oposi&ccedil;&atilde;o. Temos nomes que eu respeito bastante como Raquel Lyra, prefeita de Caruaru. O pr&oacute;prio Anderson, prefeito de Jaboat&atilde;o dos Guararapes, e n&oacute;s vamos trabalhar de forma articulada para podermos ter o melhor caminho com rela&ccedil;&atilde;o ao futuro de Pernambuco. Minha op&ccedil;&atilde;o &eacute; Miguel Coelho para Governador de Pernambuco&rdquo;, destacou.
+Mendon&ccedil;a aposta na concretiza&ccedil;&atilde;o da fus&atilde;o entre os partidos DEM e PSL, para a forma&ccedil;&atilde;o do Uni&atilde;o Brasil, e assim partir para formaliza&ccedil;&atilde;o da candidatura de Miguel Coelho e da chapa proporcional para as vagas de deputado Estadual e Federal.
+&ldquo;At&eacute; o final de fevereiro a gente deve ter a homologa&ccedil;&atilde;o do Uni&atilde;o Brasil e a cria&ccedil;&atilde;o de um partido mais forte&rdquo;, disse.
+Base pol&iacute;tica em Santa Cruz do Capibaribe
+O ex-deputado que ir&aacute; tentar uma vaga na C&acirc;mara Federal falou sobre sua vincula&ccedil;&atilde;o com Santa Cruz do Capibaribe e citou alguns amigos e marcas que deixou na cidade. &ldquo;Zilda Moraes continua a&iacute; na labuta&rdquo;. Mendon&ccedil;a destacou a rela&ccedil;&atilde;o de amizade e a parceria com ex-vice-prefeito Dida de Nam para este ano de 2022. &ldquo;&Eacute; um homem respeitado e querido em Santa Cruz do Capibaribe. Tem minha confian&ccedil;a plena, e se Deus quiser e permitir, estarei do lado dele agora em 2022&rdquo;, frisou.
+Ele agradeceu ainda o &ldquo;gesto de aten&ccedil;&atilde;o&rdquo; do prefeito F&aacute;bio Arag&atilde;o (PP), que o convidou recentemente para o ato da entrega de uma creche para a popula&ccedil;&atilde;o, conquistada para o munic&iacute;pio, quando Mendon&ccedil;a esteve Ministro da Educa&ccedil;&atilde;o.

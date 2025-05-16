@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Cientista política rebate Isaltino Nascimento e critica gestão de Lula Cabral"
+date: 2019-10-18
+tags: crítica,danilo cabral,Lula,Política
+author: None
+---
+A Atual Efetividade de Gestão no Cabo de Santo Agostinho - Esclarecimento Pernambuco Transparente.
+Por Raquel Lins, cientista política (UFPE), especialista em Planejamento e Gestão Pública (UPE) e criadora dos projetos Pernambuco Transparente e Orbe Político
+Na última entrevista, realizada para seu Blog (no Resenha Política, na TV JC), o deputado estadual Isaltino Nascimento cometeu um equívoco ao afirmar que o caso que envolve o prefeito do Cabo, Lula Cabral, foi apenas um raro deslize em seu histórico, "pontual", além de elogiar o seu papel como gestor.
+Segundo o Índice de Efetividade de Gestão, estudo realizado por todos os tribunais de contas do país para avaliar exatamente a capacidade de gestão das prefeituras - e divulgado pelo nosso TCE PE em 2018, o Cabo, atualmente, tem desempenhos bastante críticos em pelo menos três dos sete indicadores monitorados: Planejamento, Meio Ambiente e Educação (faixas C, as piores).
+É possível que a conjuntura seja ainda mais problemática, considerando que o Índice é realizado com base em informações encaminhadas pelos próprios governos, e não em auditorias. Talvez a população possa estranhar, por exemplo, a melhor performance concebível, em "Saúde", com A:
+
+
+Em 2018, pela experiência que tenho com o tema da transparência, lancei a iniciativa Pernambuco Transparente, percorrendo todas as controladorias das câmaras e prefeituras metropolitanas, para avaliar suas condições e consequente potência para coordenar o cumprimento da Lei de Acesso à Informação, já que compete a esses órgãos a sua aplicação interna no setor público - além de serem especiais enquanto primeira barreira burocrática contra irregularidades e má utilização de recursos.
+A visita à Prefeitura do Cabo foi uma das mais tristes, onde encontrei uma equipe com pouca infraestrutura e defasada, com apenas 4 servidores, praticamente sem alicerces para exercer suas atribuições (tendo em perspectiva a necessidade do porte do município) - o impacto na materialização da referida Lei (crucial para que a sociedade possa exercer o controle social) é significativo: inúmeros pedidos de informação encontravam-se não respondidos.
+No que diz respeito ao caso do Caboprev, as denúncias realizadas pelo MPF são transparentes, quase sempre com suas íntegras disponibilizadas nas próprias notícias dos websites oficiais, encontrando-se a que envolve o prefeito à disposição do público, com vasto conteúdo - tendo o próprio TRF5 (segunda instância) constatado "a existência de justa causa para instauração da ação penal para apuração das supostas práticas dos crimes indicados pela acusação, considerando que foram suficientemente demonstrados a materialidade delitiva e os indícios suficientes de autoria em relação aos denunciados”, nas palavras do desembargador federal e relator Edilson Nobre, reportadas pelo Tribunal -, que visando a salvaguarda do patrimônio público, autorizou também o sequestro e bloqueio de bens e valores depositados nas contas dos investigados.
+Cabe destacar que apesar do retorno à prefeitura, Lula Cabral permanece na condição de réu, aguardando o julgamento final.
+Por fim, salienta-se ainda que o prefeito responde à dezenas de ações junto ao Ministério Público Estadual, conforme apurado pelo Jornal do Commércio, em matéria especial e impecável dos jornalistas Ângela Belfort e Cássio Oliveira, do dia 05.05.19 ("Em Pernambuco, 15% dos prefeitos respondem à Justiça"), que levantou um total de 24 ações de improbidade na Promotoria do Cabo de Santo Agostinho, por práticas diversas ao longo de suas três administrações na cidade.
+Como cidadã e apaixonada por meu estado, torço que a população cabense possa encontrar em seu futuro gestores verdadeiramente mais dignos e que busque se fortalecer cada vez mais, para construir um controle social vivo, atento e atuante - esse sem dúvida, o principal escudo e força motriz de um rumo melhor.
+Raquel Lins
+Cientista Política (UFPE), especialista em Planejamento e Gestão Pública (UPE) - Criadora dos projetos Pernambuco Transparente e Orbe Político.

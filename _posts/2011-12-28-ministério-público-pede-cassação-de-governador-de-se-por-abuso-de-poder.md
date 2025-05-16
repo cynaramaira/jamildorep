@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Ministério Público pede cassação de governador de SE por abuso de poder"
+date: 2011-12-28
+tags: Abuso Sexual,GOVERNADORES,ministério,poderosa
+author: None
+---
+&nbsp;
+O Tribunal Superior Eleitoral (TSE) recebeu um pedido de cassa&ccedil;&atilde;o contra o governador de Sergipe, Marcelo D&eacute;da (PT), e o vice-governador, Jackson Barreto (PMDB), por abuso de poder pol&iacute;tico e econ&ocirc;mico durante a campanha para as elei&ccedil;&otilde;es de 2010. Eles s&atilde;o acusados pelo Minist&eacute;rio P&uacute;blico Eleitoral de divulgar propaganda institucional nos meses que antecederam a vota&ccedil;&atilde;o e de usar uma das resid&ecirc;ncias oficiais do governo para pedir apoio de seus aliados, o que &eacute; proibido pela legisla&ccedil;&atilde;o.
+O recurso dos procuradores eleitorais chegou ao TSE depois que o Tribunal Regional Eleitoral de Sergipe (TRE-SE) negou o pedido de cassa&ccedil;&atilde;o. A corte sergipana confirmou que os candidatos praticaram conduta vedada, mas alegou que o mandato deveria ser mantido, &quot;devendo ser respeitado o princ&iacute;pio da proporcionalidade na aplica&ccedil;&atilde;o da san&ccedil;&atilde;o&quot;. O relator do recurso no TSE ser&aacute; o ministro Marco Aur&eacute;lio Mello.
+O Minist&eacute;rio P&uacute;blico Eleitoral pediu a cassa&ccedil;&atilde;o em duas a&ccedil;&otilde;es. Na primeira, contra D&eacute;da e Jackson Barreto, os procuradores acusam o governador e o vice de organizarem um almo&ccedil;o para 300 l&iacute;deres pol&iacute;ticos do Estado para o lan&ccedil;amento de suas candidaturas. O evento teria acontecido no dia 15 de maio de 2010 na resid&ecirc;ncia oficial do governo e teria sido custeado com recursos p&uacute;blicos.
+Em outra a&ccedil;&atilde;o, apenas contra D&eacute;da, o Minist&eacute;rio P&uacute;blico acusa o governador de abuso de poder pol&iacute;tico devido &agrave; exposi&ccedil;&atilde;o em locais p&uacute;blicos do s&iacute;mbolo do governo - um cora&ccedil;&atilde;o estilizado. Para o &oacute;rg&atilde;o, o s&iacute;mbolo estava &quot;fortemente ligado &agrave; pessoa do governador&quot;, o que teria beneficiado D&eacute;da. De acordo com os procuradores, a Lei das Elei&ccedil;&otilde;es veda a veicula&ccedil;&atilde;o de propaganda institucional nos tr&ecirc;s meses anteriores ao pleito.
+Para o Minist&eacute;rio P&uacute;blico, a organiza&ccedil;&atilde;o do almo&ccedil;o e exposi&ccedil;&atilde;o da propaganda institucional afetaram a igualdade de oportunidade entre os candidatos nas elei&ccedil;&otilde;es.
+O advogado Paulo Ernani de Menezes, que representa D&eacute;da, disse que n&atilde;o h&aacute; irregularidade nos eventos relatados pelos procuradores. Ele confirma que o almo&ccedil;o na resid&ecirc;ncia oficial foi financiado com recursos do governo, o que seria permitido pela lei. O advogado declarou tamb&eacute;m que n&atilde;o h&aacute; abuso de poder na exposi&ccedil;&atilde;o de pe&ccedil;as de divulga&ccedil;&atilde;o de obras realizadas pela administra&ccedil;&atilde;o p&uacute;blica.
+Leia mais em estadao.com.br

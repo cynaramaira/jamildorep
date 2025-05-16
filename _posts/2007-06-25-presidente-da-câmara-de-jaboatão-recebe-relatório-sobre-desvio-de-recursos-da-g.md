@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Presidente da Câmara de Jaboatão recebe relatório sobre desvio de recursos da gestão anterior"
+date: 2007-06-25
+tags: Câmara,jaboatão,Presidente,recursos,Relatório
+author: None
+---
+O presidente da C&acirc;mara de Vereadores de Jaboat&atilde;o, Luiz&nbsp;Carlos Matos (sem partido), tem reuni&atilde;o nesta ter&ccedil;a (26)&nbsp;com empresa de auditoria cont&aacute;bil sobre as contas da gest&atilde;o&nbsp;do ex-presidente da Casa, vereador Paulo Roberto Mendes de&nbsp;Lima (PPS).
+Contra Paulo Mendes, que presidiu a Casa entre 2005 e 2006,&nbsp;pesam acusa&ccedil;&otilde;es de ter&nbsp;desviado parte de uma verba de&nbsp;R$ 814.000,00, que foram descontados&nbsp;dos funcion&aacute;rios da&nbsp;Casa, a t&iacute;tulo de imposto de renda, e n&atilde;o repassados &agrave;&nbsp;prefeitura.
+O pr&oacute;prio vereador admitiu em entrevista &agrave; JC/ CBN (leia e ou&ccedil;a aqui) que&nbsp;houve um descontrole administrativo em sua gest&atilde;o &agrave; frente&nbsp;da C&acirc;mara. Mas negou que tenha desviado&nbsp;os recursos em benef&iacute;cio pr&oacute;prio. Segundo ele, o dinheiro teria sido utilizado para pagamento&nbsp;a um n&uacute;mero excessivo de cargos&nbsp;comissionados.
+O atual presidente da C&acirc;mara, Luiz Carlos Matos, disse&nbsp;agora h&aacute; pouco ao Blog que a auditoria cont&aacute;bil, determinada por ele,&nbsp;vem sendo&nbsp;feita nos &uacute;ltimos tr&ecirc;s meses e que o relat&oacute;ria final da&nbsp;empresa contratada (&quot;atrav&eacute;s de licita&ccedil;&atilde;o&quot;, enfatiza) deve sair&nbsp;at&eacute; o final da semana.
+&quot;Depois disso, vou me reunir com uma comiss&atilde;o de tr&ecirc;s&nbsp;vereadores que foi nomeada para acompanhar os trabalhos e&nbsp;tamb&eacute;m com a mesa diretora da Casa para definir os encaminhamentos&quot;, contou Matos.
+Sobre sua decis&atilde;o de fazer uma auditoria na C&acirc;mara, ele explicou que &eacute; sempre salutar na administra&ccedil;&atilde;o p&uacute;blica identificar&nbsp;o in&iacute;cio e o fim de uma gest&atilde;o. &quot;Mas n&atilde;o que eu tenha nada&nbsp;contra o presidente anterior, at&eacute; porque sou seu&nbsp;amigo e n&atilde;o posso adiantar nada enquanto n&atilde;o receber&nbsp;o relat&oacute;rio&quot;, afirmou.
+Matos&nbsp;lembrou, de qualquer modo, que o vereador Paulo Roberto Mendes de Lima admitiu que cometeu erros. E p&ocirc;s em d&uacute;vida a&nbsp;vers&atilde;o&nbsp;do ex-presidente, segundo a qual teria havido&nbsp;apenas um &quot;desvio de finalidade&quot; por conta&nbsp;do descontrole no pagamento de cargos comissionados. 
+&quot;N&atilde;o houve aumento de cargos no per&iacute;odo. Seria preciso que&nbsp;houvesse lei neste sentido, aprovada e sancionanda, e com previs&atilde;o no or&ccedil;amento do munic&iacute;pio. N&atilde;o &eacute;&nbsp;f&aacute;cil fazer isso&quot;, bateu.
+Em &uacute;ltima an&aacute;lise, segundo Luiz Carlos Matos, quem vai dar&nbsp;a palavra final sobre o assunto ser&aacute; o Tribunal de Contas&nbsp;do Estado (TCE) quando chegar o momento de avaliar as&nbsp;contas da C&acirc;mara, o que ainda n&atilde;o tem previs&atilde;o de ser&nbsp;feito.
+&quot;Caber&aacute; ao TCE levantar a quest&atilde;o e encaminhar ao&nbsp;Minist&eacute;rio P&uacute;blico do Estado para que Paulo Mendes, caso seja&nbsp;condenado, possa se defender&quot;, advertiu. 

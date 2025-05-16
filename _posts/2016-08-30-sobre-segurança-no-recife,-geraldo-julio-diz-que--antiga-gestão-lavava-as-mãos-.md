@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Sobre segurança no Recife, Geraldo Julio diz que "antiga gestão lavava as mãos""
+date: 2016-08-30
+tags: Geraldo Julio,Irmãos Safdie,Recife,Segurança
+author: None
+---
+O prefeito e candidato à reeleição no Recife, Geraldo Julio (PSB), teceu críticas às gestões petistas que o sucederam na cidade. Em sabatina realizada Sistema Jornal do Commercio de Comunicação (SJCC), na manhã desta terça-feira (30), o socialista afirmou que a segurança na capital não é responsabilidade, apenas, do governador Paulo Câmara (PSB) e alfinetou ao dizer que a gestão anterior, do petista João da Costa, "lavava as mãos", nesta área. Hoje, João da Costa é candidato a vereador e defende a candidatura de João Paulo (PT) a prefeito do Recife.
+"Acho que é uma responsabilidade de todos [segurança]. É um tema importante que toca a vida de todo mundo. Sabemos que a antiga gestão da Prefeitura lavava as mãos em relação à segurança, mas fizemos várias ações. Implantamos 172 câmeras pela cidade, aumentamos o efetivo de guardas municipais, programa de reintegração com jovens da Funase, além do Compaz que dá oportunidade e afasta jovens do crime e das drogas em bairros de alta vulnerabilidade de segurança", ressaltou o prefeito.
+OUÇA A ÍNTEGRA:
+
+Geraldo ainda saiu em defesa do governador Paulo Câmara ao falar sobre o problema de segurança no Estado. "Vi Paulo ampliar o número de viaturas e sei que ele tem feito ações para enfrentar a violência. Agora, não dá pra passar a cortina sobre o problema. A violência aumentou com a crise econômica em Recife, em Pernambuco e no Brasil", disse.
+As críticas de Geraldo à gestão anterior não ficaram apenas no âmbito de segurança. Indagado pelo jornalista Wagner Gomes sobre a situação da sinalização vertical do Recife que é essencial para dar maior fluidez no trânsito. O prefeito disse que recebeu a cidade com uma "sinalização precária". "Sabemos da importância da sinalização, mas recebemos a cidade com essa sinalização precária. Mesmo assim, colocamos mais de oito mil placas nestes três anos e meio. É verdade que deve avançar mais, mas já instalamos mais de 12 mil elementos de sinalização.
+A pesquisa IPMN apontou um empate técnico entre os candidatos João Paulo (PT) e o prefeito Geraldo Julio (PSB). Na estimulada, o ex-prefeito do Recife João Paulo surge com 27,7% das intenções de voto. Logo atrás dele, embora em empate técnico, em função dos quatro pontos percentuais da margem de erro da pesquisa, aparece o socialista com 25,3% das intenções de voto.
+Sobre os pontos que não foram cumpridos do seu plano de governo, Geraldo citou o momento de dificuldade no País. "Passamos pela maior crise econômica, famílias tiveram que cortar despesas e prefeituras também. Outros não conseguem pagar a folha, mas estamos conseguindo e fizemos obras em morros, Compaz, Hospital da Mulher e muitas ações em momento de dificuldade, todos tiveram prazos alterados pela crise. É difícil e todos sabem como pegamos o Recife", ressaltou o prefeito.

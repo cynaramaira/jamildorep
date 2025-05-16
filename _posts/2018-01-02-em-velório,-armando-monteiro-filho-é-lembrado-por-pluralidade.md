@@ -1,0 +1,38 @@
+---
+layout: post
+title: "Em velório, Armando Monteiro Filho é lembrado por pluralidade"
+date: 2018-01-02
+tags: Armando Monteiro,filho,velório
+author: None
+---
+Familiares, políticos e empresários que lotaram a Capela Nossa Senhora das Graças, no Instituto Ricardo Brennand, no Recife, nesta terça-feira (2), para o velório do ex-ministro Armando Monteiro Filho, lembraram o seu espírito conciliador. "Veja pelas presenças que estão aqui a pluralidade das relações dele, um homem que transitava muito além das questões partidárias, políticas, setoriais, familiares. Era um homem vasto, generoso, com o qual eu aprendi muito", afirmou, emocionado, um dos seis filhos de Armando, o empresário Eduardo de Queiroz Monteiro, presidente do Grupo EQM. Também abalado, o senador Armando Monteiro Neto (PTB-PE) preferiu não falar com a imprensa.
+Os dois e a mãe deles, Do Carmo Monteiro, ficaram ao lado do caixão durante a solenidade, visivelmente emocionados. Armando, que leva o nome do pai, leu uma passagem bíblica.
+ Foto: Alexandre Gondim/JC Imagem
+O corpo será velado ainda durante a noite no Cemitério Morada da Paz, em Paulista, onde haverá uma missa às 10h. Às 11h, acontecerá a cerimônia de cremação, restrita à família.
+LEIA TAMBÉM
+ » Aos 92 anos, morre o ex-deputado Armando Monteiro Filho
+ » Políticos lamentam morte de Armando Monteiro Filho
+ » João Carlos Paes Mendonça lamenta morte de Armando Monteiro Filho
+ » Brasil perde grande homem, diz Lula após morte de Armando Monteiro Filho
+"Eu só guardo coisas muito fortes da vida do meu pai, de maneira que ele vai, mas fica o exemplo dele, que, para nós, é imorredouro. O exemplo de um homem que foi coerente a vida inteira, muitas vezes contrariando seus interesses até empresariais, mas defendeu com muita firmeza seus ideais, suas convicções, de maneira que eu vou guardar uma saudade enorme da presença dele", disse Eduardo de Queiroz Monteiro. "Eu sou muito suspeito, mas era uma figura humana diferenciadíssima, um homem que a cada dia me ensinava."
+ Foto: Alexandre Gondim/JC Imagem
+Armando Monteiro Filho faleceu às 6h30, em sua casa, no Recife. Ele tinha 92 anos e estava com a saúde abalada havia alguns anos, desde que fraturou o fêmur e passou a precisar de cadeira de rodas. Ministro da Agricultura no governo João Goulart, no início da década de 1960, ingressou na vida política através do movimento estudantil quando cursou engenharia na Universidade do Recife e depois passou pelos cargos de deputado estadual e federal. Durante a ditadura, apesar de ter amigos apoiando o regime, preferiu ficar na oposição, filiando-se ao MDB.
+"Ele é exemplo"
+O ministro de Minas e Energia, Fernando Filho, foi um dos políticos que lembrou a cordialidade de Armando Monteiro Filho para homenageá-lo. "Eu acho que a nossa geração precisa de exemplos como ele. Perde o Brasil, perde Pernambuco, perde a política", afirmou ao chegar ao velório. Para o ministro, ter uma "palavra balizada como a dele" é essencial em momentos de intransigência na política, como avalia ser o atual. "Sem dúvida um conselheiro que todo mundo gostaria de ter", avaliou. "Ele pautou sua vida sempre pelo diálogo, sua cortesia, seu jeito de ser e de lidar. Sem dúvida, é o que a gente precisa", disse ainda.
+» FBC diz que legado de Armando Monteiro não será apagado
+ » Em nota, PT de Pernambuco enaltece coerência de Armando Monteiro
+ » PSB destaca integridade de Armando Monteiro Filho
+ » Paulo Câmara decreta luto oficial pela morte de Armando Monteiro Filho
+Adversário de Armando Monteiro Neto, o governador Paulo Câmara (PSB) também esteve no velório e destacou a gentileza do pai do opositor no trato com políticos e empresários. "Foi um grande pernambucano, que sempre acreditou no seu Estado e trabalhou até o seu falecimento sempre tendo o espírito público necessário para buscar alternativas para um Pernambuco melhor", afirmou. "É muito importante no momento em que estamos vivendo que as pessoas tenham capacidade de diálogo, que dr. Armando tinha, de sempre procurar alternativas e procurar juntar, e não desarrumar", completou.
+ Foto: Alexandre Gondim/JC Imagem
+"Todos que conviveram com dr. Armando sabem do seu espírito sempre em favor do trabalho, da produção. Uma pessoa sempre generosa, um cavalheiro, na verdade, que sempre teve em Pernambuco seu porto seguro, sua força de trabalho e a sua capacidade de vencer desafios. Ele é um exemplo de homem público, de empresário, que a gente tem que estar sempre respeitando e que seja exemplo para as futuras gerações de pernambucanos", declarou Paulo Câmara.
+"Fica o seu exemplo, a ser seguido por todos que querem fazer a vida pública com seriedade", afirmou o prefeito do Recife, Geraldo Julio (PSB), que foi ao velório com o governador. O socialista ainda levou o seu chefe de gabinete, João Campos, filho do ex-governador Eduardo Campos, o presidente estadual do partido, Sileno Guedes, e o deputado estadual Waldemar Borges.
+» Empresário Armando Monteiro Filho, 90 anos acreditando no País
+ » Guilherme Uchoa destaca que Armando Monteiro foi exemplo de homem público íntegro
+ » Silvio Costa exalta exemplo de ética de Armando Monteiro Filho, no Brasil da Lava Jato
+ » Em nota, PT de Pernambuco enaltece coerência de Armando Monteiro
+O vice-governador Raul Henry, presidente estadual do PMDB, partido ao qual Armando Monteiro Filho foi filiado, também afirmou que ele era um homem exemplar. "Foi exemplo de dignidade, honradez, elegância. Foi exemplo em tudo na vida, como pai de família, empresário, homem público", disse. "Sempre fez política com muita coragem, sempre assumiu posições muito corajosas, inclusive militou nas trincheiras de combate à ditadura militar, mas sempre soube tratar a política de forma que o debate político era uma coisa e o respeito às pessoas, outra."
+Contemporâneo do ex-ministro, o ex-governador Roberto Magalhães esteve em posição política divergente, mas foi próximo dele nos negócios, atuando como advogado de algumas de suas empresas, e pessoalmente. "De Armando só conheci qualidades e tive uma posição privilegiada para dar essa posição", afirmou. "Nunca assisti de Armando um único gesto que pudesse ser criticado. Sempre um homem de grandes gestos e com um coração enorme."
+ Foto: Alexandre Gondim/JC Imagem
+Joaquim Francisco, outro ex-governador de Pernambuco, concordou. "Dr. Armando Monteiro sempre foi um homem de construir pontes, de fazer união, mas também firme. Quando discordava ele tinha pontos de vista, afirmava suas convicções, mas nunca procurou destruir ou deixar espaços para que não houvesse um retorno, a possibilidade de diálogo", afirmou. "Esse momento que estamos vivendo com tanta inflamação, radicalização nas relações políticas, ele, com tanta lealdade, construiu um mecanismo de relacionamento sem perder a identidade. É o momento em que mais precisávamos para construir essa identidade e esse diálogo necessários."
+O ex-prefeito do Recife João Paulo (PT) considera que Armando Monteiro Filho era um homem de muito bom senso, o que, para ele, falta à política atual. "Apesar de sua origem, de uma família mais abastada, tinha posições mais de esquerda, defendia a reforma agrária, via também o lado do trabalhador, do sofrimento, tinha um compromisso com isso. Uma das coisas que mais marcou nele é que era do tipo de político que não achava que valia tudo para estar no poder", afirmou.

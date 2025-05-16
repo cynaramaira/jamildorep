@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Renan reage a ataques de líder do PSDB e diz que caso do parlamentar é de 'psiquiatria'"
+date: 2009-07-31
+tags: Casos,parlamentares,PSDB,reagendamentos,Renan Calheiros,Seguradora Líder
+author: None
+---
+Da Ag&ecirc;ncia Brasil
+O l&iacute;der do PMDB, Renan Calheiros (AL), reagiu hoje(31) no mesmo tom adotado pelo tucano Arthur Virg&iacute;lio Neto (AM), que o acusa de retalia&ccedil;&atilde;o ao afirmar que os peemedebistas v&atilde;o formalizar no Conselho de &Eacute;tica representa&ccedil;&atilde;o contra sua pessoa. Segundo Calheiros, as declara&ccedil;&otilde;es do l&iacute;der do PSDB nos &uacute;ltimos dias deixaram de ser pol&iacute;ticas para se tornar &ldquo;psiqui&aacute;tricas&rdquo;.
+&ldquo;N&atilde;o vou responder ao Arthur Virg&iacute;lio, mesmo porque &eacute; um caso que a cada dia deixa de ser pol&iacute;tico para ser cada vez mais um caso de psiquiatria&rdquo;, afirmou o peemedebista. Ele acrescentou que, em nenhum momento, tentou amea&ccedil;ar Virg&iacute;lio ou o presidente do PSDB, S&eacute;rgio Guerra (PE), quando conversou por telefone para tentar demover o partido da id&eacute;ia de apresentar ao conselho as tr&ecirc;s representa&ccedil;&otilde;es contra o presidente do Senado, Jos&eacute; Sarney (PMDB-AP).
+&ldquo;O pr&oacute;prio S&eacute;rgio Guerra disse em entrevista que meu telefonema em nenhum momento teve qualquer tom de amea&ccedil;a. Ao contr&aacute;rio, ele disse que foi uma conversa cordata&rdquo;, afirmou o peemedebista.
+Renan Calheiros tamb&eacute;m comentou as declara&ccedil;&otilde;es feitas ontem pelo presidente Luiz In&aacute;cio Lula da Silva de que a situa&ccedil;&atilde;o pol&iacute;tica de Sarney n&atilde;o era um problema seu mas, sim, do Senado. &ldquo;O Lula tem agido de forma coerente. O problema do Senado realmente &eacute; dos senadores. O Senado precisa voltar &agrave; normalidade e voltar a tratar de assuntos de interesse da sociedade&rdquo;, disse o parlamentar.
+Hoje, Arthur Virg&iacute;lio afirmou que a bancada do PSDB analisar&aacute; na ter&ccedil;a-feira (4) uma poss&iacute;vel representa&ccedil;&atilde;o contra Calheiros no Conselho de &Eacute;tica. Ele se disse convicto de que o parlamentar faltou com o decoro ao tentar vincular a desist&ecirc;ncia das representa&ccedil;&otilde;es tucanas contra o presidente ao &ldquo;ato de reciprocidade&rdquo; que o PMDB adotaria contra sua pessoa. 

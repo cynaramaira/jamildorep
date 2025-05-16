@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Acordo na Assembleia define prazo de 48 meses para vigência dos aumentos de impostos"
+date: 2015-09-24
+tags: Acordo,Assembleia Geral,impostos,prazo,undefined
+author: None
+---
+ Foto: BlogImagem.
+Por Ayrton Maciel do Jornal do Commercio
+Sem limite de tempo definido, os aumentos das alíquotas de ICMS, IPVA E ICD (herança e doação) que compõem o ajuste fiscal enviado pelo governador Paulo Câmara (PSB) à Assembleia Legislativa vão ter um prazo de 48 meses – quatro anos –, seguindo o período de vigência da CPMF da presidente Dilma Rousseff (PT) prevista no pacote fiscal apresentado ao Congresso Nacional. O prazo será incluído nos projetos de ajuste do governo do Estado através de emenda que será subscrita pelas bancadas do governo e da oposição no Legislativo.
+O acordo foi negociado entre os líderes da base de apoio, Waldemar Borges (PSB), e da oposição, Sílvio Costa Filho (PTB), na audiência pública das Comissões de Constituição (CCLJ), Finanças e Administração Pública, nesta quarta-feira (23), que ouviu as justificativas do secretário da Fazenda, Márcio Stefanni, para os aumentos dos impostos estaduais. A oposição queria 12 meses, mas Borges alegou que o momento do País “não permite expectativas” para a economia, porém o governo aceitava adotar os 48 meses da CPMF como prazo.
+O pacote fiscal tem de ser aprovado, na Alepe, e sancionado pelo governador até o dia 30 deste mês para vigorar a partir de janeiro de 2016. As três comissões reúnem-se, nesta quinta-feira (24), às 11 horas, para discutir os cinco projetos, definir as emendas a serem negociadas com o governo e os pareceres. Na audiência, a oposição apresentou sua contraproposta fiscal, que inclui a elevação do ICMS sobre bebidas alcoólicas, cigarros e armamento, em substituição à gasolina e telefonia, segmentos mais inflacionários. “Não votaremos a favor do aumento sobre combustível e telefonia porque vai gerar inflação e reduzir poder de compra”, avisou Sílvio Costa Filho.
+Stefanni revelou que o setor de bebidas não entrou no pacote para não inibir investimentos, citando as recentes ampliações da Itaipava e Ambev. “O governo aceita alíquotas (aumento) sobre tabaco e armas. Pode vir”, acenou positivo para a emenda o secretário, pegando carona na proposta da oposição.
+O secretário informou que o Estado economizou R$ 290 milhões em nove meses com os contingenciamentos, mas não respondeu como o governo fará para economizar os R$ 630 milhões restantes da meta de R$ 920 milhões fechadas em agosto. “Não sei como o Estado vai reduzir isso em três meses sem afetar os serviços públicos. É difícil votar a favor de aumento de imposto. Não vou votar. O brasileiro já é extremamente sacrificado”, antecipou a independente Priscila Krause (DEM).
+Em defesa do governo, o líder Waldemar Borges ressalvou que o ajuste aumenta o ICMS da gasolina, mas “reduz o do álcool”, fortalecendo uma base industrial do Estado. “O governo deve pedir o compromisso dos donos de postos em baixar o preço do etanol na bomba em virtude da queda do ICMS”, propôs o governista Rodrigo Novaes (PSD).

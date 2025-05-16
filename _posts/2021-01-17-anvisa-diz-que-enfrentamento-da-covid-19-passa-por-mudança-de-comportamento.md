@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Anvisa diz que enfrentamento da covid-19 passa por mudança de comportamento"
+date: 2021-01-17
+tags: Anvisa,comportamento,covid,Mudanças,passaporte
+author: None
+---
+O diretor-presidente da Agência Nacional de Vigilância Sanitária (Anvisa), Antonio Barra Torres, disse que é preciso mudar o comportamento social em razão da pandemia do novo coronavírus. "O inimigo é um só. A nossa chance, a nossa melhor chance nesta guerra passa, obrigatoriamente, por uma mudança de comportamento social, sem a qual, mesmo com vacinas, a vitória não será alcançada", declarou.
+A reunião em que a Anvisa vai definir os pedidos de uso emergencial de vacinas no Brasil começou à 10h. Dois pedidos estão sendo analisados. A TV Brasil transmite ao vivo a reunião, que deve durar cerca de cinco horas.
+Veja a entrevista
+O Instituto Butantan, em parceria com a farmacêutica chinesa Sinovac, e a Fundação Oswaldo Cruz (Fiocruz), parceira do consórcio Astrazeneca/Oxford, entraram com requerimentos de autorização em caráter emergencial para suas vacinas.
+“Quis o acaso, para alguns; o destino, para outros; e a vontade de Deus,na fé inabalável deste diretor, que fossemos nós a exercer ativamente esses ofícios, e tivéssemos, portanto, a missão, a honra e o dever de bem servir ao nosso legítimo e Supremo Senhor. Que Deus nos ilumine e inspire para que, neste domingo, tomemos a melhor decisão”, disse Barra Torres.
+Segundo a Anvisa, a reunião conta com a participação de cinco diretores do órgão, e a decisão é feita por maioria simples, ou seja, três votos a favor ou contra definem o resultado. Antes da decisão, três áreas técnicas fazem apresentações: a de medicamentos, que avalia os estudos de eficácia e de segurança; a de certificação de Boas Práticas, que analisa se os locais de fabricação têm condições adequadas; e de monitoramento de eventos adversos, que monitora e investiga depois da vacinação se as pessoas tiverem alguma reação à vacina).
+No início da apresentação, Gustavo Mendes Lima Santos, gerente-geral de Medicamentos e Produtos Biológicos da Anvisa, ressaltou o aspecto histórico da decisão. “Este é um momento crítico. Este é um momento histórico. Esse tipo de autorização, a Anvisa nunca concedeu. Nunca vivemos uma situação como essa, de tanta exposição e de tanto senso de urgência e necessidade que enfrentamos neste momento”, falou ele. Segundo Lima Santos, os servidores da Anvisa “estão empenhados com dedicação no senso de urgência que o caso requer”. “Somos humanos, queremos que os produtos que sejam disponibilizados para o enfrentamento da pandemia sejam produtos eficazes, seguros e tenham qualidade”.

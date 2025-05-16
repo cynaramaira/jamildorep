@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Lucas Ramos rebate Miguel Coelho. 'Ele esqueceu os 6 aumentos autorizados por Bolsonaro em 2021'"
+date: 2021-03-30
+tags: 2021,Bolsonaro,lucas ramos,Miguel Coelho
+author: None
+---
+O secretário estadual de CT&amp;I, Lucas Ramos, fez questão de rebater a fala do prefeito de Petrolina, Miguel Coelho, sobre aumento dos impostos pelo Governo de Pernambuco. Os dois são adversários locais. O secretário de Fazenda, Décio Padilha, já havia negado.
+"NOTA DE ESCLARECIMENTO"
+A retórica do prefeito Miguel Coelho assusta. Mais uma vez, fica claro o desconhecimento da legislação tributária. Ou pior, uma vontade deliberada de disseminar informações equivocadas, que confundem as pessoas. É nosso dever, antes de tudo, trazer a verdade sobre a política de preços dos combustíveis no Brasil, definida pela Petrobras, e não pelos governos estaduais.
+Com base na cotação do barril de petróleo no mercado internacional, que sofre ainda uma forte influência do dólar (hoje na casa de R$ 5,77), a Petrobras arbitra o seu preço de comercialização no Brasil. Repassa os aumentos para as distribuidoras, que encaminham o reajuste para os postos de combustíveis. Esses últimos, na ponta, determinam o valor para o consumidor final. É com base nesse preço, pago pelos trabalhadores para abastecer seus veículos, que a Agência Nacional do Petróleo, Gás Natural e Biocombustíveis (ANP) realiza uma pesquisa em todo o Brasil, a cada 15 dias, para informar aos Estados, tecnicamente, o Preço Médio Ponderado ao Consumidor Final (PMPF).
+É lei federal: os Estados são obrigados a utilizar o PMPF da ANP para definir a base de cálculo do Imposto sobre Circulação de Mercadorias e Serviços (ICMS). Não há nenhuma relação com "vontade" ou "decisão" dos governantes em baixar ou aumentar preços. Quando o PMPF sobe, o Governo de Pernambuco, por força da lei, precisa publicar a nova tabela de referência no Diário Oficial do Estado e reajustar a base de cálculo. O mesmo acontece quando os preços caem.
+O prefeito Miguel Coelho esqueceu os 6 aumentos autorizados pelo Governo Federal somente em 2021. Não deu uma palavra. E agora prefere ir à Imprensa para fazer críticas superficiais e tendenciosas, em uma tentativa desesperada de antecipar as eleições de 2022. Confunde, convenientemente, o destinatário de suas mensagens. Por que não cobrar da Petrobras, ou melhor, do Governo Federal, uma revisão na política de preços do petróleo?
+É exatamente o que espera o Governo de Pernambuco. Não atrelar o preço dos combustíveis exclusivamente à cotação internacional do barril de petróleo, para não penalizar toda a população brasileira com mais pressão no custo de vida, especialmente em um momento tão desafiador, de recrudescimento da pandemia do Covid-19.
+O prefeito Miguel Coelho deveria se preocupar mais com a gestão municipal e seus recentes atos administrativos, que contradizem seu vazio discurso. O petrolinense lembra bem que, ainda em dezembro, decidiu aumentar o IPTU da cidade em 18%, além de ter promovido reajustes em outros tributos municipais. Nesses casos, ele poderia sim usar a caneta e revogar os aumentos. Preferiu não fazer.
+Décio Pafilha já havia desmentido aumentos no preço

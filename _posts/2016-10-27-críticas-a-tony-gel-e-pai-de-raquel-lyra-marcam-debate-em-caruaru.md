@@ -1,0 +1,34 @@
+---
+layout: post
+title: "Críticas a Tony Gel e pai de Raquel Lyra marcam debate em Caruaru"
+date: 2016-10-27
+tags: Antony Blinken,caruaru,Debate,raquel lyra
+author: None
+---
+Por Ana Maria Miranda, do NE10 Interior
+Faltando poucos dias para o segundo turno das eleições municipais, os candidatos à Prefeitura de Caruaru, Raquel Lyra (PSDB) e Tony Gel (PMDB) subiram o tom em debate da TV Jornal, realizado nesta quinta-feira (27). Se os debates na primeira etapa foram marcados, principalmente, pelas propostas, este revelou a intenção dos dois lados de fazer associações negativas ao candidato oponente. A tucana criticou as gestões do peemedebista à frente da prefeitura; ele, por sua vez, rebateu criticando as gestões do pai dela, João Lyra Neto, como prefeito e como governador.
+LEIA MAIS
+» Veja os números da pesquisa Ipespe sobre o segundo turno em Caruaru
+» Em Caruaru, Tony Gel critica número de pesquisas realizadas no segundo turno
+Logo no início, Tony Gel (PMDB) questionou se Raquel era a candidata de continuidade ou oposição, já que ela recebe o apoio do prefeito José Queiroz (PDT). Ele ainda mencionou o fato dos Queiroz e os Lyra terem brigado, o que, segundo ele, confunde o eleitor.
+"Eu me pergunto sempre se o deputado Tony Gel pensa que está disputando a prefeitura com o prefeito José Queiroz", rebateu Raquel Lyra. A candidata disse que recebeu o apoio de braços abertos, assim como o do presidente do PR municipal, Antônio Santos e outras lideranças. Raquel reforçou ainda o discurso principal de sua campanha no segundo turno, de que ela representa o futuro, enquanto o oponente representaria o passado. Na tréplica, a tucana disse ainda que seu adversário tem o apoio de vereadores condenados na Operação Ponto Final e do ex-prefeito Neguinho Teixeira, que assumiu após Tony renunciar ao mandato, em 2008.
+» Tony Gel e Raquel Lyra aparecem empatados no segundo turno em Caruaru
+Raquel também fez críticas sobre a forma que os servidores da educação foram tratados no governo de Tony Gel. Segundo ela, os trabalhadores eram demitidos em novembro e readmitidos em fevereiro. As propostas dela incluem apostar na escola de tempo integral e abrir 8 mil vagas de creches: "Vamos transformar Caruaru pela educação".
+» Assista à integra do debate:
+
+O Hospital São Sebastião também foi alvo de polêmica no debate. Administrado pelo Estado, a unidade de saúde foi interditada por causa de riscos na estrutura enquanto Tony Gel era prefeito e até hoje não foi aberta. "Seu pai foi governador e não reabriu o hospital", disparou o candidato. Ambos os prefeituráveis têm como proposta municipalizar e reabrir o equipamento.
+O medicamento em casa também vai voltar caso seja eleito, disse o peemedebista. "Com essa crise, Raquel, Caruaru não pode ser um laboratório experimental. Tem que ter alguém à frente da prefeitura que já fez, sabe fazer e vai fazer muito mais, com experiência e muito trabalho", afirmou. A oponente disse que "abandonar a prefeitura e deixar fechar hospital é uma experiência que Caruaru não precisa repetir" e lembrou ainda que, na época da interdição, o governador era Jarbas Vasconcelos, aliado de Tony.
+» Em Caruaru, apoios firmados no 2º turno e propostas dominam debate
+» Em Caruaru, Tony Gel reclama paternidade sobre batalhão da PM exclusivo para cidade
+» Em Caruaru, Raquel Lyra recebe apoio de pastores e líderes evangélicos
+No debate, os candidatos também responderam a perguntas do radialista Dilson Oliveira e da jornalista Izabela Barbosa, do Sistema Jornal do Commercio de Comunicação (SJCC). A pergunta de Dilson foi direcionada a Raquel Lyra, sobre a proposta de transferir a Feira da Sulanca de graça. A candidata relembrou que seu plano de governo foi feito de forma participativa e que ela ouviu feirantes, lojistas e ambulantes. "Definimos uma proposta clara e objetiva: primeiro cuidar da feira onde ela está, e vamos criar um órgão da prefeitura para cuidar da gestão da feira com a participação dos comerciantes para construir com eles a nova Feira da Sulanca", respondeu. A candidata disse ainda que a transferência será feita de graça para o pequeno feirante e que vai buscar financiamento junto às instituições financeiras para cobrar o preço de custo a quem tem boxe ou loja.
+A pergunta de Izabela Barbosa a Tony Gel foi sobre a segurança e o fato de não existir guarda municipal no governo do candidato. Tony disse que criou em sua gestão a Secretaria de Segurança Comunitária. "O prefeito não pode se omitir, o prefeito tem que iluminar as ruas, tem que colocar câmeras estratégicas, interagir com a Polícia Militar, com a Polícia Civil e com a Polícia Federal", afirmou. Tony Gel também falou sobre a proposta de garantir um batalhão da PM exclusivo para a cidade e que a autarquia de trânsito, a Destra, deve ser mais educativa do que punitiva.
+» Em Caruaru, Bruno Araujo cai de cabeça na campanha de Raquel Lyra. Só falta esbarrar no petebista Armando Monteiro Neto
+» PSB decide apoiar oficialmente Tony Gel em Caruaru
+O candidato também respondeu a uma pergunta sobre os processos que ele responde na Justiça. "Se eu não fosse ficha limpa, não estaria aqui", afirmou. O ex-prefeito disse ainda que os questionamentos judiciais ocorrem em todas as gestões. Já Raquel, respondeu a uma pergunta sobre ter familiares políticos: "Cada um inovou no seu tempo", afirmou.
+» Contra violência em Caruaru, Tony Gel e Raquel Lyra querem mudança na PM
+» Raquel Lyra promete reabrir Hospital São Sebastião, em Caruaru
+Os candidatos a vice-prefeito nas chapas de Raquel e Tony, Rodrigo Pinheiro (PSDB) e Raffiê Dellon (PV), participaram de um dos blocos do debate, respondendo a perguntas do cabeça de chapa oponente. Ao responder uma pergunta sobre os servidores, Raffiê Dellon aproveitou para criticar a ausência de Rodrigo Pinheiro no debate dos candidatos a vices da Rádio Jornal, que acabou sendo transformado em entrevista.
+Do outro lado, uma declaração de Rodrigo Pinheiro rendeu um direito de resposta a Tony Gel. "O senhor deveria ter vergonha de ser candidato", disse. Na volta para o quarto bloco, Tony Gel lamentou o despreparo de Rodrigo Pinheiro: "Quando se perde o poder de argumentação, se parte para a agressão", disse, acrescentando que perdoa o candidato.
+Tuitômetro
+Ao longo do debate, os internautas puderam interagir pelo Twitter, através da hashtag #DebateTVJornal + o nome do candidato, respondendo à pergunta: "Quem você acha que está melhor no debate da TV Jornal?". Ao final, o tuitômetro apontou Tony Gel na frente, com 51,34% e Raquel Lyra em segundo, com 48,66%.

@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Maia e aliados fazem aceno aos Coelho em Petrolina em meio a racha no PSB"
+date: 2017-06-19
+tags: meio ambien,Miguel Coelho,Petrolina,rodrigo maia
+author: None
+---
+Não é de hoje que o clã dos Coelho - que inclui o ministro de Minas e Energia, Fernando Filho, e o pai dele, o senador Fernando Bezerra Coelho - estão "descontentes" com a outra ala do PSB. Enquanto os dois e outros parlamentares defendem a permanência no governo Michel Temer (PMDB) e as reformas, o grupo dos deputados federais Tadeu Alencar e Danilo Cabral - aliados do governador Paulo Câmara - é crítico em relação ao peemedebista e chega a defender eleições diretas. Em meio ao racha entre os socialistas, se diz nos bastidores que o presidente em exercício, Rodrigo Maia (DEM), tenta atrair para o Democratas a família de FBC, que negou esses diálogos em entrevista à Rádio Jornal. "Ainda não se trata disso. Essa crise política poderá reconfigurar o quadro partidário no Brasil", disse. "Vai ser muito provável que aconteçam fusões de partidos", afirmou ainda, defendendo que não só o PSB como outras legendas incluindo PSDB e DEM estão divididas.
+Enquanto a negociação é comentada no meio político, Maia e o prefeito de Salvador, ACM Neto, foram a Petrolina nesta segunda-feira (19) a convite de Fernando Filho. Os democratas foram à casa do pai do ministro e depois Maia voltou para Brasília, de onde despacha como presidente nesta terça-feira (20), devido à viagem de Michel Temer à Rússia e à Noruega.
+"Isso tudo é especulação", disse ainda Fernando Bezerra Coelho sobre o diálogo para uma eventual ida para o DEM. "O que ocorre de fato é que a crise política é muito aguda, nós estamos só com 90 dias para reformar toda a legislação eleitoral e partidária. O brasil não aceita mais o financiamento político como vinha acontecendo porque isso deu nos problemas de caixa dois e na influência exacerbada do poder privado sobre o resultado das eleições", justificou ainda, alegando que os encontros são para tentar aprovar a reforma política até setembro. Em relação a uma aproximação do PSB com o PT afirmou: "Quem pode falar sobre isso é o governador e a Executiva Nacional do PSB. acho pouco provável, mas quem tem que se pronunciar sobre isso são as lideranças do PSB."
+&nbsp;
+LEIA TAMBÉM
+ » Após racha no PSB, FBC faz afago a Paulo Câmara no Senado
+ » FBC e seu grupo se antecipam a Paulo Câmara e pedem ajuda para cidades atingidas pelas águas
+Antes disso, porém, se encontraram na Prefeitura de Petrolina com o prefeito Miguel Coelho, que é irmão de Fernando, além de outros nomes do PSB local, como Paulo Câmara, o deputado federal Gonzaga Patriota e o deputado estadual Lucas Ramos. Na agenda oficial do governador a informação é de que Maia e ACM Neto foram convidados por Miguel Coelho para discutir temas relativos à gestão pública.
+ Foto: Ennio Benning/Divulgação
+Hoje, o DEM tem 29 deputados. Maia gostaria de ampliar esse número para 40. 
+No passado era diferente
+Apesar do aceno para os Coelho esta noite, há cinco anos, quando Fernando Bezerra Coelho era ministro da Integração Nacional do governo Dilma Rousseff (PT), Rodrigo Maia, então líder em exercício do Democratas, fez questionamentos sobre a responsabilidade na gestão dos recursos da pasta.
+O deputado Rodrigo Maia (RJ), líder em exercício do Democratas, questionou o ministro da Integração Nacional Fernando Bezerra sobre a responsabilidade na gestão dos recursos do ministério, em meio a denúncias de que o socialista teria favorecido Pernambuco na distribuição das verbas, e apontou prejuízo de R$ 900 milhões aos cofres públicos por não terem sido direcionados ao enfrentamento e prevenção de desastres e enchentes. No mesmo ano, o partido chegou a pedir à Procuradoria Geral da República (PGR) que investigasse FBC, acusando o então ministro de improbidade administrativa.

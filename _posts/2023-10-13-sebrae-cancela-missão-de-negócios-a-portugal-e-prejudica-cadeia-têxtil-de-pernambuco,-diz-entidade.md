@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Sebrae cancela missão de negócios a Portugal e prejudica cadeia têxtil de Pernambuco, diz entidade"
+date: 2023-10-13
+tags: jamildo, Sebrae, pernambuco, polo têxtil do agreste
+author: Jamildo Melo
+---
+O Sebrae Pernambuco cancelou, &agrave;s v&eacute;speras da realiza&ccedil;&atilde;o, uma miss&atilde;o de neg&oacute;cios a Portugal que beneficiaria empresas do polo t&ecirc;xtil e de confec&ccedil;&otilde;es do Agreste. A decis&atilde;o foi criticada pela C&acirc;mara de Com&eacute;rcio Brasil-Portugal, que acusa o &oacute;rg&atilde;o de falta de transpar&ecirc;ncia e desrespeito a parceiros internacionais.
+A miss&atilde;o, que seria realizada entre os dias 9 e 14 de outubro, foi organizada pela C&acirc;mara de Com&eacute;rcio Brasil-Portugal em parceria com o Sebrae e a Ag&ecirc;ncia de Desenvolvimento Econ&ocirc;mico de Pernambuco (Adepe). O cancelamento, segundo a entidade, foi comunicado pelo Sebrae sem qualquer justificativa formal.
+A C&acirc;mara de Com&eacute;rcio Brasil-Portugal afirma que a miss&atilde;o era uma oportunidade importante para a internacionaliza&ccedil;&atilde;o do polo t&ecirc;xtil e de confec&ccedil;&otilde;es do Agreste. O evento incluiria rodadas de neg&oacute;cios, visitas a ind&uacute;strias e palestras promovidas em coopera&ccedil;&atilde;o com o governo portugu&ecirc;s.
+O presidente da C&acirc;mara de Com&eacute;rcio Brasil-Portugal, Antonio M&aacute;rio de Abreu Pinto, disse que o cancelamento da miss&atilde;o foi um "retrocesso sem precedentes" nos esfor&ccedil;os de internacionaliza&ccedil;&atilde;o da cadeia t&ecirc;xtil do Agreste. Ele tamb&eacute;m criticou o Sebrae por n&atilde;o ter pedido desculpas &agrave;s entidades portuguesas envolvidas.
+Ant&ocirc;nio M&aacute;rio &eacute; presidente Honor&aacute;rio do Col&eacute;gio dos Presidentes dos Institutos de Advogados do Brasil e s&oacute;cio do escrit&oacute;rio Albuquerque Pinto Advogados.
+A coluna eletr&ocirc;nica sempre abre espa&ccedil;o ao contradit&oacute;rio e a revela&ccedil;&atilde;o e publica&ccedil;&atilde;o de informa&ccedil;&otilde;es sobre o caso n&atilde;o significa endosso. Com a palavra o Sebrae, caso manifeste desejo de prestar informa&ccedil;&otilde;es publicamente.
+SOBRE A C&Acirc;MARA DE COM&Eacute;RCIO BR-PT
+Fundada em 1912 no estado de Pernambuco, a C&acirc;mara de Com&eacute;rcio Brasil-Portugal &eacute; a segunda mais antiga em atividade no pa&iacute;s, atr&aacute;s apenas do Rio de Janeiro. A entidade bilateral tem como prop&oacute;sito fomentar o ambiente de neg&oacute;cios entre os dois pa&iacute;ses e trabalhar pelo fortalecimento do networking nos setores p&uacute;blico e privado. A sua miss&atilde;o &eacute; fortalecer relacionamentos e promover a inova&ccedil;&atilde;o no empreendedorismo. Em todo o Brasil, s&atilde;o 18 C&acirc;maras Portuguesas, que juntas re&uacute;nem mais de 2,5 mil associados.

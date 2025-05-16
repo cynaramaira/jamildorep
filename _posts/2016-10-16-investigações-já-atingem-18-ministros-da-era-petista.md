@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Investigações já atingem 18 ministros da era petista"
+date: 2016-10-16
+tags: investigações,ministros
+author: None
+---
+Estadão Conteúdo - Investigações que tramitam no Supremo Tribunal Federal (STF) indicam que ministros dos governos Luiz Inácio Lula da Silva (2003-2010) e Dilma Rousseff (2011-2016) são suspeitos de envolvimento em esquemas que movimentaram pelo menos R$ 1,25 bilhão de forma ilegal, por meio de irregularidades no uso do dinheiro público e propinas pagas por empresas privadas durante o exercício do cargo.
+O dado faz parte de um levantamento feito pelo Estado no Supremo que mostra que 18 ministros estão sob investigação de desvio de recursos nas gestões petistas - 4 no período Lula, 10 no de Dilma e outros 4 comuns aos dois governos. Foram considerados os já condenados (1), réus (2) e investigados (15) - neste último caso, o número engloba os processos na Corte e os remetidos a outras instâncias pelo STF. Foram pesquisados os nomes de 167 ex-ministros nas duas gestões.
+Esses números, mesmo após o impeachment de Dilma, podem aumentar com as próximas etapas da Operação Lava Jato e a possível revelação de mais envolvidos no esquema de corrupção na Petrobras. Alguns são citados em delações, mas ainda não são investigados ou viraram réus.
+Além dos ministros, os ex-presidentes Lula e Dilma também aparecem em investigações. O próprio Lula é réu em três ações penais abertas nos últimos dois meses e acusado de organização criminosa, corrupção, lavagem de dinheiro e obstrução da Justiça. Dois casos correm na Justiça Federal em Brasília e outro em Curitiba. Dilma também é alvo de inquérito no STF por tentar atrapalhar o andamento da Lava Jato. Segundo os investigadores, ela nomeou Lula para a Casa Civil unicamente para dar-lhe o direito ao foro privilegiado.
+Não foram incluídos nesse levantamento os ex-ministros suspeitos de cometer irregularidades fora do cargo ou ao exercer outras funções - caso de outros gestores da era petista que enfrentam processos no STF. A senadora Gleisi Hoffmann (PT-PR), ex-ministra da Casa Civil de Dilma, é ré em ação que investiga o recebimento de recursos da Petrobrás, no valor de R$ 1 milhão, para financiar sua última campanha ao Senado.
+O ex-deputado federal Ricardo Berzoini (PT-SP), que passou pelos Ministérios da Previdência e do Trabalho no governo Lula, é suspeito de, posteriormente, na condição de presidente do PT, pedir 1% de propina sobre os contratos da Andrade Gutierrez com o governo federal. Berzoini foi incluído no inquérito do "quadrilhão", o principal da Lava Jato.
+No atual governo, Michel Temer (PMDB) nomeou seis ministros que eram investigados no Supremo - suspeitos de envolvimento em crimes eleitorais, falsidade ideológica, quadrilha e com o esquema de corrupção na Petrobrás. Até o momento, três já deixaram o cargo.

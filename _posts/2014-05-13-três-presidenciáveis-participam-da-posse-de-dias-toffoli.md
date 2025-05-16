@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Três presidenciáveis participam da posse de Dias Toffoli"
+date: 2014-05-13
+tags: Dias Toffoli,Posse
+author: None
+---
+Da Agência Estado
+A posse do novo presidente do Tribunal Superior Eleitoral (TSE), ministro José Dias Toffoli, conseguiu reunir os três principais pré-candidatos ao Planalto: a presidente Dilma Rousseff, do PT, Eduardo Campos, do PSB; e Aécio Neves, do PSDB. O pré-candidato ao governo de São Paulo e ex-ministro da Saúde, Alexandre Padilha, também esteve presente à cerimônia. Dilma, mesmo cansada depois de uma longa viagem pelo Nordeste, onde percorreu obras de transposição do Rio São Francisco, fez questão de prestigiar Toffoli.
+Ao chegar à cerimônia, apenas o pré-candidato do PSB, Eduardo Campos, falou com a imprensa. Questionado se acreditava na isenção de Toffoli, que foi advogado do PT e ministro chefe da Advocacia Geral da União no governo do ex-presidente Luiz Inácio Lula da Silva, Campos disse que sim. "Tenho confiança de que o ministro Dias Toffoli saberá conduzir com isenção esse processo eleitoral. Essa confiança nós temos e sobretudo o compromisso de fazer nessa eleição a nossa parte. Uma eleição limpa, respeitar as regras, respeitar nossos adversários, falar para o Brasil das nossas ideias", afirmou Campos.
+Marcha dos prefeitos
+Os três presidenciáveis estavam sendo esperados ainda na Marcha dos prefeitos amanhã. Aécio e Campos confirmaram presença pela manhã. Dilma, até agora, não sinalizou se irá ou não. Ano passado, ela foi vaiada pelos prefeitos. Os prefeitos querem que o Planalto apoie a emenda constitucional que aumenta de 23,5% para 25,5% das receitas de Imposto de Renda e IPI para "repartir melhor o bolo" como disse o presidente da Confederação dos Municípios, Paulo Ziulkoski.Segundo Ziulkoski, "vai ser uma decepção" e "vai ficar ruim" para ela se ela não for. "Estamos convidando o governo, não é a candidata e ela tem o que dizer", emendou ele, acrescentando que "tem esperanças que até quinta-feira ela decida ir". O ex-presidente Lula foi a todas as marchas, nos seus dois mandatos, exceto a de 2006, ano da reeleição. No Planalto, há quem defenda que Dilma não deve ir, por ser ano eleitoral. No ano passado, os prefeitos foram contemplados com R$ 3 bilhões, a título de "auxílio financeiro", que correspondia a um aumento de 1% do FPM. Para este ano, eles esperam, no mínimo, conseguir o mesmo volume de recursos para "salvar" as prefeituras.

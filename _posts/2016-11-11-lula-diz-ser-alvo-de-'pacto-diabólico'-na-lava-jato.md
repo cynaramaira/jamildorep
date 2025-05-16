@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Lula diz ser alvo de 'pacto diabólico' na Lava Jato"
+date: 2016-11-11
+tags: Lava Jato,Lula
+author: None
+---
+Estadão Conteúdo - O ex-presidente Luiz Inácio Lula da Silva fez um discurso duro contra a imprensa, delegados da Polícia Federal, procuradores do Ministério Público e o juiz Sérgio Moro. O petista também desafiou seus acusadores a apresentarem provas contra ele, durante um ato, na noite dessa quinta-feira, em que recebeu o apoio de políticos, intelectuais e artistas. Lula ainda fez críticas ao governo de Michel Temer (PMDB), em especial à proposta de congelar, em termos reais, os gastos da União.
+"Tenho preocupação quando eu vejo um pacto quase que diabólico entre mídia, a Polícia Federal, o Ministério Público e o juiz que está apurando todo esse processo. (...) A menor preocupação é com a verdade", disse Lula, durante um discurso que durou mais de meia hora e em que esteve acompanhado da esposa, Marisa Letícia.
+Em sua fala, o ex-presidente voltou a dizer que não aceita a ideia de que convicções valham como provas. "Se eu disser a eles a convicção que tenho deles, vai ficar ruim." Ao atacar a Polícia Federal, disse que a instituição não poderia permitir que delegados "comprometidos ideologicamente e politicamente com determinados partidos" façam falsas acusações. "Eu não tenho que provar minha inocência, eles é que têm que provar a inocência deles na acusação que fizeram", afirmou Lula.
+Embora tenha agradecido aos organizadores e às pessoas que assinaram um manifesto em sua defesa, o ex-presidente disse que não se sentia "confortável" em participar do ato, mas, sim, que preferiria participar de um manifesto de acusação da força-tarefa da Lava Jato. Segundo ele, a operação mente para a sociedade brasileira. Lula acusou ainda os meios de comunicação de mentir "descaradamente" e de forma perversa.
+Aos 71 anos de idade, Lula afirmou estar disposto a se colocar à disposição dos acusadores, mas pede que apresentem uma prova concreta. "Não cometi nenhum crime antes, durante e depois de ser presidente da República."
+No fim de seu discurso, num dos momentos em que foi mais aplaudido, Lula também fez criticas ao regime fiscal proposto pelo governo Temer, que pretende limitar gastos públicos com a PEC 241.
+"As universidades que conquistamos, eles estão tentando diminuir o orçamento que nós triplicamos. (...) Gaste com a língua de vocês, mas não com a educação desse País, que é o mais importante investimento. Cortar dinheiro da educação é tirar um sonho de que o povo pobre possa ter acesso à alta complexidade das máquinas", afirmou.

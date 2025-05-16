@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Baixemos as armas!"
+date: 2019-03-14
+tags: armas
+author: None
+---
+Por Fábio Lucas, em artigo enviado ao blog de Jamildo
+A escola tem o Brasil no nome - e agora, o Brasil tem na escola uma tragédia que entra para a história da violência no País. Uma chacina, ao que se cogita, motivada pelo cultivo à cultura da violência. O massacre na escola estadual Raul Brasil, em Suzano, São Paulo, chocou-nos pela crueldade típica de terroristas. Mas também pelo mimetismo de atos semelhantes, sobretudo nos Estados Unidos, pátria da arma e da bala vistos por muitos como direitos de defesa do cidadão.
+O enredo trágico em São Paulo foi similar ao de casos nos EUA, como o da escola de Columbine. Paralelos e diferenças não cessarão de alimentar manchetes e timelines nos próximos dias. No entanto, o que mais preenche as telas e as conversas acerca do assunto vem sendo a reedição de inesgotável polêmica: a arma é a fonte do problema? Ou poderia ser um escudo, se o ambiente escolar fosse protegido com professores treinados, de munição engatilhada para qualquer ameaça? A polêmica exibe o clamor por culpados, e não por acaso é facilmente politizada. Ainda mais se o governo que acaba de começar teve como uma das principais bandeiras de campanha a liberalização da posse de armas como proposta pa ra a redução da criminalidade.
+O debate sobre as causas da realidade onde os atiradores aparecem não deveria se perder na troca de farpas, numa sequência da polarização de extremos da última campanha eleitoral. No fogo cruzado, a voz da razão dificilmente é percebida. A emoção irremovível de opiniões formadas e o desejo supremo de vencer a discussão dominam os argumentos de parte a parte. Para piorar, a tentativa de colagem da responsabilidade sobre o atentado em Suzano à superfície daquilo que os jovens curtem e compartilham nas redes sociais, cria rótulos apropriados a outros fins - mas não suficientes para explicar o que provocou a morte de uma dezena de pessoas.
+Antes do meio e da mensagem, que nem sempre se confundem, há sujeitos imersos numa cultura onde a brutalidade viceja. Especialmente nos games, onde a banalização da violência começa desde a infância. Cultivamos o mal banal por diversão e como objeto de lucro. A violência é naturalizada na sociedade que se permite ficar chocada quando o sangue derramado é de verdade, mas não abandona a permissividade com a violência “de mentira” da indústria do entretenimento. Pra não mencionar a estatística calamitosa das vidas perdidas no cotidiano das periferias, em que o jogo mortal é sobreviver.
+Na teoria dos dois campos da polêmica, a solução parece tão simples. Armar o povo e os professores seria a prevenção definitiva. Assim como proibir a venda de armas e munições, cortando o mal concretamente pela raiz. Ambas opções questionáveis, e ineficientes, tomadas fora de visão panorâmica e de reflexão profunda.
+Baixemos as armas. Cessemos os tiros polemistas. Para descobrir de onde viemos, quem somos, e o que vemos.
+Fábio Lucas é jornalista

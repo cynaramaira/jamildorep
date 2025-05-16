@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Comissão da Alepe votará probição de festa open bar"
+date: 2015-06-29
+tags: alepe,comissão mista,Copenhagen,festa
+author: None
+---
+ Foto: Bernardo Soares/ Arquivo JC Imagem
+Por Ayrton Maciel do Jornal do Commercio.
+Alvo de polêmica desde que ingressou na Assembleia Legislativa, em março passado, será votado nesta terça-feira (30), na Comissão de Constituição, Legislação e Justiça (CCLJ), o projeto de lei (nº 62) do deputado Pastor Cleiton Collins (PP) que restringe a realização festas conhecidas como Open Bar - que são eventos com bebidas liberadas - em todo o Estado de Pernambuco.
+O projeto volta a discussão, mas totalmente alterado, com um substitutivo (o nº 02) estabelecendo apenas a "proibição do ingresso de menores de 18 anos (crianças e adolescentes), exceto se acompanhado pelos pais ou responsáveis legais".
+O projeto original - de Cleiton Collins - restringia a realização de eventos em casas de shows, boates e similares "com bebidas liberadas", conhecidos como festas Open Bar, e estabelecia multa de R$ 10 mil a R$ 30 mil, com valor dobrado em caso de rencidência. Entende como  bebida liberada quando o valor do consumo de bebidas está embutido no preço do ingresso e os eventos que cobrarem valores irrisórios para o ingresso, mas que tenha como atrativo as bebidas alcoólicas liberadas.
+O substitutivo nº 02, do deputado Antônio Moraes (PSDB) e subscrito pela CCLJ, é o que será votado na reunião da Comissão, já tendo o parecer favorável do relator atual, o também deputado evangélico Presbítero Adalton Santos (PSB). Moraes foi o relator do projeto de Cleiton Collins, o deputado mais votado nas duas últimas eleições estaduais (250 mil votos em 2014), e deu parecer contrário, declarando inconstitucional a proposta original por "afrontar a competência privativa da União de legislar sobre direito civil e invadir as liberdades individuais consagradas na Carta Magna".
+O novo relator Presbítero Adalto Santos diz, na justificativa, que o substitutivo visa a "conscientizar os jovens" sobre o uso de bebida alcoólica nos eventos Open Bar e "apela ao Poder Público" para não se fazer ausente nas medidas preventivas contra o alcoolismo, em especial na faixa etária até os 18 anos de idade.
+O deputado Cleiton Collins tentou ainda amenizar o rigor do seu projeto de lei apresentando a emenda supressiva nº 01. Ressaltando que seu objetivo é regulamentar este tipo de festa open bar, onde considera que "uma população muito jovem inicia bebendo muito e muito cedo", sugere mudanças para atender setores envolvidos na propostas.
+Para amenizar o impacto do projeto original, Collins propõe a conversão do valor do ingresso para consumação de bebidas alcoólicas ou não pelo cliente, condicionando a conversão à escolha do consumidor e podendo o mesmo optar pela não conversão. No segundo caso, o montante referente à bebida deve ser abatido do preço do ingresso. A emenda Collins deve ser rejeitada pela CCLJ.
+O novo relator Presbítero Adalto Santos diz, na justificativa, que o substitutivo visa a "conscientizar os jovens" sobre o uso de bebida alcoólica nos eventos Open Bar e "apela ao Poder Público"para não se fazer ausente nas medidas preventivas contra o alcoolismo, em especial na faixa etária até os 18 anos de idade.
+O deputado Cleiton Collins tentou ainda amenizar o rigor do seu projeto de lei apresentando a emenda supressiva nº 01. Ressaltando que seu objetivo é regulamentar este tipo de festa open bar, onde considera que "uma população muito jovem inicia bebendo muito e muito cedo", sugere mudanças para atender setores envolvidos na propostas.
+Sugeria a conversão do valor do ingresso para consumação de bebidas alcoólicas ou não, condicionando a conversão à escolha do consumidor e podendo o mesmo optar pela não conversão, sendo assim o montante referente à bebida deveria ser abatido do preço do ingresso. A emenda Collins também foi rejeitada pela CCLJ.

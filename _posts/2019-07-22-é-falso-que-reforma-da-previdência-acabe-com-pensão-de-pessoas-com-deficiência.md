@@ -1,0 +1,35 @@
+---
+layout: post
+title: "É falso que reforma da Previdência acabe com pensão de pessoas com deficiência"
+date: 2019-07-22
+tags: falso leilão,Pensão,quatro pessoas,reformas
+author: None
+---
+Do Projeto Comprova
+Falso
+
+	A redação mais recente da reforma da Previdência, aprovada em primeiro turno na Câmara, altera o cálculo da pensão por morte no regime geral, mas prevê uma ressalva para o dependente inválido, com deficiência grave, intelectual ou mental. Nesses casos, o benefício continuará a ser 100% da aposentadoria recebida pelo segurado
+
+Evidência comprovada
+
+	Em relação à pensão de filhas de militares, de fato, não há previsão de mudança nas regras de cálculo do benefício. Porém, tanto na regra atual quanto na proposta de reforma enviada à Câmara, a norma é igual para filhas, filhos e enteados: todos eles têm direito à pensão por morte até completarem 21 anos ou, caso estejam cursando universidade, até 24 anos. E, em caso de invalidez, enquanto ela durar
+
+Não é verdade que pessoas com deficiência deixarão de receber pensão por morte dos pais após a reforma da Previdência, diferentemente do que alega um post que viralizou no Facebook. Já a informação que consta no mesmo post de que filhas de militares continuarão recebendo pensão é verdadeira.
+Para verificar as alegações do post, o Comprova acessou dados na Proposta de Emenda à Constituição (PEC) da reforma da Previdência, no projeto de lei de reestruturação da carreira e do Sistema de Proteção Social das Forças Armadas, em relatório da Instituição Fiscal Independente (IFI) do Senado e em páginas do Governo Federal. Além disso, foram contatados o Ministério da Economia e o Ministério da Defesa.
+A redação mais recente da reforma da Previdência, aprovada em primeiro turno na Câmara, altera o cálculo da pensão por morte no regime geral, substituindo o benefício integral por uma soma de metade do valor da aposentadoria mais uma cota de 10% desse valor por cada dependente até o limite de 100% do valor do benefício. O texto, porém, prevê uma ressalva para o dependente inválido, com deficiência grave, intelectual ou mental. Nesses casos, o benefício continuará a ser 100% da aposentadoria recebida pelo segurado.
+Em um cenário hipotético no qual o segurado receba R$ 1 mil de aposentadoria e tenha um dependente com deficiência grave, intelectual ou mental, esse dependente continuará a receber R$ 1 mil se o segurado falecer. No entanto, no caso do falecimento de um segurado que também receba R$ 1 mil, mas que tenha somente dependentes que não se enquadrem na classificação anterior, o valor da pensão será a metade dos R$ 1 mil mais uma cota de 10% para cada dependente, ou seja, R$ 500 mais R$ 100 por dependente.
+Atualmente, a legislação brasileira considera dependentes com direito à pensão integral “o cônjuge, a companheira, o companheiro e o filho não emancipado, de qualquer condição, menor de 21 anos ou inválido ou que tenha deficiência intelectual ou mental ou deficiência grave”. Com a reforma, o texto mantém o benefício a pessoas com deficiência e recalcula para os demais. O benefício, no entanto, não poderá ser menor que um salário mínimo se for a única fonte de renda do dependente.
+O primeiro texto da proposta de reforma da Previdência não trazia nenhuma ressalva para pessoas com deficiência, abrindo brecha para enquadrá-las no novo cálculo da pensão. No fim de março, o presidente Jair Bolsonaro afirmou ter solicitado ao Ministério da Economia que a exceção a estes grupos fosse adicionada ao texto.
+A ressalva referente a pessoas com deficiência grave, intelectual ou mental foi incluída em 13 de junho pelo relator da reforma na Câmara, deputado Samuel Moreira (PSDB-SP), e se manteve na votação em primeiro turno no plenário.
+ Segundo o texto, a condição da deficiência do dependente deverá ser reconhecida por meio de avaliação biopsicossocial realizada por uma equipe multiprofissional e interdisciplinar.
+“Em algum momento terá que ser editado um decreto para regulamentar as particularidades e especificar com mais detalhes quais critérios serão usados para determinar as deficiências de grau leve ou moderado”, afirma o professor de direito previdenciário Jorge Boucinhas, da Fundação Getúlio Vargas (FGV).
+Filhas de militares
+Em relação à pensão de filhas de militares, de fato, não há previsão de mudança nas regras de cálculo do benefício. Porém, tanto na regra atual quanto na proposta de reforma enviada à Câmara, a norma é igual para filhas, filhos e enteados: todos eles têm direito à pensão por morte até completarem 21 anos ou, caso estejam cursando universidade, até 24 anos. E, em caso de invalidez, enquanto ela durar.
+A postagem que circula nas redes possivelmente alude ao fato de que as filhas de militares tinham direito a pensão vitalícia no passado — diferentemente dos filhos, que, ao atingirem a maioridade, deixavam de ter direito ao benefício.
+Essa regra, no entanto, foi extinta em 2001, por meio de uma medida provisória que, entre outras mudanças, igualou as condições de direito ao benefício para filhos e filhas. Apesar da extinção da lei, a pensão vitalícia ainda pode ser concedida a filhas dos militares que eram da ativa ou da reserva até o fim de 2000, desde que tenham passado a contribuir mensalmente com uma taxa extra de 1,5% de seu salário. A proposta de reforma apresentada por Bolsonaro não altera essa regra.
+A reforma na Previdência dos militares — chamada de Sistema de Proteção Social dos Militares das Forças Armadas — foi entregue pelo presidente Jair Bolsonaro ao Congresso em 20 de março.
+ Diferentemente da reforma da Previdência do regime geral, que é uma PEC, a reforma dos militares tramita em separado como projeto de lei. Como ainda deve passar por comissões e pelo plenário da Câmara, o PL ainda pode sofrer alterações significativas durante a tramitação.
+Uma mudança prevista no projeto é que, atualmente, apenas o militar na ativa e na reserva contribui para custear as pensões, por meio de taxa de 7,5% que é descontada mensalmente de seu salário. A versão atual da reforma prevê aumentar esta taxa para 10,5% até 2022, e este valor passará a ser cobrado também dos beneficiários da pensão por morte, que hoje recebem o valor integral do subsídio, sem qualquer desconto.
+O texto proposto ainda estende o pagamento da taxa adicional de 1,5% ao beneficiário da pensão. Ou seja, para manter a pensão vitalícia, as filhas dos militares que optaram pelo benefício em 2001 pagarão um adicional de 1,5%, além dos 10,5% que passarão a ser descontados de todos os pensionistas, caso a redação atual do PL seja aprovada.
+O boato foi publicado em 14 de julho pela página de Facebook “Ciro Sincero”. Em 18 de julho, o post já havia acumulado mais de 9,5 mil interações, incluindo 4,8 mil compartilhamentos. Este conteúdo também foi desmentido pela Folha de S.Paulo em 12 de julho e pelo Extra em 15 de julho.
+Leia todas as verificações do Comprova

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Revogação da prisão preventiva de Garotinho já tem maioria no TSE"
+date: 2016-11-24
+tags: Maioria,preventiva,prisão
+author: None
+---
+Estadão Conteúdo - A maioria do Tribunal Superior Eleitoral (TSE) já votou a favor da revogação da prisão preventiva do ex-governador do Rio de Janeiro Anthony Garotinho, acompanhando o voto da relatora, ministra Luciana Lóssio.
+Até a publicação deste texto, seguiram o voto da relatora os ministros Luiz Fux, Rosa Weber, Admar Gonzaga Neto e Napoleão Nunes Maia Filho, enquanto o único voto divergente até aqui foi o do ministro Herman Benjamin. Falta votar o ministro Gilmar Mendes.
+Luciana Lóssio defendeu a substituição da prisão preventiva pelas seguintes medidas cautelares: a proibição de Garotinho manter contato com 36 testemunhas arroladas pelo Ministério Público; a obrigação de comparecer a todos os atos do processo na Justiça; não se ausentar por mais de três dias de sua residência; e a fixação de fiança de 100 salários mínimos. O descumprimento de qualquer uma das medidas levará ao retorno à prisão preventiva, ressaltou a ministra.
+"A decretação da prisão preventiva baseou-se em duas hipóteses: conveniência da instrução criminal e garantia da ordem pública, circunstâncias que não estão devidamente delineadas no caso em apreço", disse Luciana. "A liberdade do paciente não oferece riscos à conveniência da instrução criminal."
+A ministra destacou que o caso trata de crime eleitoral, "consistente", envolvendo compra de votos, mas ressaltou não haver fundamento de "preservação da ordem pública para se evitar a repetição de delitos" na decretação de prisão preventiva, já que os episódios investigados se referem a uma eleição que já passou. Luciana também lembrou que duas testemunhas supostamente coagidas são investigadas e já mudaram suas versões dos fatos diversas vezes.
+Garotinho foi preso pela Polícia Federal na semana passada, na Operação Chequinho, que investiga o uso do programa Cheque Cidadão, do município de Campos dos Goytacazes (RJ), para obter apoio eleitoral. Ele atuava como secretário municipal de governo na gestão de sua mulher, Rosinha Garotinho, que também já foi governadora do Estado e atualmente é a prefeita de Campos, no Norte Fluminense.
+Episódio
+Por decisão do juiz Glaucenir Oliveira, Garotinho foi levado no dia 17 deste mês de um hospital municipal do Rio para a Unidade de Pronto Atendimento (UPA) do Complexo Penitenciário de Gericinó, em Bangu, na capital, num episódio traumático. O ex-governador relutou e foi contido por agentes, numa cena filmada por pessoas que acompanharam a transferência.
+"Não se viu nesse País cenas tão grotescas e desumanas como foram televisionadas. Um juiz determinou a retirada de um paciente de dentro de um hospital e determinou levá-lo pra um local dentro do presídio, uma UPA que não contava com condições necessárias. As cenas do paciente sendo retirado da cama de um hospital, as cenas do paciente resistindo à entrada em uma ambulância, com a filha gritando, são cenas de desumanidade que já não se vê em locais de guerra", criticou o advogado Fernando Fernandes, defensor de Garotinho.
+Luciana autorizou então que Garotinho fosse transferido do hospital no complexo penitenciário para um hospital privado. O ex-governador foi submetido no último domingo (20) a uma angioplastia para colocação de stent, no Hospital Quinta D'Or, na zona norte do Rio. O cateterismo realizado pela equipe médica identificou uma obstrução da artéria coronária direita.

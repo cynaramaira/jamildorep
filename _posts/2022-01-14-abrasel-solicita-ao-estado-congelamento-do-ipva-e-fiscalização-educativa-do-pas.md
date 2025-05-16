@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Abrasel solicita ao Estado congelamento do IPVA e fiscalização educativa do passaporte vacinal nos bares e restaurantes  "
+date: 2022-01-14
+tags: bares, restaurantes, Estado
+author: JAMILDO MELO
+---
+A Associa&ccedil;&atilde;o Brasileira de Bares e Restaurantes / Pernambuco (Abrasel em PE) iniciou um pleito, em conjunto com o trade tur&iacute;stico do estado, solicitando o congelamento do reajuste do IPVA 2022 por conta dos problemas econ&ocirc;micos e sociais causados pela pandemia e pelas frequentes medidas restritivas. O pedido tem proposta similar &agrave; lei aprovada pelo governo de Minas Gerais, que congelou a taxa de 2022 nos mesmos valores de 2021.
+O of&iacute;cio foi enviado ao governador Paulo C&acirc;mara e ao secret&aacute;rio de Desenvolvimento Econ&ocirc;mico, Geraldo J&uacute;lio. Assinam o documento a ABRASEL, ABEOC, ABAV, ABIH, RCVB, PGACVB, AHPG, UBRAFE E ABRACE. O arquivo na &iacute;ntegra est&aacute; anexado.
+Al&eacute;m disso, a Abrasel em Pernambuco, na &uacute;ltima quarta-feira (12), solicitou ao Governo do Estado uma fiscaliza&ccedil;&atilde;o educativa da nova exig&ecirc;ncia de comprovante de vacina&ccedil;&atilde;o nos bares e restaurantes, deixando claro tamb&eacute;m que a associa&ccedil;&atilde;o iniciar&aacute; uma campanha de conscientiza&ccedil;&atilde;o dos clientes.
+Pleito: Fiscaliza&ccedil;&atilde;o educativa acerca do passaporte de vacina&ccedil;&atilde;o
+Prezados Excelent&iacute;ssimos Senhores,
+Devido ao aumento dos casos da Covid-19 e da gripe H3N2 em Pernambuco, recebemos o an&uacute;ncio de uma nova restri&ccedil;&atilde;o para nosso segmento. Com posicionamento j&aacute; conhecido, para a Abrasel em Pernambuco a medida ser&aacute; ineficaz devido a capilaridade do setor e a necessidade de uma operacionaliza&ccedil;&atilde;o onerosa, onde deixa os funcion&aacute;rios em posi&ccedil;&atilde;o de se indispor diretamente com cliente, algo que no cen&aacute;rio atual pode causar uma a&ccedil;&atilde;o desproporcional.
+Com o objetivo de obedecer &agrave;s especificidades do decreto e portaria, solicitamos uma fiscaliza&ccedil;&atilde;o educativa durante a sua vig&ecirc;ncia. Apenas tr&ecirc;s dias n&atilde;o s&atilde;o suficientes para escalar, administrar e treinar a brigada de atendimento nos estabelecimentos, tornando a log&iacute;stica pass&iacute;vel a erros. 
+Al&eacute;m disso, analisando a aplicabilidade no vi&eacute;s do consumidor onde ser&aacute; necess&aacute;rio carregar a carteira de vacina&ccedil;&atilde;o de papel, material com baixa durabilidade, para todos os estabelecimentos que consomem alimentos e bebidas. Como comprovar a situa&ccedil;&atilde;o vacinal caso seja rasurado ou perdido? O Conecte-SUS n&atilde;o est&aacute; em perfeito funcionamento, ainda n&atilde;o atualizado com segunda ou terceira dose de alguns cidad&atilde;os. 
+A Abrasel, certa de seu papel perante a sociedade, far&aacute; campanha motivacional para os estabelecimentos afixarem cartazes e adesivos informando as obrigatoriedades para o consumidor final. Por&eacute;m, o papel educativo sobre a import&acirc;ncia comunit&aacute;ria da vacina&ccedil;&atilde;o poder&aacute; ser dos &oacute;rg&atilde;os p&uacute;blicos, por isso, abriremos nossas portas para o Governo do Estado realizar campanhas de conscientiza&ccedil;&atilde;o e ensinar a usabilidade dos aplicativos oficiais que servem como comprovante de vacina&ccedil;&atilde;o.
+Como j&aacute; comprovado cientificamente, o setor de bares e restaurantes &eacute; um dos locais mais seguros para se frequentar, desde que continuem obedecendo aos protocolos sanit&aacute;rios e, de acordo com o PROCON, temos taxa de sucesso alta, mais de 94%, constatando que sempre seguimos as regras e as aplicamos com sucesso.
+Pedimos que a proposta acima seja analisada e dialogada com a ABRASEL.
+Cordialmente, CONSELHO ADMINISTRATIVO ABRASEL

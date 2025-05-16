@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Inovação: Petrobras lança primeira gasolina carbono neutro do mercado brasileiro"
+date: 2023-09-19
+tags: jamildo, carbono, Petrobras
+author: Jamildo Melo
+---
+A Petrobras informa ao mercado que deu um passo significativo na transi&ccedil;&atilde;o energ&eacute;tica com o lan&ccedil;amento da nova Gasolina Petrobras Podium Carbono Neutro. Esta &eacute; a primeira gasolina do mercado brasileiro a ter suas emiss&otilde;es de gases de efeito estufa (GEEs) totalmente compensadas. A estrat&eacute;gia da empresa &eacute; fortalecer seu posicionamento no mercado ao compensar as emiss&otilde;es de GEEs da Gasolina Podium em todo o ciclo de vida do produto.
+Segundo a estatal, a Gasolina Petrobras Podium n&atilde;o s&oacute; &eacute; o primeiro combust&iacute;vel carbono neutro no pa&iacute;s, mas tamb&eacute;m possui o menor teor de enxofre do mercado e a maior octanagem de f&aacute;brica. Isso melhora o desempenho do ve&iacute;culo e contribui para a efici&ecirc;ncia do transporte e para uma menor emiss&atilde;o de GEEs.
+A neutraliza&ccedil;&atilde;o das emiss&otilde;es &eacute; alcan&ccedil;ada atrav&eacute;s da aquisi&ccedil;&atilde;o e aposentadoria de cr&eacute;ditos de carbono. A Petrobras mensurou as emiss&otilde;es de GEEs da Gasolina Petrobras Podium utilizando a metodologia de Avalia&ccedil;&atilde;o do Ciclo de Vida (ACV), com foco no impacto potencial do aquecimento global.
+A empresa tamb&eacute;m fez um investimento na preserva&ccedil;&atilde;o da Floresta Amaz&ocirc;nica, adquirindo 175 mil cr&eacute;ditos gerados por a&ccedil;&otilde;es de preserva&ccedil;&atilde;o. Cada cr&eacute;dito representa uma tonelada de CO2 equivalente, totalizando 175 mil toneladas de GEEs neutralizadas.
+"A Gasolina Petrobras Podium, dispon&iacute;vel exclusivamente nos Postos Petrobras, sempre foi uma refer&ecirc;ncia no mercado por sua tecnologia e inova&ccedil;&atilde;o. Al&eacute;m da compensa&ccedil;&atilde;o das emiss&otilde;es de GEEs e da redu&ccedil;&atilde;o no teor de enxofre, a Petrobras investiu em tecnologia para aumentar a octanagem do combust&iacute;vel, tornando-o ideal para motores modernos que se beneficiam de uma gasolina de alta qualidade", afirma a estatal.

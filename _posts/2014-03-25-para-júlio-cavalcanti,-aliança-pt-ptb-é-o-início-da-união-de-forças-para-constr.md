@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Para Júlio Cavalcanti, aliança PT-PTB é o início da união de forças para construir nova história no Estado"
+date: 2014-03-25
+tags: Estado,Forças Armadas,história,João Cavalcanti,Pará,União
+author: None
+---
+O líder do PTB na Assembléia Legislativa de Pernambuco(ALEPE), deputado Júlio Cavalcanti (PTB) ocupou a tribuna, nesta terça-feira(25), para agradecer o apoio, a parceria e a aliança conduzida pela presidente do Partido dos Trabalhadores em Pernambuco, deputada Tereza Leitão com o PTB. “Essa não é apenas uma aliança partidária, mas o início da união de forças para construir uma nova história no nosso Estado”, ressaltou Júlio Cavalcanti.
+Citando alguns empreendimentos como a Refinaria de Abreu e Lima, o Estaleiro de Suape, a fábrica da Fiat, as escolas técnicas, a transposição do São Francisco, a Transnordestina, a Adutora do Agreste e do Pajeú, além da Hemobrás, Júlio Cavalcanti destacou que a aliança do PT com o PTB em apoio à pré-candidatura do senador Armando Monteiro Neto ao governo do Estado é a garantia de que os grandes investimentos que entraram em Pernambuco, através do ex-presidente Lula e da presidente Dilma Roussef, terão não só continuidade, como avançarão.
+“Como líder do PTB na Assembléia saúdo os companheiros do PT que a partir de agora compartilham do mesmo sentimento que norteia nosso partido e nosso presidente: o sentimento da união, do desenvolvimento e do trabalho. Vamos juntos, com outras legendas que estão se aglutinando dentro desse mesmo objetivo, construir um Pernambuco com mais igualdade e justiça social do litoral ao Sertão”, ressaltou Júlio Cavalcanti.
+O deputado petebista fez questão de salientar que não se trata de uma aliança meramente eleitoral, tampouco uma aliança para alimentar projetos pessoais. “É preciso superar os gargalos que podem prejudicar o grande salto de nosso Estado nos próximos anos. Educação, qualificação profissional, saúde, emprego, interiorização do desenvolvimento, cuidado com as pessoas, são pontos que estão unindo PTB, PT e outras legendas para fazer avançar o que tiver de bom, e promover as mudanças que o atual governo estadual não conseguiu fazer”, afirmou Cavalcanti.
+O líder petebista concluiu sua fala dizendo que essa aliança “não tem dono, não tem chefe, nem tem mandante. O único que vai mandar nessa aliança é o povo pernambucano que quer ver seu Estado nas mãos de quem tem experiência, capacidade administrativa e política, competência e respeito pelo homem e pela mulher pernambucana”.

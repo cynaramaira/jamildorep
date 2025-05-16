@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Candidatura de Ciro Gomes é 'gota d'água' para Cristovam Buarque deixar PDT"
+date: 2016-01-05
+tags: Candidatura,Chico Buarque,Ciro Gomes
+author: None
+---
+ Foto: Jefferson Rudy/ Agência Senado
+Estadão Conteúdo - O senador Cristovam Buarque (PDT-DF) afirmou nesta terça-feira, 5, em entrevista ao Broadcast Político, que a atuação do presidente do partido, Carlos Lupi, em promover a candidatura presidencial do ex-ministro e recém-filiado à legenda Ciro Gomes sem realizar prévias é uma "gota d'água" para ele deixar o partido. Ele disse que ainda não tomou uma decisão sobre quando e para qual partido deve migrar.
+Questionado se deve ir para o PPS, partido do seu "velho amigo" Roberto Freire (SP), para se candidatar ao Palácio do Planalto em 2018, ele preferiu deixar seu futuro em aberto. "Pode ser prematuro dizer que não vou (para o partido)", disse, ao fazer uma analogia. "Me parece a história de um cara não vai bem no casamento e pergunta o nome da futura mulher, eu duvido que ele diga."
+Ex-governador de Brasília e ex-ministro da Educação de Lula pelo PT, Cristovam disse que o descontentamento com Lupi vem desde a eleição de 2006, quando se candidatou a presidente pelo PDT. Segundo ele, o presidente do partido criticava-o por não "bater" no Lula durante a disputa presidencial. Ele resistiu ao avaliar que, com pouco tempo de propaganda na televisão, seria melhor usá-lo apresentando propostas. "Eu tinha só dois minutos, como vou perder meu tempo para criticar?", questionou.
+O senador pelo PDT disse que, logo após a eleição, Lupi aceitou um ministério no governo reeleito de Lula para o partido - que, em sua avaliação, caminhou para ser um "apêndice" do PT. Para Cristovam, embora reconheça o valor do presidente do partido em manter o PDT mesmo após a morte do maior líder Leonel Brizola, em 2004, esse processo de "absorção" do partido está aniquilando a legenda.
+"O partido não está cumprindo o desafio de ter uma proposta alternativa, que o PSDB não está propondo", afirmou. Cético, ele disse não ver sinais de melhora na política e na economia para 2016 e citou o fato de que a troca no Ministério da Fazenda com a chegada de Nelson Barbosa não tem o condão de recuperar a credibilidade que o País precisa.
+O pedetista criticou ainda a postura de Lupi de defender a expulsão dos integrantes do partido que votarem a favor do impeachment da presidente Dilma Rousseff no Congresso. Mesmo ressaltando que ainda não tomou uma decisão sobre como vai votar, ele disse que ficará ao lado dos que se insurgirem contra a posição da cúpula do partido.

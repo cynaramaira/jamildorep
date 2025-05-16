@@ -1,0 +1,46 @@
+---
+layout: post
+title: "Turbulência: relatório do MPF e Policia Federal diz que João Carlos Lyra era ‘laranja’ de Eduardo Campos"
+date: 2016-07-24
+tags: Carlos Lupi,eduardo campos,joão d,Polícia Federal,raquel lyra,Relatório
+author: None
+---
+Provas compartilhadas pelo ministro Teori Zavascki, relator do caso da Lava Jato no STF (Supremo Tribunal Federal), trazidas ao bojo da Operação Turbulência, deflagrada pela Polícia Federal de Pernambuco, no mês passado, apontam que o empresário João Carlos Lyra Pessoa de Melo Filho, um dos supostos cabeças do esquema, era beneficiário do dinheiro desviado da construtora Camargo Corrêa, na refinaria Abreu e Lima, e uma espécie de "laranja" do ex-governador Eduardo Campos, morto em agosto de 2014, em meio à campanha presidencial, na queda de um avião Cessa Citation, em Santos, São Paulo. De acordo com as investigações do MPF e Polícia Federal, a referida operação esteve relacionada ainda com a campanha de reeleição do socialista ao governo do Estado, em 2010.
+
+Os documentos do STF foram usados pelo desembargador federal Iran Lira de Carvalho, relator da operação Turbulência no Tribunal Regional da 5ª Região (TRF5), como um dos argumentos para negar o pedido de soltura do empresário João Carlos Lyra, no começo deste mês.
+De acordo com as informações do inquérito do STF, o empresário João Carlos Lyra foi reconhecido pelos ex-empregados da Camargo Corrêa Gilmar Pereira Campos e Wilson da Costa como sendo a pessoa encarregada de entregar a propina devida por aquela empreiteira ao ex-governador Eduardo Campos e ao senador Fernando Bezerra Coelho em virtude das obras da refinaria Abreu e Lima.
+No processo do STF, os investigadores sustentam que esses contratos da Master Terraplenagem teriam sido constituídos em nome de ‘laranjas’ como o intermediário José Gomes de Oliveira.
+De acordo com os dados do processo, no STF, na apuração do caso, os engenheiros da construtora foram inquiridos e admitiram que a Master de fato não executou qualquer serviço para a Camargo Corrêa.
+Eles informaram ao MPF e a PF que, após os saques realizados da conta da construtora Master pelo intermediário “Zé Gomes”, o numerário era remetido para João Carlos Lyra Pessoa de Melo, apontado pela PF de Pernambuco como um dos cabeças do esquema na Operação Turbulência, com a ajuda da empresa fantasma Câmara e Vasconcelos Terraplenagem.
+Petrobras aprova retomada da Refinaria Abreu e Lima
+ Imagem de terraplenagem na Refinaria Abreu e Lima (Foto: Eudes Santana/Banco de Imagens da Petrobras)
+
+Nesse sábado, o Blog de Jamildo revelou que a PF encontrou um elo entre as operações da Lava Jato e a Turbulência, a partir de uma segunda empreiteira fantasma, de nome Master Terraplenagem, usada pela Camargo Corrêa para desviar recursos. O beneficiário destes recursos, segundo os dados do STF, que cita as investigações do MPF e Polícia Federal, era João Carlos Lyra Pessoa de Melo Filho.
+De acordo com o desembargador Iran Lira de Carvalho, há "provas cabais" (documentos de transferência e depósitos bancários) de que somente com esse esquema criminoso João Carlos Lyra Pessoa de Melo Filho teria sido beneficiado, em sua conta pessoal, com R$ 2,8 milhões, além de ser detentor de um expressivo patrimônio em veículos, lanchas e jet ski, aparentemente não compatível em seus rendimentos declarados.
+“O empresário não apresenta vínculos empregatícios e a empresa da qual ele próprio alega ser sua fonte de renda, a JCl Fomento Mercantil, trata-se de empresa fantasma, porque não funcionaria no endereço de seu registro, dai se concluir que provavelmente a maior parte de seu patrimônio tenha sido obtida com recursos ilícitos”, descreve o magistrado, em despacho.
+O magistrado disse mais.
+“É de se ressaltar, por oportuno, que, em acordos de colaborações premiada firmados pela Procuradoria da República no Estado do Paraná, restou demonstrado, através de diversos comprovantes de transferências realizadas a mando do investigado João Carlos Lyra Pessoa de Melo Filho, como pagamento pelo montante de espécie adquirido, que remontam mais de R$ 14 milhões de reais entre os anos de 2010 a 2014, sendo relevante que, dentre os beneficiários de recursos indicados por esse estão diversas pessoas físicas e jurídicas investigadas no bojo do inquperito policial em referência (como as empresas Câmara e Vasconcelos Terraplenagem, Câmboa Cerâmica, Cidell Cred Factoring, atual MM ASdministradora de Bens, Lalot Comércio de Combustíveis e Lagoa Indústria) e as pessoas físicas dos próprios investigados João Carlos Lyra, Eduardo Freire Bezerra Leite, sendo de se registrar que esse último é ou foi sócio da Câmboa Cerâmica, e Cidell CVred Factory, atualmente MM Admnistradora de Bens, esta registrada em nome de outros sócios, ambos empregados da Câmboa Cerâmica”, descreve o juiz do TRF5.
+Dinheiro da OAS também
+Segundo os dados do STF, existiriam outras ligações do empresário pernambucano com a Operação Lava Jato. O magistrado do TRF5 ressalta que João Carlos Lyra foi reconhecido pelos operadores financeiros Roberto Trombeta e Rodrigo Morales (operadores de Alberto Youssef) como sendo uma das pessoas que viabilizaria o dinheiro em espécie para o pagamento de vantagem indevida, efetuado pela construtora OAS, cobrando taxa de 2% sobre o montante total, indicando em contrapartida as contas de diversas pessoas físicas e jurídicas investigadas nos autos da Turbulência para recebimento de recursos.
+Avião de Eduardo Campos
+No processo, o magistrado cita ainda que João Carlos Lyra se apresentou formalmente como o único adquirente do avião Cessna Citation que vitimou o ex-governador Eduardo Campos.
+Nesse sábado 23 de julho, o Blog de Jamildo relatou que Relatório do Conselho de Controle de Atividades Financeiras (Coaf), dentro das provas compartilhadas pelo Supremo Tribunal federal (STF) com o Ministério Público Federal de Pernambuco e a Polícia Federal de Pernambuco, no bojo da operação Turbulência, aponta uma ligação maior entre o empresário Eduardo Freire Bezerra Leite e a empresa fantasma Geovani Pescados, que ao menos no papel apresentou-se como uma das compradoras do avião Cessna Citation que era usado na campanha de Eduardo Campos e acabou caindo em Santos, em agosto de 2014, matando o candidato a presidente do PSB.
+» Empréstimo de Eduardo Ventola para Alagoas liga Lava Jato a esquema em Pernambuco
+» Um ano antes de ser preso pela PF, Carlos Lyra Filho já era investigado pela PF, após delação de Paulo Roberto Costa e Youssef
+» Provas usadas na Operação Turbulência são de inquérito sobre suposta propina na campanha de Eduardo Campos em 2010
+Veja deu antes
+Em 29 de junho, reportagem da revista Veja citava João Carlos Lyra como “homem da mala” de Eduardo Campos, mas não apresentava documentação alguma (como o inquérito do STF).
+Segundo a revista, um engenheiro da Camargo Corrêa, Wilson Costa, relatou que depois de um pagamento de R$ 4,7 milhões de reais, recebe de volta o dinheiro, sacado pelos controladores da Master, e o repassa em cinco parcelas, a João Carlos Lyra.
+Delivery de dinheiro no Recife
+Nessa sexta-feira (22), o Blog de jamildo informou que provas compartilhadas pelo ministro Teori Zavascki, relator da operação Lava Jato no STF, com o Ministério Público de Pernambuco e Polícia Federal no Estado mostravam que o empresário João Carlos Lyra Pessoa de Melo Filho operava uma espécie de ‘delivery’ de dinheiro na capital pernambucana, a serviço de operadores ligados ao doleiro Alberto Youssef, do Paraná.
+
+Entenda o caso
+Até aqui, a Operação Turbulência evidenciou o uso da empresa de terraplenagem Câmara e Vasconcelos, que era usada pela construtora OAS para desviar recursos das obras da transposição do São Francisco e outras obras.
+A interligação entre o esquema da Turbulência e a Lava Jato se dá por meio da descoberta das operações da empresa Master terraplenagem, que atuava nas obras da refinaria, por meio da construtora Camargo Corrêa.
+A chave para a elucidação do esquema aparece em provas compartilhadas pelo STF no inquérito. Trata-se de um dos vários outros braços da Lava Jato.
+No caso da Camargo, como já de conhecimento em Pernambuco, a investigação foi aberta para apurar uma possível doação não declarada de R$ 20 milhões à campanha eleitoral da então reeleição do falecido ex-governador Eduardo Campos, em 2010.
+A investigação apura a prática de sobrepreço em contratos bilionários firmados para a implantação da refinaria do Nordeste (Rnest), pela Camargo Corrêa, por meio da simulação da contratação da empresa Master Terraplenagem, para a suposta “locação de equipamentos, em março de 2011.
+Em agosto de 2014, logo após a queda do avião de Eduardo Campos, pessoas muito bem informadas da política local já citavam que o esquema de desvios da Petrobrás ocorria por meio de uma empresa de terraplenagem e citavam o nome de pessoas ligadas à área de factoring e agiotagem. Já se citava o nome de Eduardo Ventola, também um dos presos da Turbulência.
+» Ministério Público destaca promotora para acompanhar inquérito da morte de Paulo Morato
+» Em reunião da cúpula do MPPE, ata de reunião de procuradores fala em “assassinato” de Paulo Morato, da Operação Turbulência
+» Saiba o que o testa de ferro Paulo César Morato disse à Polícia Federal, em Brasília, antes de morrer

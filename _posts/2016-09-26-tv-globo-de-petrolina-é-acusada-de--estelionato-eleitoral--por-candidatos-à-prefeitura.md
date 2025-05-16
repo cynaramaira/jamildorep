@@ -1,0 +1,11 @@
+---
+layout: post
+title: "TV Globo de Petrolina é acusada de "estelionato eleitoral" por candidatos à Prefeitura"
+date: 2016-09-26
+tags: candidatos,Petrolina,Prefeitura,tv globo
+author: None
+---
+Nesta segunda-feira (26), representantes das coligações ‘Pra frente Petrolina’, ‘Pra continuar avançando’, ‘Frente esquerda socialista’ e ‘Petrolina do Povo e dos sonhos de Isabel Cristina’, que respondem pelas candidaturas de Adalberto Cavalcanti (PTB), Edinaldo Lima (PMDB), Perpetua Rodrigues (PSOL) e Odacy Amorim (PT), respectivamente, que concorrem ao cargo de prefeito do município de Petrolina-PE, reuniram a imprensa local em um hotel no centro da cidade. O objetivo foi comunicar o que foi chamado de prática de “estelionato eleitoral”, por parte da TV Grande Rio, afiliada da rede Globo e única emissora de TV local.
+O anúncio foi feito pouco depois de os candidatos à Prefeitura de Petrolina participarem  do debate realizado pela Rádio Jornal Petrolina. De acordo com os membros da coletiva a emissora de TV deixou de exibir inserções, que fazem parte do horário eleitoral gratuito, prejudicando a exposição de propostas de candidatos. Segundo levantamentos da equipe do candidato Adalberto Cavalcanti, cerca de 220 inserções da coligação ‘Pra frente Petrolina’ foram subtraídas, o equivalente a 20% do total de inserções e o correspondente a 100 minutos da programação da TV.
+O prefeito de Petrolina Julio Lossio, que na ocasião representava o PMDB, manifestou que o candidato Edinaldo Lima também foi prejudicado. Lossio avalia que cerca de 120 inserções do candidato podem ter deixado de ser exibidas. Segundo o gestor municipal, a coligação ‘Pra continuar avançando’ está concluindo o levantamento para verificar com exatidão este total.
+Em uma manifestação, as coligações oponentes se reuniram para "demonstrar a gravidade da conduta assumida pela emissora de TV", o que segundo os representantes, feriu o regime democrático de direito. Uma representação conjunta será elaborada para levar o caso aos órgãos eleitorais. A emissora foi procurada, mas não se manifestou.

@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Governo de PE aguarda operações de crédito para cumprir PPP da Compesa"
+date: 2016-02-29
+tags: Compesa,crédito,governo,operações policiais,salvaguardas
+author: None
+---
+ Foto: Aluisio Moreira/SEI
+Por Mariana Araújo, do Jornal do Commercio
+O governador Paulo Câmara (PSB) afirmou que está aguardando a liberação das operações de crédito pelo governo federal para concluir as obras referentes ao Estado na Parceria Público-Privada (PPP) de saneamento, administrada pela Compesa. O contrato prevê que, para cada investimento público, há uma contrapartida do parceiro privado, a Odebrecht Ambiental. Com a crise, as obras da Compesa estão travadas e, consequentemente, também prejudica o investimento privado.
+“A gente está aguardando essas novas operações de crédito, a finalização disso. Estamos fazendo investimentos com recursos próprios. Estão acontecendo. A PPP tem andado bem e é uma coisa observada por todos os Estados, porque é uma coisa que nós vamos ter no prazo de 12 anos toda a Região Metropolitana saneada. E isso não é pouca coisa diante do que a gente vê na realidade do Brasil”, disse o governador, após a inauguração de uma escola técnica no bairro do Jordão, na manhã desta segunda (29).
+Já sobre a PPP da Arena Pernambuco, Paulo Câmara afirmou que continua analisando o estudo realizado pela Fundação Getúlio Vargas (FGV) sobre o empreendimento e contrato firmado entre o governo e a Odebrecht. “Faltam só detalhes pequenos com o parceiro privado que a gente deve estar resolvendo muito rapidamente. Quero finalizar isso logo”, declarou o governador, sem dar um prazo para anunciar o destino do estádio. O estudo foi concluído no final de dezembro. Paulo havia prometido uma solução para janeiro e, em seguida, para fevereiro. Hoje, inicia-se março.
+O governador já admitiu que a empresa privada pode ficar de fora do novo acordo. “É óbvio que o modelo anterior, que foi concebido, não reflete mais a realidade. Vai ter que precisar fazer ajustes de acordo com as possibilidades. Se houver ainda a possibilidade de o parceiro privado ficar, nós vamos discutir isso. Mas se não houver, a gente vai para o plano alternativo de buscar dar viabilidade à Arena sem haver nenhum tipo de ônus com o tesouro. As alternativas de administração da Arena tem que ser com um zero custo”, acrescentou. O governador ressaltou, ainda, que os custos da Arena hoje referem-se à construção do empreendimento.

@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Magistrados e MP são contra PEC que vincula a remuneração de servidores públicos do Executivo ao subsídio dos ministros do STF"
+date: 2015-08-05
+tags: Contran,Executivo,Ministro,são,servidores públicos
+author: None
+---
+Associações da magistratura e do Minisitério Público discordam da vinculação da remuneração da Advocacia-geral da União, das Procuradorias dos Estados, das Defensorias Públicas e dos Delegados de Polícia aos subsídios dos ministros do STF
+A Associação dos Juízes Federais do Brasil (Ajufe), em conjunto com a Associação Nacional dos Magistrados do Trabalho (Anamatra), a Associação Nacional dos Procuradores da República e a Associação Nacional dos Membros do Ministério Público (Conamp), emitiu nota técnica, nesta quarta-feira (05), em que se manifesta contrariamente à proposta de emenda à Constituição que eleva para 90,25% do subsídio mensal dos ministros do Supremo Tribunal Federal os subsídios de advogados e defensores públicos e delegados de polícia da União, Estados e municípios (PEC 443/2009).
+“Com essa PEC, as carreiras relacionadas do Poder Executivo buscam a equiparação remuneratória com a Magistratura e o Ministério Público, sem arcar com os ônus e as restrições impostas aos magistrados e aos membros do Ministério Público, em absoluta desarmonia com a orientação dada pelo §1º do art. 39 da Constituição Federal”, diz a nota técnica.
+O texto afirma ainda que a equiparação da remuneração da Advocacia Pública à dos membros da magistratura e do Ministério Público despreza as diferenças existentes entre às carreiras quanto à natureza, o grau de responsabilidade, a complexidade, os requisitos para a investidura e as peculiaridades dos cargos.
+No entendimento das instituições, a vinculação remuneratória de servidores do Poder Executivo aos subsídios dos ministros do STF ofende cláusula pétrea da Separação de Poderes. De acordo com jurisprudência do próprio STF, nem uma Emenda Constitucional pode vincular a remuneração de servidores do Poder Executivo aos subsídios dos integrantes do Supremo.
+“Sem deixarmos de reconhecer a importância dos Advogados Públicos, dos Defensores Públicos e dos Delegados de Polícia, é inegável que esses servidores do Poder Executivo integram carreiras bem distintas das dos membros do Poder Judiciário e do Ministério Público, sem as restrições, limitações e ônus impostos por lei”, finaliza a nota.

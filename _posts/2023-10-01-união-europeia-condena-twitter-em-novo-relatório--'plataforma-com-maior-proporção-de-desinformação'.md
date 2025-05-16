@@ -1,0 +1,12 @@
+---
+layout: post
+title: "União Europeia condena Twitter em novo relatório: 'plataforma com maior proporção de desinformação'"
+date: 2023-10-01
+tags: jamildo, Desinformação
+author: Jamildo Melo
+---
+A Uni&atilde;o Europeia (UE) criticou Elon Musk e a plataforma de m&iacute;dia social Twitter, agora conhecida como X, por ser a plataforma com a maior propor&ccedil;&atilde;o de desinforma&ccedil;&atilde;o entre as principais redes sociais. A cr&iacute;tica veio ap&oacute;s a UE implementar a Lei de Servi&ccedil;os Digitais (DSA), que responsabiliza as empresas de tecnologia por combater as fake news.
+A UE est&aacute; monitorando de perto as a&ccedil;&otilde;es do Twitter/X, especialmente ap&oacute;s a plataforma se retirar do C&oacute;digo de Conduta contra Desinforma&ccedil;&atilde;o da UE. A vice-presidente da Comiss&atilde;o Europeia pelos Valores e Transpar&ecirc;ncia, Vera Jourov&aacute;, enfatizou que o Twitter/X ainda &eacute; obrigado a cumprir as obriga&ccedil;&otilde;es legislativas, mesmo ap&oacute;s abandonar o c&oacute;digo de pr&aacute;ticas.
+A UE tamb&eacute;m est&aacute; se preparando para uma poss&iacute;vel &lsquo;guerra de influ&ecirc;ncia&rsquo; russa, desenvolvendo um conjunto de &ldquo;indicadores estruturais&rdquo; para monitorar a dissemina&ccedil;&atilde;o de not&iacute;cias falsas. Esses indicadores foram testados no conflito entre R&uacute;ssia e Ucr&acirc;nia e revelaram fontes de desinforma&ccedil;&atilde;o, dados de engajamento e facilidade de acesso.
+As empresas signat&aacute;rias do C&oacute;digo est&atilde;o tomando medidas para combater a desinforma&ccedil;&atilde;o. O Google removeu a monetiza&ccedil;&atilde;o de 300 sites ligados &agrave; propaganda estatal russa e encerrou 400 canais no YouTube ligados ao Internet Research Agency (IRA). A Meta anunciou 26 novas parcerias de checagem de not&iacute;cias em 22 l&iacute;nguas na Europa. O TikTok fez uma parceria com a Reuters e verificou 832 v&iacute;deos sobre a guerra, derrubando 221 deles.
+No entanto, Jourov&aacute; pediu mais a&ccedil;&otilde;es das empresas signat&aacute;rias, pois a guerra de influ&ecirc;ncia liderada pela R&uacute;ssia poderia se estender para as elei&ccedil;&otilde;es de 2024. Ela declarou que as plataformas devem investir em modera&ccedil;&atilde;o e checagem consistentes e aumentar os esfor&ccedil;os para liberar dados que tragam maior transpar&ecirc;ncia sobre o que ocorre nas redes.

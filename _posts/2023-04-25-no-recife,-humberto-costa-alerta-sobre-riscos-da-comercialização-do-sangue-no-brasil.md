@@ -1,0 +1,19 @@
+---
+layout: post
+title: "No Recife, Humberto Costa alerta sobre riscos da comercialização do sangue no Brasil"
+date: 2023-04-25
+tags: jamildo, Humberto Costa
+author: Jamildo Melo
+---
+Parlamentares, pesquisadores, representantes do Minist&eacute;rio da Sa&uacute;de e da sociedade civil alertaram no Recife sobre os perigos da comercializa&ccedil;&atilde;o do sangue no Brasil durante audi&ecirc;ncia p&uacute;blica da Comiss&atilde;o de Assuntos Sociais (CAS) do Senado, realizada nesta segunda-feira (24), em Pernambuco.
+Embora n&atilde;o haja muita divulga&ccedil;&atilde;o, tramita no Congresso Nacional a Proposta de Emenda &agrave; Constitui&ccedil;&atilde;o (PEC) n&ordm; 10, que altera o par&aacute;grafo 4&ordm;, do artigo 199, da Constitui&ccedil;&atilde;o, para permitir que o plasma, componente do sangue, se torne um produto negociado no mercado.
+Na avalia&ccedil;&atilde;o dos presentes ao encontro, a proposta pode gerar s&eacute;rias implica&ccedil;&otilde;es para o Sistema &Uacute;nico de Sa&uacute;de (SUS), especialmente para a Empresa Brasileira de Hemoderivados e Biotecnologia (Hemobr&aacute;s), instalada no munic&iacute;pio de Goiana, na Zona da Mata Norte do Estado.
+Para uma plateia que lotou o Plenarinho da C&acirc;mara Municipal do Recife, o senador e presidente da CAS, Humberto Costa (PT), destacou a import&acirc;ncia da Hemobr&aacute;s para Pernambuco e os riscos da aprova&ccedil;&atilde;o da PEC para o estado e para o Brasil.
+"A Organiza&ccedil;&atilde;o Mundial da Sa&uacute;de recomenda que seja volunt&aacute;ria e gratuita, a doa&ccedil;&atilde;o, e o Brasil tem assegurada essa determina&ccedil;&atilde;o na sua Constitui&ccedil;&atilde;o. A Hemobr&aacute;s foi criada exatamente neste contexto: para garantir o abastecimento de hemoderivados para o nosso Sistema &Uacute;nico de Sa&uacute;de. N&atilde;o podemos retroceder. O Brasil n&atilde;o pode abrir um balc&atilde;o de comercializa&ccedil;&atilde;o de um produto t&atilde;o importante como o plasma, em preju&iacute;zo dos interesses pa&iacute;s e de seu povo", afirmou o senador.
+O presidente da Hemobr&aacute;s, Ant&ocirc;nio Edson,&nbsp; afirmou que a medida privilegia o mercado internacional, em detrimento dos interesses do Brasil.
+"Somos contra a PEC porque ela n&atilde;o foi criada visando ao interesse p&uacute;blico. A PEC &eacute; prejudicial para a Hemobr&aacute;s e para o Brasil", disse.
+O diretor do Departamento do Complexo Industrial e Inova&ccedil;&atilde;o em Sa&uacute;de (DECEIIS), Leandro Safatle, destacou a import&acirc;ncia da Hemobr&aacute;s para Pernambuco e para o mercado de sa&uacute;de no Brasil.
+"A Hemobr&aacute;s &eacute; uma grande aposta de desenvolvimento no Nordeste na &aacute;rea da sa&uacute;de. Este &eacute; um momento decisivo para alavancar o setor e para garantir que o Brasil tenha mais independ&ecirc;ncia numa &aacute;rea t&atilde;o estrat&eacute;gica. A gente t&aacute; falando de um setor em que o Brasil &eacute; altamente dependente. A Hemobr&aacute;s vai possibilitar a gente seguir no processo de autonomia e independ&ecirc;ncia", afirmou.
+Pela manh&atilde;, a comitiva visitou as instala&ccedil;&otilde;es da Hemobr&aacute;s para verificar a implementa&ccedil;&atilde;o do parque industrial. A expectativa &eacute; de que em outubro deste ano, uma nova fase, respons&aacute;vel pelo processamento do Fator 8, seja inaugurada.
+"Ficamos bastante impressionados com os avan&ccedil;os e com a relev&acirc;ncia que esse investimento tem para a pol&iacute;tica de sangue no Brasil", disse o senador Humberto.
+Tamb&eacute;m integraram a comitiva a senadora Zenaide Maia (PSD-RN), o superintendente do Minist&eacute;rio da Sa&uacute;de, Rosano Carvalho, o representante do Conselho Nacional de Secert&aacute;rios de Sa&uacute;de (Conass), Leonardo Vilela, e do Conselho Nacional de Secret&aacute;rios Municipais de Sa&uacute;de (Conasems), Elton Chaves.

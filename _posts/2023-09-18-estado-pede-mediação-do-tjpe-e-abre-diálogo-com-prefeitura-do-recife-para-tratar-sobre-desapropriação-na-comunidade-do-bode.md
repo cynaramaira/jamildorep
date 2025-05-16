@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Estado pede mediação do TJPE e abre diálogo com Prefeitura do Recife para tratar sobre desapropriação na comunidade do Bode"
+date: 2023-09-18
+tags: jamildo, bode, prefeitura do recife, HABITAÇÃO
+author: Jamildo Melo
+---
+O Governo de Pernambuco, atrav&eacute;s da Secretaria de Desenvolvimento Urbano e Habita&ccedil;&atilde;o (Seduh), solicitou a media&ccedil;&atilde;o do Tribunal de Justi&ccedil;a de Pernambuco (TJPE) com rela&ccedil;&atilde;o &agrave; desapropria&ccedil;&atilde;o de uma &aacute;rea da Perpart S.A na Comunidade do Bode, no Pina e tamb&eacute;m abriu um canal de di&aacute;logo com Prefeitura do Recife sobre o destino de fam&iacute;lias que pretende desalojar do local.
+O munic&iacute;pio declarou o terreno como de utilidade p&uacute;blica, com a inten&ccedil;&atilde;o de construir uma parte do Parque Encanta Mo&ccedil;a. Neste local, a estatal, controlada pelo governo, prepara a&ccedil;&otilde;es de regulariza&ccedil;&atilde;o fundi&aacute;ria que vai beneficiar centenas de fam&iacute;lias residentes. S&atilde;o habitantes de longas datas, que moram em constru&ccedil;&otilde;es de alvenaria e longe de &aacute;reas de risco, cuja propriedade do terreno &eacute; da Perpart, estatal do governo do estado.
+Na &uacute;ltima sexta-feira (15), a secret&aacute;ria Simone Nunes encaminhou of&iacute;cio ao presidente do TJPE, desembargador Luiz Carlos de Barros Figueir&ecirc;do, informando-o sobre a desapropria&ccedil;&atilde;o efetuada contra a Perpart. No documento, ela pede a indica&ccedil;&atilde;o de um representante para mediar a discuss&atilde;o.
+A secret&aacute;ria tamb&eacute;m enviou of&iacute;cio ao prefeito Jo&atilde;o Campos (PSB) pedindo esclarecimentos sobre a decis&atilde;o. Na solicita&ccedil;&atilde;o, Nunes pede medidas de acomoda&ccedil;&atilde;o das fam&iacute;lias que ser&atilde;o afetadas pela desapropria&ccedil;&atilde;o e se coloca &agrave; disposi&ccedil;&atilde;o da Prefeitura para encontrar a melhor solu&ccedil;&atilde;o para essas pessoas.
+&ldquo;A inten&ccedil;&atilde;o do Governo do Estado &eacute; trazer solu&ccedil;&otilde;es conjuntas para as fam&iacute;lias afetadas pela obra projetada pela Prefeitura. O trabalho de regulariza&ccedil;&atilde;o fundi&aacute;ria &eacute; um dos pilares do Morar Bem PE, primeiro programa de habita&ccedil;&atilde;o de interesse social do Estado&rdquo;, destacou a secret&aacute;ria.
+Desde o in&iacute;cio deste ano, a Perpart j&aacute; articulou e entregou mais de 3 mil escrituras a fam&iacute;lias que moram em terrenos cedidos pelo Estado. O objetivo do governo &eacute; chegar a 40 mil at&eacute; o final de 2026.
+&nbsp;

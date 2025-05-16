@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Tabata aponta contradições de Ciro e PDT com reformas. ‘Quem traiu quem? ... A vida nem sempre acaba mal’."
+date: 2019-07-29
+tags: Ciro Gomes,Copacabana,desempreg,esquema criminoso,reformas,Tabata Amaral
+author: None
+---
+Diante do Conselho de Ética
+Tabata Amaral,Na Folha de São Paulo
+"Então, a vida sempre acaba mal?" A provocação abre um dos capítulos de A ridícula ideia de nunca mais te ver, de Rosa Montero. O livro é inspirado nos relatos de Marie Curie, a única mulher a ganhar dois prêmios Nobel, sobre a morte de seu marido Pierre, numa época em que às mulheres não se permitiam grandes aspirações.
+A autora fala sobre a milenar sabedoria cigana, que é fundamentada na inevitabilidade da desgraça e opta por desejar "um mau começo" nos festejos sociais, esperando que a parcela de dor da vida venha primeiro, para que o final das histórias seja "venturoso".
+Sinto-me personagem dessa reflexão, tachada de rebelde, como foi Curie, uma inconsequente em meio ao machismo de então. Fui chamada de traidora, por ousar, como parlamentar mulher e jovem, dizer sim a uma reforma da Previdência que havia mudado completamente desde sua apresentação.
+A proposta do governo foi a única a ser debatida no PDT, ainda em março, mas, mesmo assim, entenderam que, com meu voto, desafiei o partido e suas lideranças. Na leitura deles, neguei minha trajetória de comprometimento com os mais pobres, pus o establisment trabalhista abaixo e deveria ter a dignidade de me retirar do partido.
+Acolho essa parcela de "dor" a que estou sendo submetida. Mas contraponho a narrativa das minhas supostas deslealdades e incoerência com a verdade da minha trajetória, publicamente esquadrinhada desde que anunciei a candidatura. Não fui eu quem traiu. O manifesto do movimento Acredito, do qual sou cofundadora, fala explicitamente da construção de uma política que promova o diálogo e a busca por soluções efetivas, e da crença em práticas partidárias mais democráticas e transparentes.
+Não me infiltrei no PDT, como dizem. Fui acolhida junto com minhas convicções. A carta assinada entre o Acredito e o PDT-SP destacava o compromisso de dar voz ao voto dos integrantes filiados e respeitar a identidade do movimento. Sei que tal documento não se sobrepõe às normas partidárias e não é disso que estou tratando, mas sim do absurdo de carimbar minha expressão como ato de rebeldia, quando exerci o direito de manifestação da minha consciência.
+O documento assinado não vale nada? O que interessava ali era capturar uma candidata para preencher a cota dos 30% e, de quebra, "conseguir uns 5.000 votos"? Quem foi desleal e em que momento?
+O meu sim à previdência dialoga com a crença de que reformar nosso sistema pode trazer benefícios aos mais pobres, porque políticas públicas sociais precisam ser sustentáveis.
+Sem o rombo previdenciário, cria-se espaço para investimentos urgentes em áreas como educação e segurança. Mas vou além. No pleito de 2018, o então candidato à presidência Ciro Gomes, falando da previdência, defendeu diretrizes que se aproximam muito do texto final aprovado em primeiro turno na Câmara dos Deputados, com uma convergência de aproximadamente dois terços entre a proposta do PDT e a que aprovamos, considerados os destaques e emendas aglutinativas.
+Quem traiu o quê? De "blogueira" como inicialmente o partido escreveu em minha inscrição (pedi que trocassem por cientista política e ativista), passando por jovem promissora e candidata à Prefeitura de São Paulo, o que sempre neguei, fui alçada a ícone da rebelião contra os ideais trabalhistas.
+Tal qual a sabedoria cigana, aguardo dias venturosos quando se possa fazer política de verdade, mantendo a cabeça erguida, como hoje, dia em que apresento minha defesa diante do Conselho de Ética do PDT. A vida nem sempre acaba mal.

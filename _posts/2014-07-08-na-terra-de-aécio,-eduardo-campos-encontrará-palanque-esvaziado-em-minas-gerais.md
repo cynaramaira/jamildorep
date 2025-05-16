@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Na terra de Aécio, Eduardo Campos encontrará palanque esvaziado em Minas Gerais"
+date: 2014-07-08
+tags: eduardo campos,Minas Gerais,Terra
+author: None
+---
+ Eduardo em caminhada pela Ceilândia para marcar o inicio da campanha a Presidencia da República. Foto: Alexandre Severo/divulgação PSB
+Da Agência Estado
+O ex-governador de Pernambuco e presidente nacional do PSB, Eduardo Campos, conseguiu impor uma candidatura própria do partido em Minas Gerais, mas deve encontrar um palanque esvaziado no segundo maior colégio eleitoral do país.
+O ex-vice-presidente do diretório socialista mineiro, Mário Assad, anunciou a desistência de disputar uma vaga na Câmara dos Deputados, bem como o afastamento da direção da legenda.
+O ex-ministro Walfrido dos Mares Guia já havia se desfiliado do PSB para assumir a coordenação da campanha da presidente Dilma Rousseff no Estado e os integrantes do Rede Sustentabilidade, liderados pelo ambientalista Apolo Heringer, afirmam que não estarão no palanque socialista. A justificativa é a forma como o ex-prefeito Tarcísio Delgado foi escolhido para representar o partido na disputa pelo governo estadual.
+Em carta enviada à direção do PSB no fim de semana, Assad afirmou que desiste da candidatura a deputado federal porque o PSB mineiro tornou-se "terra de ninguém, onde a unidade e postura ideológica tornaram-se meras postulações abstratas". Criticou também os correligionários que "dizem e fazem o que querem" e "servem a quaisquer senhores".
+O prefeito de Belo Horizonte, Marcio Lacerda (PSB), declarou que estará ao lado do candidato tucano ao governo, o ex-ministro Pimenta da Veiga, por "coerência", já que foi reeleito em aliança com o PSDB capitaneada pelo senador tucano Aécio Neves, adversário de Eduardo Campos na corrida presidencial.
+Os tucanos também têm o apoio da bancada socialista na Assembleia Legislativa, além de lideranças do PSB como o presidente do Atlético-MG, Alexandre Kalil, que tentará conquistar uma vaga na Câmara embalado pelo título do Galo na Taça Libertadores em 2013.
+Mário Assad também afirmou ter sido "coerente" com os "ideais de socialismo e liberdade", mas disse ter sido "voz quase solitária nas articulações políticas" do PSB, que enfrenta quadro de "completa desagregação". O partido rachou em meio à escolha do candidato ao governo. O próprio presidente do diretório mineiro do PSB, deputado federal Júlio Delgado, havia declarado apoio ao candidato tucano ao governo até lançar a própria pré-candidatura para fazer frente a Apolo Heringer, que reivindicava a indicação da legenda para a disputa estadual.
+A candidatura de Tarcísio Delgado, que é pai de Júlio, foi decidida por uma comissão definida na convenção do partido. "Em nenhum momento agi com dissimulação de meus propósitos. Defendi a candidatura própria ao governo do Estado que se apresentasse como alternativa e não uma chapa escolhida a critério exclusivo do presidente da legenda, composta, inclusive, com figura sem expressão política", disse Assad. A chapa encabeçada por Tarcísio tem Sílvia Reis (PRTB) como candidata a vice-governadora e Margarida Vieira (PSB) para o Senado.
+WalfridoQuase um ano após ser trocado por Júlio Delgado na presidência do PSB mineiro por decisão de Eduardo Campos, o ex-ministro Walfrido dos Mares Guia pediu a desfiliação da legenda para se dedicar à campanha da presidente Dilma Rousseff. Amigo do ex-presidente Luiz Inácio Lula da Silva, o ex-ministro terá as funções de representar a candidatura petista em Minas e principalmente de atuar com lideranças regionais de partidos que apoiam a reeleição da presidente, mas, em Minas, integram a base de apoio ao PSDB, assim como aliança em torno de Pimenta, cuja coligação reúne 15 partidos.

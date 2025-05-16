@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Defesa Nacional poderá ouvir Jobim e Vannuchi sobre Comissão da Verdade"
+date: 2010-01-05
+tags: comissão mista,defesa,empoderamento,nacional
+author: None
+---
+A pol&ecirc;mica envolvendo a cria&ccedil;&atilde;o de uma comiss&atilde;o do governo para investigar crimes de tortura supostamente cometidos por agentes do regime militar (1964-1984) dever&aacute; ser debatida pela Comiss&atilde;o de Rela&ccedil;&otilde;es Exteriores e Defesa Nacional do Senado (CRE) em fevereiro. Foi o que informou nesta segunda-feira (4) o presidente do colegiado, senador Eduardo Azeredo (PSDB-MG). De acordo com o senador, o ministro da Defesa, Nelson Jobim, e o secret&aacute;rio dos Direitos Humanos, Paulo Vannuchi, dever&atilde;o ser convidados a explicar o caso.
+Eduardo Azeredo disse &agrave; Ag&ecirc;ncia Senado que a lei da Anistia (Lei 6.683/1979) foi um &quot;pacto de perd&atilde;o&quot;, uma consequ&ecirc;ncia do processo de redemocratiza&ccedil;&atilde;o do pa&iacute;s, que culminou com a elei&ccedil;&atilde;o de Tancredo Neves. Para o senador, se os crimes cometidos por militares tiverem que ser investigados, tamb&eacute;m dever&atilde;o ser aqueles cometidos pelas pessoas que optaram pela luta armada.
+- Existe um mal estar dentro das For&ccedil;as Armadas Brasileiras, que vivem hoje um momento muito diferente daquele do regime militar. Se forem abrir as investiga&ccedil;&otilde;es em rela&ccedil;&atilde;o aos que torturaram, teriam que abrir em rela&ccedil;&atilde;o aos que cometeram atentados contra soldados. Teriam que abrir investiga&ccedil;&otilde;es pelos dois lados - disse.
+A pol&ecirc;mica come&ccedil;ou no final de dezembro, quando o governo federal, assinou o decreto que cria o terceiro Programa Nacional dos Direitos Humanos (PNDH-3), cuja elabora&ccedil;&atilde;o foi coordenada pela Secretaria Especial dos Direitos Humanos, comandada por Vannuchi. Entre outros pontos controvertidos, o decreto prev&ecirc; a cria&ccedil;&atilde;o da &quot;Comiss&atilde;o Nacional da Verdade&quot;, para investigar as viola&ccedil;&otilde;es de direitos humanos cometidas no contexto da repress&atilde;o pol&iacute;tica promovida pela ditadura militar. Al&eacute;m disso, o decreto prop&otilde;e a revoga&ccedil;&atilde;o de leis remanescentes do per&iacute;odo militar &quot;que sejam contr&aacute;rias &agrave; garantia dos Direitos Humanos ou tenham dado sustenta&ccedil;&atilde;o a graves viola&ccedil;&otilde;es&quot;.
+A imprensa noticiou que o ministro da Defesa e os tr&ecirc;s comandantes das For&ccedil;as Armadas teriam amea&ccedil;ado entregar os cargos em fun&ccedil;&atilde;o desses pontos, que estariam sendo interpretados como uma proposta de revis&atilde;o da lei de Anistia.&nbsp;
+
+&nbsp; 

@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Humberto e Aécio trocam críticas e acusações no plenário do Senado"
+date: 2015-07-08
+tags: Humberto Costa,Plenário Virtual,Senado
+author: None
+---
+ Foto: divulgação
+Da ABr - O líder do PT no Senado, Humberto Costa (PT-PE), leu nesa terça (7), em plenário, uma nota da bancada do paplertido com críticas ao PSDB e seu presidente, senador Aécio Neves (MG), por uma postura que classificou de “golpista” em relação ao governo da presidenta Dilma Rousseff. Em resposta, Aécio foi à tribuna e disse, em discurso, que se Dilma não conseguir cumprir seu mandato, "não será por culpa da oposição, será porque burlou a lei”.
+No texto, o líder petista diz que o partido de oposição tenta dar um golpe quando se une à imprensa para tentar criminalizar o PT e a presidenta no Tribunal de Contas da União por “ações contábeis normais, que sempre foram feitas em suas administrações”.
+A alegação se refere ao relatório do TCU que aponta como ilegais manobras fiscais feitas pelo governo no ano passado, que vêm sendo chamadas de “pedaladas” e pelas quais a presidenta Dilma Rousseff pode ter a prestação de contas rejeitada pelo Congresso.
+Humberto Costa também classificou como “moral de ocasião” a postura dos tucanos ao tentarem criminalizar as doações de empresas ao PT nas últimas eleições, quando o PSDB também teria recebido doações das mesmas empresas.
+“Se o PSDB quer criminalizar doações legais e transparentes de campanhas feitas ao PT, quando se sabe que aquele partido oposicionista recebeu, em valores maiores, doações feitas pelas mesmas empresas, isso é golpe, sim. O Estado Democrático de Direito não admite o uso cínico, hipócrita e oportunista da moral de ocasião e a utilização despudorada dos 'dois pesos e duas medidas', como aconteceu no caso do mensalão do PSDB”, afirma a nota.
+Em critica direta ao senador Aécio Neves, derrotado em segundo turno por Dilma nas últimas eleições, a nota dos senadores petistas o acusa de estar numa “busca frenética pelo “quanto pior, melhor” e pela ingovernabilidade da presidenta.
+“Aécio Neves, que parece cada vez mais inspirado pelo espírito golpista da UDN de Carlos Lacerda, deveria se inspirar mais na figura democrática e visceralmente antigolpista de seu avô, Tancredo Neves”, diz o texto lido em plenário pelo líder do PT.
+
+Logo após a conclusão da leitura por Humberto Costa, foi a vez de o presidente do PSDB subir à tribuna para responder as acusações. Aécio Neves ressaltou que seu partido quer apenas a independência das instituições de controle e fiscalização do governo, como TCU e a Polícia Federal, e que não trabalha por uma crise institucional no país. “Nós dissemos com todas as letras que o PSDB não é e jamais quererá ser protagonista de qualquer movimento de instabilidade da vida pública brasileira”, afirmou.
+Ele lembrou que as denúncias sobre o pagamento de propina por meio de doações de campanha não foram feitas pelos senadores do PSDB, mas por um “antigo companheiro de jornada” do PT, fazendo referência aos delatores da Operação Lava Jato, como o ex-diretor da Petrobras Paulo Roberto Costa e o doleiro Alberto Yousseff, entre outros. Segundo Aécio Neves, foram essas delações que apontaram que o caixa da campanha petista em 2010 foi “irrigado por recursos desviados da Petrobras”.
+“Não somos golpistas, se a presidente tiver condições de cumprir o seu  mandato presidencial, que o faça. Essa é a regra. E, se não conseguir cumpri-lo, não será por culpa da oposição, será porque burlou a lei”, afirmou.
+Ressaltando que agirá “dentro dos limites da legalidade”, o senador tucano disse que irá “defender o país” e acusou o PT de ter “tomado de assalto” a maior empresa do país, de onde saiu o maior caso de corrupção da história brasileira.
+“Ao refutar de forma veemente as insinuações do líder do governo Humberto Costa, tranquilizo os brasileiros, porque se somos hoje minoria nesta Casa, somos ampla maioria no seio da sociedade brasileira. Uma sociedade que não acredita mais na palavra da sua presidente da República, que se sente enganada, lesada por um partido político que tomou de assalto a nossa maior empresa e institucionalizou ali o maior caso de corrupção da nossa história contemporânea”, concluiu Aécio Neves.

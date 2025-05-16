@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Vírus zika já começa a prejudicar turismo no Brasil"
+date: 2016-02-10
+tags: brasil,turismo,vírus
+author: None
+---
+
+Agência O Globo
+A epidemia de zika já começa a provocar os primeiros cancelamentos e adiamentos de pacotes de viagem e de reservas de hotéis no Brasil. Os pedidos de cancelamento ou postergação de viagens partem de turistas estrangeiros, em sua maioria de grávidas e acompanhantes, mas ainda representam menos de 1% dos pacotes vendidos, segundo operadoras de turismo.
+O movimento foi detectado pela Embratur, empresa responsável pela promoção do Brasil no exterior. Para esclarecer o turista internacional e evitar uma onda de desistências, a empresa enviará no próximo dia 8 um comunicado a operadores, agentes de turismo e parceiros — em português, inglês e espanhol — com esclarecimentos sobre o vírus e recomendações aos viajantes.
+A Blumar, uma das maiores operadoras de turismo que trabalham com turistas internacionais, vem registrando cancelamentos ou adiamentos de pacotes pontuais há duas semanas. Segundo a empresa, a divulgação por empresas aéreas de que vão isentar grávidas de taxas para remarcação de passagens para países afetados pela epidemia contribuiu para a decisão dos clientes, uma vez que o transporte aéreo costuma ser a parte mais cara da viagem.
+A concorrente Del Bianco também registrou cancelamentos e adiamentos de viagens para o Brasil por causa da zika, especialmente após a Organização Mundial da Saúde (OMS) decretar emergência mundial devido aos casos de microcefalia causados pelo vírus. As duas operadoras informam que os cancelamentos e adiamentos representam menos de 1% dos pacotes vendidos, e que o movimento do carnaval não foi afetado.
+Vinícius Lummertz, presidente da Embratur, disse que a empresa vem monitorando notícias de cancelamentos ou adiamentos de viagens ao Brasil em seus 13 escritórios no exterior. Segundo ele, foram detectadas postergações de pacotes de turistas grávidas na Argentina e no Chile. Ele não crê que esses casos terão impacto significativo sobre o turismo no Brasil, mas reconhece que, caso sejam comprovadas outras formas de contágio da doença, o efeito sobre o fluxo de turistas será maior. Na última sexta-feira, a Fiocruz disse ter detectado presença ativa do zika na saliva e urina, com potencial de infecção.
+— Por enquanto, ainda é uma hipótese. Mas se tiver outras possibilidades (de contágio) comprovadas, o impacto sobre o turismo pode ser maior. Até agora, verificamos adiamentos pontuais de viagens feitos por grávidas — afirmou Lummertz.
+Na Região Nordeste, onde efeitos do zika têm sido registrados em maior proporção, a rede hoteleira já sente a preocupação dos viajantes, embora negue efeito expressivo nas operações. A espanhola Iberostar, por exemplo, que tem dois grandes resorts na Praia do Forte, na Bahia, vem recebendo pedidos de adiamento de reservas e alguns raros cancelamentos.
+— O impacto no total de reservas é irrelevante. Mas há, principalmente, mulheres grávidas preocupadas em se expor ao risco. Quando procurados, orientamos nossas equipes a listar as medidas que adotamos para impedir a proliferação do mosquito nos resorts e arredores — disse Orlando Giglio, diretor da Iberostar no Brasil.
+PREJUÍZOS À IMAGEM DO PAÍS
+Para Artur Maroja, da Associação Brasileira da Indústria de Hotéis (ABIH) de Pernambuco, com o grande volume de informações sobre prevenção e combate ao mosquito transmissor, o efeito entre os viajantes domésticos é menor.
+— O turista tem procurado os hotéis e há pedidos de adiamento e de cancelamentos, mas em número reduzido. E transmitimos uma mensagem realista, com atenção especial às grávidas. Se uma gestante planeja viajar, deve consultar seu médico e, depois, tomar a decisão. Achar que não haverá impacto é ingenuidade.
+No Rio, ainda não há registros de cancelamentos de reservas devido a essa motivação, segundo o presidente da ABIH-RJ, Alfredo Lopes.
+Especialistas alertam que a zika mancha a imagem do país, com reflexos para o turismo:
+— Aspectos como os ligados à segurança têm forte impacto na imagem do país no exterior. Mas a dengue e a zika elevaram isso a um novo patamar. É preciso agir com responsabilidade e rapidez, pois é uma situação que queima a imagem do Brasil e de seus diversos destinos lá fora — disse Trícia Neves, sócia da Mapie, consultoria especializada no setor hoteleiro.

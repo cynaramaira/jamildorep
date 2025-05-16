@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Recife retomas aulas presenciais na rede municipal de ensino"
+date: 2021-07-23
+tags: Educação
+author: JAMILDO MELO
+---
+No segundo dia de aulas presenciais na Rede Municipal do Recife, o prefeito Jo&atilde;o Campos visitou a Escola Municipal Reitor Jo&atilde;o Alfredo, na Ilha do Leite, ao lado do secret&aacute;rio de Educa&ccedil;&atilde;o, Fred Amancio.&nbsp;
+O gestor municipal foi ver o funcionamento da unidade de ensino, com pias para os alunos lavarem as m&atilde;os, t&oacute;tens com &aacute;lcool em gel e tamb&eacute;m os cronogramas, fixados na parede, esclarecendo o esquema de rod&iacute;zio para os alunos, evitando a aglomera&ccedil;&atilde;o em tempos de pandemia.
+Ele aproveitou para conversar com professores, alunos e funcion&aacute;rios da escola.
+A retomada das aulas presenciais nas unidades escolares ser&aacute; realizada em etapas, contemplando neste primeiro momento o retorno dos estudantes do 8&ordm; e 9&ordm; do Ensino Fundamental Anos Finais.
+&ldquo;Voltamos &agrave;s aulas presenciais desde ontem, come&ccedil;ou com 8&deg; e 9&deg; ano, na pr&oacute;xima semana haver&aacute; um novo grupo e daqui a 15 dias mais um novo grupo. Um retorno seguro, prezando sempre pelos cuidados sanit&aacute;rios e as recomenda&ccedil;&otilde;es de sa&uacute;de. Mas n&atilde;o podemos abrir m&atilde;o de garantir que o lugar da crian&ccedil;a e do jovem seja na escola. Apenas 16% das cidades brasileiras est&atilde;o tendo aulas no modo presencial e Recife &eacute; uma delas&rdquo;, esclareceu Jo&atilde;o Campos na ocasi&atilde;o.
+&ldquo;H&aacute; um esquema de rod&iacute;zio, garantindo que a escola vai estar com a ocupa&ccedil;&atilde;o adequada. E os alunos que n&atilde;o est&atilde;o aqui no presencial, fazem parte do Educa Recife que &eacute; o nosso programa de ensino h&iacute;brido que tem aulas remotas, e 42 mil tablets ser&atilde;o distribu&iacute;dos&rdquo;, acrescentou ele.
+Na ter&ccedil;a-feira (27) retornar&atilde;o &agrave;s salas de aula os estudantes do 4&ordm; ao 7&ordm; do Ensino Fundamental Anos Iniciais e Finais. E na &uacute;ltima etapa, no dia 03 de agosto, a retomada contemplar&aacute; os estudantes do 1&ordm; ao 3&ordm; do Ensino Fundamental Anos Iniciais, Educa&ccedil;&atilde;o Infantil (Creche e Pr&eacute;-escola) e as turmas de Educa&ccedil;&atilde;o de Jovens e Adultos (EJA).
+A Prefeitura do Recife, por meio da Secretaria de Educa&ccedil;&atilde;o do Recife, garantiu ter realizado a aquisi&ccedil;&atilde;o de materiais e equipamentos, necess&aacute;rios para cumprimento do protocolo sanit&aacute;rio e prote&ccedil;&atilde;o contra a Covid-19.
+Foram adquiridos mais de 300 mil m&aacute;scaras; 7.500 face-shields; mais de 600 term&ocirc;metros; al&eacute;m de totens para &aacute;lcool gel; dispensers; tapetes sanitizantes; pulverizadores; portas papel toalha, entre outros.
+Al&eacute;m disso, foram instaladas novas pias em todas as escolas e creches municipais para que a higieniza&ccedil;&atilde;o das m&atilde;os seja realizada com frequ&ecirc;ncia, al&eacute;m de interven&ccedil;&otilde;es na estrutura para fortalecer o acesso &agrave; &aacute;gua, incluindo a amplia&ccedil;&atilde;o da capacidade de armazenagem em v&aacute;rias unidades.

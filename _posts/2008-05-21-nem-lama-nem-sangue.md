@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Nem lama nem sangue"
+date: 2008-05-21
+tags: Sangue
+author: None
+---
+Por Luciano Siqueira
+Pr&oacute;ximo das conven&ccedil;&otilde;es partid&aacute;rias, que acontecer&atilde;o em junho, tornam-se mais n&iacute;tidos os contornos da disputa eleitoral que se avizinha. Candidaturas se afirmam, celebram-se coliga&ccedil;&otilde;es. E vem &agrave; tona a d&uacute;vida sobre o car&aacute;ter amistoso ou b&eacute;lico do relacionamento entre os candidatos, o que motiva a id&eacute;ia, por parte de alguns, de um &quot;pacto de n&atilde;o agress&atilde;o&quot; &ndash; uma redund&acirc;ncia, pois a conviv&ecirc;ncia democr&aacute;tica por si mesma pressup&otilde;e o respeito &agrave;s diferen&ccedil;as e a boa e salutar pol&ecirc;mica em torno de id&eacute;ias.&nbsp;
+Provavelmente a expectativa de que desaforos possam obscurecer o debate e que a lama e o sangue venham a contaminar a peleja se deve a uma avalia&ccedil;&atilde;o err&ocirc;nea que prosperou em certos c&iacute;rculos, c&aacute; na prov&iacute;ncia, desde a campanha de 1985, no Recife. Nela ocorreu uma sensacional invers&atilde;o de inten&ccedil;&otilde;es de votos que deu a vit&oacute;ria ao candidato Jarbas Vasconcelos e derrotou o deputado S&eacute;rgio Murilo Santa Cruz, que faltando cerca de vinte dias para o pleito liderava a disputa. 
+Vale lembrar. O deputado S&eacute;rgio Murilo era acusado, atrav&eacute;s de panfletos ap&oacute;crifos, de ser o autor material de um assassinato. O comando de sua campanha resolveu esclarecer o assunto atrav&eacute;s do r&aacute;dio e da TV, dando-lhe a resson&acirc;ncia no eleitorado que os panfletos n&atilde;o alcan&ccedil;ariam, um golpe decisivo na candidatura do peemedebista. 
+Como &eacute; comum acontecer, pol&iacute;ticos e marqueteiros fizeram uma leitura equivocada do epis&oacute;dio, concluindo que para vencer quase sempre &eacute; necess&aacute;rio atingir o advers&aacute;rio com ataques de natureza pessoal. &quot;Precisamos de um esc&acirc;ndalo o de uma den&uacute;ncia pesada&quot;, dizem quando em dificuldade. Recentemente vivemos experi&ecirc;ncias emblem&aacute;ticas, nesse sentido. 
+Na campanha de 2000, no Recife e em Olinda, Jo&atilde;o Paulo e Luciana Santos foram duramente atacados (pelas campanhas de Roberto Magalh&atilde;es e Jacilda Urquiza, respectivamente), embora sobre ambos nada houvesse, como n&atilde;o h&aacute; at&eacute; hoje, que pudesse suscitar d&uacute;vidas. Tamb&eacute;m na &uacute;ltima campanha para governador Humberto Costa foi impecavelmente atacado por causa de um inqu&eacute;rito policial tendencioso a prop&oacute;sito de sua passagem pelo minist&eacute;rio da Sa&uacute;de. 
+Os que agrediram perderam as elei&ccedil;&otilde;es. Mas a tese de que a lama e o sangue s&atilde;o armas poderosas continua em vigor. Quest&atilde;o de DNA de quem assim procede. 
+Na campanha que se iniciar&aacute; em julho temos tudo para promover um debate esclarecedor e dar o bom exemplo do respeito &agrave;s diferen&ccedil;as, propiciando que o eleitor julgue o perfil, a hist&oacute;ria de lutas e as propostas de cada candidato e assim fa&ccedil;a a sua escolha livremente. 
+Nada justifica a agress&atilde;o pessoal. Paulo Freire dizia: &quot;Se tu diferes de mim, me enriqueces.&quot; Que assim seja.&nbsp;&nbsp;
+PS: Luciano Siqueira &eacute; vice-prefeito e pr&eacute;-candidato do PCdoB &agrave; Prefeitura do Recife, escreve para o Blog &agrave;s quartas, dentro da s&eacute;rie &quot;Recife 2008. Debate com os prefeitur&aacute;veis&quot;. 

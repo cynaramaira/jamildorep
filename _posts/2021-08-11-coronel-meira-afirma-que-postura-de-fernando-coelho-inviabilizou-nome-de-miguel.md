@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Coronel Meira afirma que postura de Fernando Coelho inviabilizou nome de Miguel Coelho ao Governo do Estado"
+date: 2021-08-11
+tags: ptb, veto, eleições 2022
+author: JAMILDO MELO
+---
+O Coronel Meira, que sempre se apresenta como ferrenho Bolsonarista, disse nesta quarta-feira (11), de Bras&iacute;lia/DF, que a candidatura do Prefeito de Petrolina, Miguel Coelho (MDB/PE) ao Governo de Pernambuco, teria se inviabilizado completamente depois que seu irm&atilde;o, o deputado Federal Fernando Filho (DEM/PE), votou contra a PEC 135/2019 do "Voto Impresso Audit&aacute;vel" no Brasil, de autoria da deputada Federal e presidente da CCJ da C&acirc;mara Bia Kicis (PSL/DF).
+
+    
+            Filho de líder do governo Bolsonaro votou contra voto impresso
+        
+
+"Conversei com v&aacute;rias lideran&ccedil;as pol&iacute;ticas do pa&iacute;s e recebi diversas liga&ccedil;&otilde;es de conservadores de Pernambuco, que estavam, assim como eu, revoltados com o posicionamento contr&aacute;rio dos Coelhos, junto &agrave; pauta que defende a auditagem e mais seguran&ccedil;a nas urnas eletr&ocirc;nicas do Brasil. &Eacute; um absurdo que o filho do l&iacute;der do Governo no Senado atue contra o 'voto impresso', uma das bandeiras do presidente Jair Bolsonaro em prol da lisura e da democracia nas elei&ccedil;&otilde;es futuras em nossa Na&ccedil;&atilde;o! Esta PEC visa, fundamentalmente, aprimorar, assegurar que o voto do eleitor foi realmente para quem ele votou! Ficou feio para todos os parlamentares que foram contra", disse Meira.
+O Senador Fernando Bezerra Coelho (MDB/PE) &eacute; l&iacute;der do Governo federal no Senado e pai do Prefeito de Petrolina, Miguel Coelho al&eacute;m do deputado federal Fernando Bezerra Filho.
+"Com sua postura, Fernando Filho complicou o acerto de apoio do Governo Federal. O prefeito Miguel Coelho vem h&aacute; tempos tentando viabilizar sua candidatura junto aos conservadores, por&eacute;m, sua fam&iacute;lia acabou de afundar qualquer pretens&atilde;o de alinhamento com o presidente e a direita", afirmou Meira.
+O novo PTB lembrou ainda que, na &uacute;ltima ter&ccedil;a-feira (10), o senador Fernando Bezerra Coelho se alinhou com os demais parlamentares que se manifestaram contr&aacute;rios &agrave; apresenta&ccedil;&atilde;o dos militares em Bras&iacute;lia.
+&ldquo;Estamos em trincheiras distintas, mas somos do parlamento brasileiro. Eu tenho uma hist&oacute;ria nesse Congresso Nacional, sou subscritor da Constituinte cidad&atilde;. Eu aposto na democracia, eu aposto no estado de direito democr&aacute;tico. &Eacute; por isso que quero compartilhar as preocupa&ccedil;&otilde;es de todos que aqui reverberaram&rdquo;, falou FBC, l&iacute;der do governo.
+"&Eacute; lament&aacute;vel a postura do senador Fernando Bezerra Coelho, que tenta supor que o presidente estaria tentando intimidar o congresso nacional. Como &eacute; sabido, a realiza&ccedil;&atilde;o deste evento ocorre todos os anos, e que o referido ato estava marcado h&aacute; muito tempo, por&eacute;m, por coincid&ecirc;ncia, o desfile caiu no mesmo dia da vota&ccedil;&atilde;o da PEC do voto impresso, na C&acirc;mara. A verdade &eacute; que a oposi&ccedil;&atilde;o usou disso para fazer seus estardalha&ccedil;os em forma de promo&ccedil;&atilde;o pol&iacute;tica, se vitimizando e acusando o presidente Jair Bolsonaro como sempre fizeram. S&atilde;o uns irrespons&aacute;veis; &eacute; absurdo o que eles est&atilde;o fazendo com o Governo e com a Na&ccedil;&atilde;o. O bolsonarismo em Pernambuco n&atilde;o marchar&aacute; com Miguel Coelho".

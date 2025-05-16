@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Lula mantém liderança folgada no Datafolha"
+date: 2006-09-13
+tags: Datafolha,liderança indígena,Lula
+author: None
+---
+Do Jornal do CommercioSÃO PAULO - O presidente Luiz Inácio Lula da Silva (PT), candidato da Coligação A Força do Povo (PT/PRB/PCdoB) à reeleição, venceria as eleições no primeiro turno, segundo pesquisa do Instituto Datafolha divulgada na noite de ontem pelo Jornal Nacional, da Rede Globo. Lula obteve 50% das intenções de voto, ante 51% no levantamento anterior, divulgado no último dia 5.Já o candidato tucano Geraldo Alckmin, da Coligação Por um Brasil Decente (PSDB/PFL), ficou com 28%, alta de um ponto percentual com relação à sondagem anterior, quando tinha com 27%. Num eventual segundo turno, Lula manteve os 55% de intenções, enquanto Alckmin passou de 37% para 38%. A candidata Helo?sa Helena (P-SOL), da Coligação Frente de Esquerda (P-SOL/PSTU/PCB), está com 9%. Os candidatos Cristovam Buarque (PDT) e Ana Maria Rangel (PRP), estão com 1%, enquanto que José Maria Eymael (PSDC) e o empresário Luciano Bivar (PSL) não totalizaram 1%. Votos em branco e nulos somaram 4% e indecisos totalizaram 6%. A margem de erro é de dois pontos percentuais. Indeferida pelo Tribunal Superior Eleitoral (TSE), a candidatura à Presidência da República de Ana Maria Teixeira Rangel pelo Partido Republicano Progressista (PRP) já atinge percentual idêntico ao do senador Cristovam Buarque (PDT), de 1%, segundo a pesquisa Datafolha.Leia mais aqui (assinantes JC e UOL). 

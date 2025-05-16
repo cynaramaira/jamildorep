@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Silvio Costa Filho diz que o pacto federativo de Paulo Guedes vai sair do papel"
+date: 2019-04-10
+tags: BuenosAires,Pacto Federativo,papelão,Paulo Guedes,silvio costa filho
+author: None
+---
+O deputado Silvio Costa Filho (PRB), presidente da Frente Parlamentar Mista em Defesa do Novo Pacto Federativo, participou nesta quarta-feira (10), de um painel na 22ª Marcha em Defesa dos Municípios, em Brasília.
+Durante o encontro, com mais de quatro mil prefeitos de todo o país, o parlamentar defendeu a importância do Novo Pacto para o crescimento dos estados e municípios do Brasil.
+O parlamentar disse acreditar que o tema deve entrar na ordem do dia do Congresso Nacional ainda neste primeiro semestre, como o repasse de 1% a mais do Fundo de Participação dos Municípios (FPM), a PEC 61/2015 – que foi aprovada no Senado Federal, a cessão onerosa, Lei Kandir, ISS, Lei das Licitações, Lei dos consórcios, entre outros.
+O deputado disse acredita que o Novo Pacto Federativo vai sair do papel.
+"Quero agradecer a todo o Congresso Nacional o privilégio de poder, neste momento histórico, presidir a frente parlamentar do Novo Pacto. Sei que hoje em dia quando a gente fala do pacto federativo, infelizmente muita gente não acredita que essa agenda vai sair do papel. O mandato que mais aprendi foi o de vereador. Desde então aprendi a ser um municipalista convicto. Disse ao ministro Paulo Guedes, na reunião que tive com ele, que o futuro do Brasil não está em Brasília, mas está sobretudo nos municípios do País. Ninguém pode falar em crescimento econômico, geração de emprego e renda, melhorias em áreas importantes, se não valorizarmos os municípios brasileiros. Ou a pirâmide se inverte ou os municípios vão quebrar”, afirmou.
+A XXII Marcha em Defesa dos Municípios, que iniciou nesta segunda-feira (08) tem a presença de cerca 8 mil participantes, entre prefeitos, vice-prefeitos e representantes de executivos municipais do Brasil.
+Segundo os organizadores, o evento promove o diálogo, com objetivo de construir um novo pacto federativo que permita enfrentar com eficiência a necessidade de ofertar para a população brasileira mais e melhores serviços públicos.
+"Quero propor que façamos uma visita ao presidente do Tribunal de Contas da União, José Múcio Monteiro, e ao Ministério Público Federal, para que o pacto não discuta apenas o aumento de receitas, mas valorize os prefeitos do Brasil. Uma agenda que valorize a todos. Temos que sair com um encaminhamento nessa direção. Estou confiando que esse pacto vai sair do papel. Do jeito que está fica ingovernável para os representantes dos municípios. Só vamos conseguir gerar emprego e renda se estimularmos o crescimento econômico dos municípios”, afirmou Silvio Costa Filho.
+O presidente da CNM, Glademir Aroldi, destacou a importância do trabalho da Frente no Congresso Nacional.
+"O deputado Silvio Costa Filho propôs ao ministro Paulo Guedes a criação de um grupo de trabalho para discutir o Pacto. A proposta foi aceita pelo ministro. A Frente em Defesa do Novo Pacto Federativo e a Frente Municipalista indicaram a participação da CNM. Quero agradecer e reconhecer porque isso é muito importante para nós. Os municípios terão vez e voz em um grupo dessa importância. Quero parabenizar o trabalho desenvolvido pelo deputado Silvio à frente desse grupo”, disse.

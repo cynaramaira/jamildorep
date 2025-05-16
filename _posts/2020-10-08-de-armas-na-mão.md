@@ -1,0 +1,13 @@
+---
+layout: post
+title: "De armas na mão"
+date: 2020-10-08
+tags: armas,Maomé VI
+author: None
+---
+Por Francisco Arid, em artigo enviado ao blog
+Nos últimos dias, foi noticiado um significativo aumento das candidaturas de policiais e/ou militares em relação às eleições anteriores. São sargentos, delegados, coronéis que fazem da segurança pública sua principal bandeira, muitos dos quais se aproveitando do “efeito Bolsonaro” para concorrer a uma vaga nas prefeituras e câmaras de vereadores por todo o país. No entanto, erra quem se apressa em condenar ou menosprezar esse fenômeno de forma generalizada, vendo-o necessariamente como um sinal dos retrocessos que o Brasil está vivendo.
+Em primeiro lugar, o fato de que tantos candidatos dão tamanha atenção à segurança pública mostra que essa é uma preocupação real da população – afinal, o Brasil é um país com altíssimos índices de criminalidade e violência. Os discursos populistas e violentos (que conhecemos da já consolidada “bancada da bala” e dos discípulos do bolsonarismo) de muitos desses candidatos devem ser repudiados, é claro, mas é importante lembrar que, se chegamos a esse ponto, é porque a segurança pública foi um tema negligenciado ou sucateado por vários governos anteriores, que inclusive adotaram medidas bem parecidas ao modelo militarista, punitivista e ineficaz defendido por partidos de direita.
+Entretanto, não é somente por meio desses partidos que são lançadas candidaturas de policiais e/ou militares: também há, na área da segurança pública, candidatos com propostas progressistas que enfrentam o modelo vigente. Se queremos combater o autoritarismo que toma conta da política e da polícia no Brasil, não podemos entregar à direita punitivista o monopólio do debate sobre segurança pública. Por isso, a existência de candidaturas que disputam essa narrativa e apresentam alternativas viáveis e democráticas é algo a ser visto com bons olhos.
+O Brasil é um país extremamente violento e autoritário. Por isso, em vez de condenarmos a priori a presença de policiais nas eleições, é essencial que levemos a sério as preocupações da população e nos informemos acerca dos candidatos. A vitória de um modelo alternativo de segurança pública não pode depender de discursos fáceis e promessas vazias, mas de planejamento, propostas concretas e resultados.
+Francisco Arid é articulista da Saíra Editorial e estudante de Ciência Política na Universidade de Marburg, na Alemanha

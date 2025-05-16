@@ -1,0 +1,18 @@
+---
+layout: post
+title: "STF barra abono de férias acima de um terço para magistrados estaduais"
+date: 2018-09-12
+tags: abono salarial,barra,Férias,rodovias estaduais
+author: None
+---
+Entidades de magistrados entraram com pedido no Supremo Tribunal Federal (STF) para anular ato do Conselho Nacional de Justiça (CNJ) para limitar o abono de férias dos juízes a apenas um terço da remuneração mensal. Em alguns Estados, leis locais previam dois terços, ou até três terços de abono de férias, ao contrário da maioria dos trabalhadores brasileiros, que recebem apenas um terço, pela legislação trabalhista.
+Por maioria de votos, a Segunda Turma do STF manteve decisão do ministro Dias Toffoli que assentou a validade de ato do CNJ que determinou aos Tribunais de Justiça o envio de projetos de lei para uniformizar o pagamento do terço constitucional de férias aos magistrados estaduais.
+No julgamento de agravo regimental no Mandado de Segurança (MS) 31677, nesta terça-feira (11), o colegiado concluiu que o CNJ pode determinar a correção de ato do tribunal local que, embora respaldado por legislação estadual, se distancie da interpretação dada pelo Supremo aos ditames constitucionais.
+O mandado de segurança foi impetrado pela Associação dos Magistrados Brasileiros (AMB), pela Associação dos Magistrados do Amapá (Amaap) e pela Associação dos Magistrados do Espírito Santo (Amages) contra a decisão do CNJ que, ao constatar a variação dos valores pagos a magistrados estaduais a título de abono de férias, estabeleceu como responsabilidade dos Tribunais de Justiça a elaboração e o envio de projeto de lei às respectivas Assembleias Legislativas para limitar a verba ao patamar mínimo estabelecido no inciso XVII do artigo 7º da Constituição Federal.
+No STF, as entidades apontaram ilegalidade, inconstitucionalidade e desvio de finalidade no ato do Conselho e destacaram que o dispositivo constitucional estabelece como direito dos trabalhadores urbanos e rurais o “gozo de férias anuais remuneradas com, pelo menos, um terço a mais do que o salário normal”.
+Em setembro de 2016, o ministro Dias Toffoli negou o mandado de segurança, levando as associações a recorrer da decisão monocrática. O agravo começou a ser julgado em junho de 2017, quando o relator votou pelo seu desprovimento.
+O julgamento foi retomado nesta terça-feira (11) com o voto-vista do ministro Ricardo Lewandowski no sentido do provimento do agravo. Segundo seu entendimento, o CNJ extrapolou suas atribuições e interferiu indevidamente na competência dos estados.
+“Um órgão administrativo não pode impor a um membro de um Poder de Estado a elaboração de projeto de lei com conteúdo definido”, afirmou Lewandowski.
+Prevaleceu, no entanto, o voto proferido pelo relator no início do julgamento. Na ocasião, o ministro Dais Toffoli ressaltou que a decisão do CNJ se alinha à jurisprudência do Supremo acerca da exaustividade das vantagens concedidas aos juízes pela Lei Orgânica da Magistratura Nacional (Loman) e também quanto à uniformidade em âmbito nacional dos direitos dos magistrados.
+O ministro afirmou ainda que o CNJ não extrapolou suas atribuições enquanto órgão de controle da atuação administrativa e financeira do Poder Judiciário (parágrafo 4º do artigo 103-B da Constituição Federal). Por isso, não procedem as alegações de que teria agido no controle de constitucionalidade da lei estadual.
+Acompanharam o voto do relator os ministros Edson Fachin e Gilmar Mendes.

@@ -1,0 +1,19 @@
+---
+layout: post
+title: "STJ acovardado? Ministro responde a Lula e diz que Brasil precisa de muitos Moros"
+date: 2016-03-17
+tags: brasil,Lula,Ministro
+author: None
+---
+
+O ex-presidente Lula pode ter despertado a ira dos homens de caráter deste País, que parecem estar perdendo o medo de abrir a boca.
+Nesta quinta, o ministro João Otávio de Noronha, presidente da 3ª turma do STJ, proferiu exaltado discurso na manhã contra as acusações do ex-presidente Lula de que o STJ estaria acovardado. As palavras do ex-presidente foram divulgadas a partir da decisão do juiz Moro de derrubar o sigilo de interceptação telefônica de Lula.
+No STF, Celso de Mello, decano da corte, está neste momento dando uma resposta pública ao ex-ministro Lula, em audiência pública no STF. O ex-presidente disse que estava a corte acovardada, pela operação Lava Jato.
+Veja abaixo o texto do ministro João Otávio de Noronha, em discurso no STJ nesta quinta
+“O ex-presidente, nas gravações reveladas por sua voz conhecida, dizia que o STJ estava acovardado. Com a devida vênia, não estamos acovardados. E nunca estivemos. E não estamos acovardados porque colocamos o dedo na ferida para investigar todos aqueles que se dispuseram a praticar atos ilícitos e criminosos. Essa Casa não é uma Casa de covardes, é uma Casa de juízes íntegros, que não recebe doação de empreiteiras. Não se alinha a ditaduras da América do Sul, concedendo benefícios a ditadores e amigos políticos que estrangulam as liberdades. Ontem devia ter saído uma nota desta Casa manifestando sua posição. Mas como não saiu tomo a liberdade de fazê-lo.
+ Brasília- DF 17-03-2016 Presidenta Dilma durante posse do ministro Lula e outros ministros.Foto Lula Marques/Agência PT
+É estarrecedor a ironia, o cinismo dos que cometem o delito e querem se esconder atrás de falsa alegada violação de direitos. Não se nega os fatos e porque não tem como negar o que está gravado. Essa Casa tem o perfil de homens isentos, decentes, e se alguns foram indicados por este ou aquele presidente, a eles nenhum favor deve. É estarrecedor ouvir o que ouvi ontem. Não me envergonho de ser brasileiro. Me envergonho de ter algumas lideranças políticas que o país tem. Jamais poderia me calar diante de uma acusação tão grave. Mostra a pretensão ditatorial, o caráter, a arrogância de quem pronunciou tais palavras.
+A atitude do juiz Moro, gostem ou não, certa ou errada, revelou a podridão que se esconde atrás do poder. Se alguns caciques do Judiciário se incomodam ou invejam, lamento. Moro não é famoso porque está na imprensa, mas porque julgou uma causa que tinha como partes autoridades brasileiras. O Brasil precisa de muitos Moros e nós do Judiciário temos que garantir a justiça de 1º grau. Pena que a liderança do Judiciário brasileiro tenha se omitido ou está se omitindo na defesa da justiça de 1º grau. É uma crise de liderança que permite este tipo de ataque. A nós cabe a tarefa de garantir a prevalência da ordem jurídica, processando e condenando todos que efetivamente se mostrarem culpados.
+Nenhum sigilo que se estabelece no processo é em beneficio do réu, e sim da ordem pública, da investigação. E não é o fato deste ou daquele cidadão ter ocupado cargo de presidente da República ou ser ministro que justifique tratamento diferenciado.
+O Brasil é maior que todos estes indivíduos, que todos os partidos políticos, que todos os presidentes da República. [TEMOS QUE ]saudar o juiz Moro pela coragem e bravura. Que os juízes Federais têm demonstrado a mesma bravura. E continuemos com a coragem de pôr a mão naqueles que denigrem a imagem do Brasil e cometem delitos.
+Lutamos para que o rico, criminoso, não se torne ministro desta República."

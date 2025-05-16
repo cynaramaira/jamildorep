@@ -1,0 +1,55 @@
+---
+layout: post
+title: "Crise nas contas: Paulo Câmara pede liminar urgente no STF para obter mais recursos do governo Bolsonaro"
+date: 2022-10-05
+tags: jamildo, stf
+author: Jamildo Melo
+---
+Nas &uacute;ltimas semanas antes da elei&ccedil;&atilde;o, a imprensa pernambucana recebeu informa&ccedil;&otilde;es dando conta de que as contas do Estado estavam arrumadas e que o pr&oacute;ximo governador receberia o Estado equilibrado.
+Pois bem. 
+Sem alarde, em 30 de setembro, dias antes da elei&ccedil;&atilde;o, o governador Paulo C&acirc;mara (PSB) protocolou a&ccedil;&atilde;o judicial no Supremo Tribunal Federal (STF), pedindo uma liminar com urg&ecirc;ncia para obter mais recursos do Governo Federal. O motivo foi a grav&iacute;ssima queda da arrecada&ccedil;&atilde;o decorrente das novas al&iacute;quotas do Imposto de Circula&ccedil;&atilde;o de Mercadorias e Servi&ccedil;os (ICMS), ap&oacute;s nova legisla&ccedil;&atilde;o federal. As medidas federais foram adotadas por Bolsonaro para reduzir o pre&ccedil;o da gasolina.
+Na a&ccedil;&atilde;o, o Governo de Pernambuco informa que j&aacute; come&ccedil;ou a sentir os impactos da nova legisla&ccedil;&atilde;o federal em julho, mas que a queda foi determinante em agosto deste ano.
+A queda em julho e agosto, segundo o Governo do Estado, chegou em quase em R$ 600 milh&otilde;es.
+"Considerando-se apenas as perdas acima de 5% (cinco por cento), temos um impacto de R$ 597.850.186,48 (quinhentos e noventa e sete milh&otilde;es, oitocentos e cinquenta mil, cento e oitenta e seis reais e quarenta e oito centavos) nesses 02 (dois) meses, nos segmentos afetados", diz o Governo do Estado, na a&ccedil;&atilde;o.
+A proje&ccedil;&atilde;o oficial da SEFAZ &eacute; que, at&eacute; o final do ano, a queda da arrecada&ccedil;&atilde;o estadual prevista chege a R$ 1,8 bilh&atilde;o.
+"Somadas as perdas dos per&iacute;odos j&aacute; realizados, e as estimativas para os meses subsequentes, o impacto projetado na arrecada&ccedil;&atilde;o desses segmentos, no segundo semestre de 2022, &eacute; de R$ 1.882.077.706,68 (um bilh&atilde;o, oitocentos e oitenta e dois milh&otilde;es, setenta e sete mil, setecentos e seis reais e sessenta e oito centavos), de acordo com a autoridade fazend&aacute;ria pernambucana", informa o Estado, na a&ccedil;&atilde;o.
+O governo Paulo C&acirc;mara afirma, na a&ccedil;&atilde;o ao STF, que o Estado est&aacute; em situa&ccedil;&atilde;o de emerg&ecirc;ncia financeira - e n&atilde;o com as contas equilibradas, como era informado antes das elei&ccedil;&otilde;es.
+"Foi amplamente noticiada na m&iacute;dia, &iacute;nclito Ministro Relator, no m&ecirc;s de maio de 2022, a ocorr&ecirc;ncia de chuvas intensas no territ&oacute;rio pernambucano, principalmente em sua faixa litor&acirc;nea, abarcando a capital Recife e sua regi&atilde;o metropolitana, at&eacute; munic&iacute;pios do Agreste e Mata Sul. Infelizmente, houve mais de 130 (cento e trinta) mortes confirmadas em decorr&ecirc;ncia da chuva, at&eacute; o m&ecirc;s de julho de 2022, al&eacute;m de contundentes preju&iacute;zos materiais que deixaram desamparadas in&uacute;meras fam&iacute;lias", diz a a&ccedil;&atilde;o.
+Na a&ccedil;&atilde;o, o Estado diz que est&aacute; sem recursos para adotar as medidas contas as chuvas intensas.
+"Em rela&ccedil;&atilde;o ao Estado de Pernambuco, v&ecirc;-se que as perdas decorrentes da Lei Complementar 194/2022 potencializaram o impacto j&aacute; absorvido pelo or&ccedil;amento estadual quando do atendimento &agrave; situa&ccedil;&atilde;o de emerg&ecirc;ncia decorrente das chuvas intensas", diz a a&ccedil;&atilde;o.
+DO PEDIDO DE LIMINAR
+A nova legisla&ccedil;&atilde;o federal de ICMS diz que os estados-membros poder&atilde;o se compesar, com o pagamento da d&iacute;vida com o Governo Federal, caso a perda da arrecada&ccedil;&atilde;o for superior a 5% da arrecada&ccedil;&atilde;o total. O Estado alega que o Governo Federal supostamente estaria causando impedimentos para haver a compensa&ccedil;&atilde;o, da&iacute; o pedido de liminar.
+"O que n&atilde;o se pode admitir &eacute; a imposi&ccedil;&atilde;o de &oacute;bices para o pronto exerc&iacute;cio do direito subjetivo da efetuar a compensa&ccedil;&atilde;o, sob pena de se subtrair das medidas previstas no art. 3&ordm; da LC 194/2022 a m&iacute;nima efetividade. Como j&aacute; dito, os Estados dependem do fluxo de caixa para o cumprimento de suas obriga&ccedil;&otilde;es constitucionais, legais e contratuais", diz a peti&ccedil;&atilde;o de Pernambuco.
+A peti&ccedil;&atilde;o pede que o pr&oacute;prio Estado de Pernambuco apure as perdas j&aacute; agora e fa&ccedil;a a compensa&ccedil;&atilde;o de d&iacute;vidas com o Governo Federal de forma unilateral e imediata. Pernambuco quer tamb&eacute;m que o c&aacute;lculo de queda de 5% fique restrito a queda de arrecada&ccedil;&atilde;o apenas do ICMS.
+"O art. 2&ordm;, &sect; 1&ordm;, I e III deve ser interpretado de forma sist&ecirc;mica, admitindo a dedu&ccedil;&atilde;o mensal e imediata das perdas apuradas pelo pr&oacute;prio Estado, sem preju&iacute;zo do ulterior acertamento mediante processo que observe o disposto na Lei Federal 9.784/99, e que se baseie, inclusive, nos relat&oacute;rios resumidos de execu&ccedil;&atilde;o or&ccedil;ament&aacute;ria &ndash; RREO previstos na portaria", diz o texto da peti&ccedil;&atilde;o.
+Caso n&atilde;o seja dada a liminar, a compensa&ccedil;&atilde;o ficar&aacute; para 2023, para depois do Estado publicar o relat&oacute;rio resumido se execu&ccedil;&atilde;o or&ccedil;ament&aacute;ria (RREO) dos dois &uacute;ltimos meses de 2022.
+O Governo de Pernambuco pede a "necess&aacute;ria a concess&atilde;o da tutela de urg&ecirc;ncia, e posterior proced&ecirc;ncia da a&ccedil;&atilde;o, de modo a determinar que a apura&ccedil;&atilde;o da perda deve ser inicialmente imediata e unilateral, por parte do Estado".
+O governo Paulo C&acirc;mara argumenta ao STF a "abrupta e imprevis&iacute;vel perda de arrecada&ccedil;&atilde;o, imposta por iniciativa unilateral da Uni&atilde;o Federal, pondo em xeque o cumprimento das obriga&ccedil;&otilde;es legais do Estado, bem como a manuten&ccedil;&atilde;o de seus servi&ccedil;os essenciais".
+O pedido final, na a&ccedil;&atilde;o, &eacute; para o STF determinar "que a base cont&aacute;bil para apura&ccedil;&atilde;o das perdas considere a arrecada&ccedil;&atilde;o espec&iacute;fica das opera&ccedil;&otilde;es afetadas (combust&iacute;veis, energia el&eacute;trica, comunica&ccedil;&otilde;es e transportecoletivo), considerada a cada m&ecirc;s e corrigida monetariamente, desde 2021, pelo IPCA-E, calculando-se a partir de tal base a perda que supere os 5% (cinco por cento)".
+
+  
+  Barroso recebeu a a&ccedil;&atilde;o no STF - CARLOS MOURA/STF
+&nbsp;
+A a&ccedil;&atilde;o foi distribu&iacute;da no STF para o ministro Roberto Barroso, como relator.
+No site do STF, ainda n&atilde;o houve decis&atilde;o sobre a liminar urgente requerida.
+AUDI&Ecirc;NCIA NA ASSEMBLEIA
+O secret&aacute;rio estadual de Fazenda de Pernambuco, D&eacute;cio Padilha, esteve na Assembleia para falar da situa&ccedil;&atilde;o fiscal do Estado, nesta ter&ccedil;a-feira (4).
+Segundo mat&eacute;ria no site da Assembleia, o secret&aacute;rio teria dito que a queda na arrecada&ccedil;&atilde;o foi de apenas R$ 200 milh&otilde;es. N&atilde;o houve men&ccedil;&atilde;o da a&ccedil;&atilde;o judicial no STF, segundo o servi&ccedil;o de imprensa da Assembleia.
+Ap&oacute;s ouvir D&eacute;cio Padilha, o presidente da Comiss&atilde;o de Finan&ccedil;as, o deputado Alu&iacute;sio Lessa (PSB) chegou a considerar os n&uacute;meros de Pernambuco "animadores" e "lamentou narrativas injustas contra o governador Paulo C&acirc;mara".
+&ldquo;&Eacute; importante que essas informa&ccedil;&otilde;es cheguem ao conhecimento dos cidad&atilde;os. A pr&oacute;xima governadora vai receber um estado com as contas saneadas, dinheiro em caixa e obras em andamento&rdquo;, frisou Lessa.
+LEIA O PUBLICADO NO SITE OFICIAL DA ALEPE
+
+  
+  Redu&ccedil;&atilde;o de ICMS imposta por lei federal &eacute; uma das explica&ccedil;&otilde;es para queda na arrecada&ccedil;&atilde;o - Reprodu&ccedil;&atilde;o/Blog Imagem
+
+A Lei Complementar Federal n&ordm; 194/2022, que limita o Imposto sobre Circula&ccedil;&atilde;o de Mercadorias e Servi&ccedil;os (ICMS) em combust&iacute;veis, energia el&eacute;trica, comunica&ccedil;&otilde;es e transporte coletivo a al&iacute;quotas entre 17% e 18%, provocou uma queda real de R$ 200 milh&otilde;es na arrecada&ccedil;&atilde;o desse tributo em Pernambuco no &uacute;ltimo m&ecirc;s de agosto.
+A informa&ccedil;&atilde;o foi destacada nesta ter&ccedil;a (4) pelo secret&aacute;rio estadual da Fazenda (Sefaz), D&eacute;cio Padilha, em reuni&atilde;o virtual da Comiss&atilde;o de Finan&ccedil;as da Alepe. O gestor enfatizou, por outro lado, que o Estado apresenta o menor endividamento da hist&oacute;ria e espera terminar o ano com R$ 3,8 bilh&otilde;es em investimentos.
+A fala ocorreu durante a apresenta&ccedil;&atilde;o do Relat&oacute;rio de Gest&atilde;o Fiscal (RGF) do Governo de Pernambuco referente ao segundo quadrimestre de 2022, em cumprimento &agrave; Lei de Responsabilidade Fiscal (LRF).
+De acordo com o secret&aacute;rio, a arrecada&ccedil;&atilde;o de ICMS em agosto foi de R$ 1,7 bilh&atilde;o, ante R$ 2,2 bilh&otilde;es obtidos no mesmo m&ecirc;s do ano passado. Como naquele momento um programa estadual de descontos em d&iacute;vidas de ICMS havia resultado num acr&eacute;scimo de R$ 320 milh&otilde;es aos cofres do Estado, ele considerou uma queda real de R$ 200 milh&otilde;es.
+Padilha refor&ccedil;ou o impacto direto dessa diminui&ccedil;&atilde;o em servi&ccedil;os essenciais, j&aacute; que os estados s&atilde;o obrigados a gastar 12% das receitas em sa&uacute;de e 25% em educa&ccedil;&atilde;o.
+&ldquo;O ICMS foi reduzido de forma permanente e a compensa&ccedil;&atilde;o pelas perdas s&oacute; vai at&eacute; dezembro. O Governo Federal tem que encontrar uma forma de ajudar os estados&rdquo;, emendou.
+Conforme a exposi&ccedil;&atilde;o feita pelo secret&aacute;rio, a Receita Corrente L&iacute;quida (RCL) teve uma eleva&ccedil;&atilde;o de 20% no quarto bimestre de 2022 diante do mesmo per&iacute;odo do ano passado, passando de R$ 30 bilh&otilde;es para R$ 36 bilh&otilde;es. A receita com opera&ccedil;&otilde;es de cr&eacute;dito (empr&eacute;stimos) teve um salto de 1.229%, passando de R$ 97 milh&otilde;es para R$ 1,3 bilh&atilde;o.
+Pelo mesmo crit&eacute;rio de compara&ccedil;&atilde;o, as transfer&ecirc;ncias volunt&aacute;rias da Uni&atilde;o subiram de R$ 107 milh&otilde;es para R$ 338 milh&otilde;es. J&aacute; os investimentos ampliaram-se em 188%: de R$ 526 milh&otilde;es para R$ 1,5 bilh&atilde;o, sendo 70% desse montante de recursos pr&oacute;prios.
+
+  
+  Parte da a&ccedil;&atilde;o, no STF, fala at&eacute; em crise para pagar assist&ecirc;ncia aos desabrigados - PGE/reprodu&ccedil;&atilde;o

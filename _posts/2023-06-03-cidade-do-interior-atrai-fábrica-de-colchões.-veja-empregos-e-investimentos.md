@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Cidade do interior atrai fábrica de colchões. Veja empregos e investimentos"
+date: 2023-06-03
+tags: jamildo, indústria, emprego
+author: Jamildo Melo
+---
+A Colch&otilde;es Castor, uma das maiores fabricantes de colch&otilde;es do Brasil, anunciou a instala&ccedil;&atilde;o de uma f&aacute;brica em Pombos, no Agreste Central de Pernambuco. Executivos da empresa assinaram a declara&ccedil;&atilde;o de investimento na Secretaria de Desenvolvimento Econ&ocirc;mico de Pernambuco.
+A f&aacute;brica ser&aacute; constru&iacute;da em uma &aacute;rea de dois hectares com investimento inicial de R$ 6 milh&otilde;es. A unidade come&ccedil;ar&aacute; a operar no segundo semestre deste ano e gerar&aacute; inicialmente 10 empregos diretos, com expectativa de chegar a 40 vagas efetivas. A f&aacute;brica atender&aacute; toda a demanda do Nordeste e contar&aacute; com incentivos fiscais do governo de Pernambuco e apoio p&uacute;blico na implanta&ccedil;&atilde;o.
+O secret&aacute;rio de Desenvolvimento Econ&ocirc;mico, Guilherme Cavalcanti, destacou o compromisso do estado em atrair novos investimentos. &ldquo;Estamos focados em atrair investimentos para todas as regi&otilde;es do estado, gerando emprego e renda e melhorando a vida dos pernambucanos. Pernambuco se destaca por sua localiza&ccedil;&atilde;o privilegiada e ambiente de neg&oacute;cios atrativo para empres&aacute;rios que desejam se instalar aqui&rdquo;, afirmou.
+Andr&eacute; Teixeira Filho destacou o papel da Adepe em facilitar a instala&ccedil;&atilde;o de empresas no estado. &ldquo;A Adepe est&aacute; de portas abertas para empres&aacute;rios e investidores. Estamos aqui para facilitar e agilizar o processo de instala&ccedil;&atilde;o dessas empresas&rdquo;, disse.
+O CEO da Castor, H&eacute;lio Silva, ressaltou a import&acirc;ncia estrat&eacute;gica do Nordeste para a empresa. &ldquo;O Nordeste &eacute; uma regi&atilde;o muito estrat&eacute;gica para nosso neg&oacute;cio e estamos felizes em iniciar nossa expans&atilde;o a partir de Pernambuco. Aqui encontramos m&atilde;o-de-obra qualificada e pessoas dispostas a fazer dar certo&rdquo;, afirmou.
+SOBRE A COLCH&Otilde;ES CASTOR
+A Colch&otilde;es Castor &eacute; uma das maiores fabricantes de colch&otilde;es do Brasil com mais de 60 anos de hist&oacute;ria. Fundada em Ourinhos (SP), come&ccedil;ou como uma pequena f&aacute;brica de colch&otilde;es e estofados. Nos anos 1980 expandiu suas opera&ccedil;&otilde;es com uma nova f&aacute;brica em Ourinhos e diversificou sua linha de produtos incluindo travesseiros, estofados e m&oacute;veis. A empresa consolidou sua presen&ccedil;a no mercado brasileiro e expandiu suas atividades para o mercado internacional exportando seus produtos para diversos pa&iacute;ses.
+Atualmente oferece uma ampla variedade de produtos incluindo colch&otilde;es de molas, espumas e viscoel&aacute;sticos, travesseiros, estofados e acess&oacute;rios para o sono. A empresa continua investindo em inova&ccedil;&atilde;o e qualidade buscando sempre oferecer o melhor conforto e bem-estar aos seus clientes.

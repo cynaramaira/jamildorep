@@ -1,0 +1,9 @@
+---
+layout: post
+title: "Câmara vota recriação da Sudene e Sudam"
+date: 2006-11-27
+tags: Câmara,recriação,Sudamérica,sudene
+author: None
+---
+Da Agência Câmara
+Os projetos de lei complementar que recriam a Superintendência de Desenvolvimento do Nordeste (Sudene) e a Superintendência de Desenvolvimento da Amazônia (Sudam) entram na pauta do Plenário a partir de amanhã. A recriação da Sudene consta do PLP 76/03, do Poder Executivo. Deverá ir a votação o substitutivo do Senado à proposta, que já tem parecer do deputado Zezéu Ribeiro (PT-BA) aprovado por comissão especial.A recriação da Sudam consta do PLP 22/03, também do Poder Executivo. Os deputados devem votar o substitutivo do Senado. A matéria já foi aprovada na comissão especial, com parecer da deputada Ann Pontes (PMDB-PA). Uma das novidades do texto é a criação de comitês de gestão na superintendência, constitu?dos por representantes do governo e da sociedade, que funcionarão como instrumentos de formulação, supervisão e controle por parte dos cidadãos.Segundo o projeto, a Sudam vai elaborar - em conjunto com o Ministério da Integração Nacional e com as demais entidades federais de sua área de atuação - o Plano Regional de Desenvolvimento da Amazônia, a ser aprovado pelo Congresso por meio de um projeto de lei. Do plano constarão programas, projetos e ações necessárias para atingir os objetivos e as metas de desenvolvimento da Amazônia. Ele terá vigência de quatro anos e será revisado anualmente com o Plano Plurianual.A recriação da Superintendência de Desenvolvimento Sustentável do Centro-Oeste (Sudeco) está prevista no PLP 184/04, do Poder Executivo, que será votado pela primeira vez na Câmara. A matéria conta com substitutivo do deputado Sandro Mabel (PL-GO), aprovado por comissão especial. 

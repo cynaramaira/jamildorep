@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Sem conexão com Transposição, municípios pernambucanos continuam dependendo de água de poços"
+date: 2014-10-16
+tags: água,municípios,pernambucanos,Transposição
+author: None
+---
+ Água da Transposição do Rio São Francisco será levada pelo Ramal do Agreste para os municípios da região. A foto é em Floresta, no Sertão, em agosto. Foto: Marcela Balbino/Blog de Jamildo
+O descompasso entre a execução das obras e a distribuição da água da Transposição do Rio São Francisco levará cerca de 2 milhões de habitantes de 64 municípios pernambucanos a continuar dependendo de poços mesmo após a conclusão do empreendimento, prevista, depois de atrasos, para dezembro de 2015. O problema agora é que o Ramal do Agreste, obra ligando os municípios de Sertânia e Arcoverde para levar o volume do Eixo Leste a cidades atingidas ciclicamente pela seca, está sem previsão de ser concluída.
+O Ramal do Agreste é uma obra federal com edital de licitação lançado em abril, em passagem da presidente Dilma Rousseff (PT) por Serra Talhada, no Sertão do Pajeú. A previsão inicial de investimento era de R$ 1,3 bilhão, valor que pode ser modificado.
+LEIA TAMBÉM
+» Primeiros testes da transposição devem entrar no programa eleitoral de Dilma, diz Humberto Costa
+» Ministério diz que transposição passa por ajustes e vai funcionar “no apropriado tempo”
+» Falham primeiros testes da Transposição
+Entretanto "a licitação do Ramal do Agreste foi suspensa pelo próprio governo federal para ajustes no edital, após apontamentos feitos pelo TCU (Tribunal de Contas da União) no âmbito de um processo que ainda tramita no tribunal", como informa nota enviada pelo órgão ao Blog de Jamildo nesta quinta-feira (16). Isso quer dizer que, em processo auditado pelo TCU, foram apontados problemas e o Ministério da Integração Nacional, responsável pela obra, se antecedeu ao procedimento de suspensão do edital e interrompeu a licitação até a solução das questões - ainda não divulgadas.
+
+Em nota, a Integração Nacional afirmou que "o edital de licitação, cujos ajustes técnicos foram concluídos neste mês, segue para o departamento Jurídico e deverá ser relançado em novembro, estando, atualmente, na fase de formalização da documentação."
+O projeto de construção do Ramal do Agreste inclui duas barragens, seis túneis com 16 quilômetros de extensão, obras viárias para o acesso aos canais e uma adutora com mais de sete quilômetros de extensão. No total, são 71 quilômetros. Com a conclusão da obra, a água será retirada do Eixo Leste com vazão de 8 mil metros cúbicos por segundo, sendo metade para a Adutora do Agreste e a outra metade para o Reservatório do Ipojuca, em Arcoverde.
+O empreendimento já passou de mão em mão no poder executivo: proposto pela União, ficou com o Governo de Pernambuco quando, ainda durante a gestão de Fernando Bezerra Coelho (PSB) na pasta, contratos da transposição foram questionados. A responsabilidade voltou para o Ministério da Integração Nacional no momento em que esses contratos puderam ser refeitos, com o objetivo de dar mais celeridade ao processo. Segundo a nota enviada pela pasta, o Estado solicitou revogação do Termo de Compromisso firmado com o ministério.
+ Adutora do Agreste será abastecida por águas da Transposição. Foto: Compesa/Divulgação
+Paralelo a isso, a Companhia Pernambucana de Saneamento (Compesa) é a responsável pela construção da Adutora do Agreste, feita com 90% de repasses federais. Dos 430 quilômetros previstos em junho do ano passado, quando as obras começaram em Pesqueira, foram implantados 234 quilômetros, mais da metade do total. Inteira, a Adutora do Agreste tem início em Pesqueira e vai até Gravatá. Até agora, foram gastos R$ 434 milhões dos R$ 2 bilhões totais previstos.
+A Compesa estima que a implementação da primeira das três etapas aconteça até o fim do próximo ano, transportando água assim que os primeiros quilômetros ficarem prontos. Segundo o presidente da companhia, Roberto Tavares, a barragem de Alagoinha foi a primeira concluída, mas não começou a funcionar porque ainda não houve chuvas suficientes na região. O próximo trecho, de acordo com o gestor, é o de Itaíba, Águas Belas e Iati.
+
+Como depende da água do Eixo Leste da transposição, a adutora só funcionará plenamente com a conclusão do ramal, abastecendo as barragens no Agreste. Porém uma questão deve ser levada em consideração: a obra é mais simples do que o projeto para o São Francisco.
+Para contornar a situação, foram traçados planos alternativos, com o uso de poços e a injeção de água no sentido contrário. Embora o sentido planejado seja saindo de Pesqueira, enquanto o ramal não estiver pronto a água será obtida de poços e levadas em direção à cidade. Serão usados, por exemplo, poços que estão sendo furados em Tupanatinga e outras cidades. Também é considerada parte do plano a ampliação de barragens como a de Pedro Moura, em Belo Jardim, foi iniciada em junho. Assim, 14 dos 17 municípios beneficiados inicialmente poderão ser atendidos provisoriamente, dependendo da chuva, algo escasso na área.

@@ -1,0 +1,136 @@
+---
+layout: post
+title: "Veja fotos do polêmico Jair Bolsonaro no Recife"
+date: 2015-11-06
+tags: cerveja,foto,Jair Bolsonaro,Recife
+author: None
+---
+
+                        
+                            
+                                
+                                    
+                                    
+                                
+                                KW4F8504 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                KW4F8498 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                KW4F8495 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                KW4F8469 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                KW4F8466 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                KW4F8460 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                KW4F8417 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                Foto: Edmar Melo/JC Imagem - Foto: Edmar Melo/JC Imagem
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                Debate Site - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                CTH43I3WIAABlO5 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                Bolso - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                Foto: Reprodução/Twitter JC - Foto: Reprodução/Twitter JC
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                Foto: Blog Imagem - Foto: Blog Imagem
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                IMG_4815 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                IMG_4824 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                IMG_4822 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                IMG_4821 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                Bolsonaro 2 - 
+                            
+                        

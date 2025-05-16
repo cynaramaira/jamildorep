@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Celpe promove ações em Nova Descoberta nesta semana"
+date: 2011-05-02
+tags: Caso Banestado,Celpe,descobertas,Doações,Semana Santa,Sinovac
+author: None
+---
+Da Celpe
+Durante toda esta semana, entre os dias 02 e 06 de maio, a Ag&ecirc;ncia M&oacute;vel e o Projeto Nova Geladeira da Companhia Energ&eacute;tica de Pernambuco (Celpe) estar&atilde;o em Nova Descoberta, para dar suporte &agrave;s a&ccedil;&otilde;es promovidas pelo Grupo de A&ccedil;&atilde;o Anti-Perdas (Gaap) da distribuidora. O objetivo do grupo &eacute; envolver comunidades populosas em um mutir&atilde;o de atividades que visam &agrave; redu&ccedil;&atilde;o de fraudes e regulariza&ccedil;&atilde;o de consumidores clandestinos. A inten&ccedil;&atilde;o &eacute; orientar os moradores a regularizarem sua situa&ccedil;&atilde;o e a absorverem pr&aacute;ticas de consumo eficiente de energia.
+
+A a&ccedil;&atilde;o do Gaap concentra profissionais de diversas &aacute;reas da empresa em servi&ccedil;os de inspe&ccedil;&atilde;o, expans&atilde;o de rede, atendimento a comunidades especiais, efici&ecirc;ncia energ&eacute;tica, leitura, faturamento e cobran&ccedil;a. &ldquo;A ideia do grupo &eacute; promover em uma determinada localidade, previamente selecionada, a&ccedil;&otilde;es que, al&eacute;m de coibir o desperd&iacute;cio, levam seguran&ccedil;a e cidadania&rdquo;, ressalta o Gerente do Departamento de Perdas da Celpe e coordenador do Gaap, Roberto Boquetti.
+
+Durante estes cinco dias, o servi&ccedil;o itinerante da Celpe, que j&aacute; esteve no bairro em abril, ser&aacute; novamente deslocado para a comunidade. Ele funcionar&aacute; no Largo Dona Regina, das 9h &agrave;s 16h, e oferecer&aacute; o mesmo atendimento de uma ag&ecirc;ncia convencional. Entre os servi&ccedil;os que os moradores poder&atilde;o solicitar est&atilde;o emiss&atilde;o de segunda via da fatura, vistorias, novas liga&ccedil;&otilde;es, religa&ccedil;&atilde;o de energia, atualiza&ccedil;&atilde;o de dados cadastrais e negocia&ccedil;&atilde;o d&eacute;bitos.
+
+J&aacute; o Projeto Nova Geladeira, que doa refrigeradores e l&acirc;mpadas econ&ocirc;micas para fam&iacute;lias de baixa renda, estar&aacute; na sede do Grupo Feminino da Imba&uacute;ba e tamb&eacute;m atender&aacute; da 9h &agrave;s 16h.&nbsp; Para fazer o pr&eacute;-cadastro no projeto, basta estar com as contas da Celpe regularizadas, possuir cadastrado na Tarifa Social da concession&aacute;ria e ter o consumo m&eacute;dio de energia acima de 80kw/m&ecirc;s. Al&eacute;m disso, &eacute; necess&aacute;rio ter uma geladeira velha e funcionando para entregar &agrave; distribuidora no momento da troca. Durante tr&ecirc;s meses, os inscritos no projeto ser&atilde;o acompanhados pela Celpe e participar&atilde;o de palestras educativas sobre o uso eficiente da energia el&eacute;trica. 

@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Governo estuda compensação em caso de alta dos combustíveis"
+date: 2020-01-07
+tags: alta,Casos,combustíveis,estudantes,governo
+author: None
+---
+Da Agência Brasil
+O ministro de Minas e Energia, Bento Albuquerque, afirmou nessa segunda-feira (6), após se reunir com o presidente Jair Bolsonaro (sem partido), que o governo federal estuda formas de compensar uma eventual alta no preço dos combustíveis, caso a crise envolvendo Estados Unidos e Irã impacte com mais força o preço internacional do petróleo.
+"Temos que criar, talvez, mecanismos compensatórios que compensem esse aumento sem alterar o equilíbrio econômico do país. Que isso não gere inflação, mas também não frustre expectativa de receitas", adiantou o ministro em coletiva de imprensa, ao lado do presidente da Petrobras, Roberto Castello Branco, e do diretor-geral da Agência Nacional de Petróleo, Gás e Biocombustíveis (ANP), Décio Odone.
+Albuquerque praticamente descartou a possibilidade de o governo instituir algum tipo de subsídio para segurar alta do combustível, como foi feito, em 2018, no governo de Michel Temer, frente ao aumento no preço do óleo diesel, uma das principais reclamações dos caminhoneiros, que paralisaram o país durante uma greve em maio daquele ano.
+"Não sei se será feito com impostos [subsídios], certamente não vamos procurar esse caminho dos impostos para não onerar mais ainda, mas se há maior receita, talvez possa haver uma compensação em cima disso e esse é um dos instrumentos que estão sendo analisados", disse.
+Redução de ICMS
+Uma proposta apresentada pelo próprio presidente da República é a possibilidade do estados reduzirem a alíquota do ICMS sobre combustíveis, um imposto estadual, que tem forte impacto na formação do preço final nos postos.
+"Aproximadamente um terço do preço combustível, no final, são impostos estaduais, o ICMS. No Rio de Janeiro, por exemplo, está em 30%", afirmou Bolsonaro a jornalistas na portaria do Ministério de Minas e Energia.
+O presidente voltou a dizer que não adotará nenhuma política de controle de preços. "Não existe interferência do governo. Não sou intervencionista, e essa política está muito bem conduzida pelo nosso ministro, almirante Bento".
+Na coletiva de imprensa, perguntado sobre uma possível compensação tributária por parte dos estados, Bento Albuquerque disse que a ideia está sendo estudada e que poderá ser discutida no âmbito do Conselho Nacional de Política Fazendária (Confaz), que reúne secretários da Fazenda dos estados, integrantes da pasta e o governo federal. "Isso já está sendo discutido, no âmbito do governo, para que quando tiver essa pauta, possam haver uma reunião, no mais alto nível, com o presidente e os governadores".
+Política de preços
+O presidente da Petrobras, Roberto Castello Branco, afirmou que não sofre qualquer pressão para interferir nos preços praticados pela companhia, que controla 98% do refino de combustível no Brasil. "A lei, desde 2002, diz que existe liberdade de preços de combustíveis. E o governo Bolsonaro vem praticando isso. Não recebi, em nenhum momento, pedido, pressão, sugestão, nem do almirante Bento, nem do presidente Bolsonaro, para baixar o preço, fazer isso ou aquilo. Existe liberdade total, na prática, para o preço de qualquer derivado de petróleo".
+Castello Branco também disse que não acredita que a atual crise envolvendo Estados Unidos e Irã possa causar impacto econômico de longo prazo, e que o recente aumento no preço do barril de petróleo está em processo de recuo. "Nós achamos pouco provável que uma crise política acabe resultando em uma crise econômica, porque o pólo dinâmico de crescimento da produção de petróleo não é mais a OPEP [Organização dos Países Produtores de Petróleo], é de países fora da OPEP, principalmente os Estados Unidos”.
+O presidente da Petrobras pontuou ainda que produção americana tem capacidade de reagir rapidamente a preços, o que desarma a possibilidade de um preço elevado se manter durante um período razoavelmente longo. “Evidentemente que surpresas podem acontecer, mas nós estamos acreditando que é muito pouco provável que nós tenhamos, desse choque que houve, um aumento de aproximadamente US$ 3 no preço do barril de petróleo, os mercados já se acalmaram mais um pouco”.

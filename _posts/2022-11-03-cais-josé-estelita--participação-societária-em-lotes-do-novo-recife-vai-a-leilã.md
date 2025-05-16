@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Cais José Estelita: participação societária em lotes do Novo Recife vai a leilão nesta sexta"
+date: 2022-11-03
+tags: jamildo, Recife, Estelita, tjpe
+author: Jamildo Melo
+---
+O Tribunal de Justi&ccedil;a de Pernambuco vai leiloar, nesta sexta-feira (04/11), &agrave;s 10h, a participa&ccedil;&atilde;o societ&aacute;ria do grupo empresarial Queiroz Galv&atilde;o em lotes do projeto Novo Recife Empreendimentos, localizado na Avenida Engenheiro Jos&eacute; Estelita, no Centro do Recife. O lance inicial ser&aacute; de R$ 260.520.000,00.
+O preg&atilde;o acontecer&aacute; em formato presencial e eletr&ocirc;nico e ter&aacute; transmiss&atilde;o simult&acirc;nea pela internet. Quem quiser comparecer presencialmente ao preg&atilde;o deve ir ao audit&oacute;rio do Empresarial The Plaza (pavimento -2), localizado &agrave; Rua General Joaquim In&aacute;cio, n&ordm; 830, Ilha do Leite, no Recife.
+A participa&ccedil;&atilde;o virtual no leil&atilde;o ocorrer&aacute; por meio do site www.inovaleilao.com.br, p&aacute;gina do leiloeiro Diogo Martins nomeado oficialmente para o certame pela 28&ordf; Vara C&iacute;vel da Capital &ndash; Se&ccedil;&atilde;o A.
+O edital referente ao leil&atilde;o foi publicado pela 28&ordf; Vara C&iacute;vel da Capital &ndash; Se&ccedil;&atilde;o A no dia 06 de outubro, no Di&aacute;rio de Justi&ccedil;a Eletr&ocirc;nico, cumprindo o que foi acordado em assembleia de credores no processo de recupera&ccedil;&atilde;o judicial.
+As cotas societ&aacute;rias do projeto Novo Recife que v&atilde;o &agrave; leil&atilde;o pertencem &agrave;s empresas Queiroz Galv&atilde;o Desenvolvimento Imobili&aacute;rio (QGDI) e Queiroz Galv&atilde;o Empreendimentos Imobili&aacute;rios LTDA (QGEMP).
+Por sua vez, essas cotas abrangem a participa&ccedil;&atilde;o acion&aacute;ria em tr&ecirc;s empresas que n&atilde;o est&atilde;o na recupera&ccedil;&atilde;o Judicial: Novo Recife Empreendimentos LTDA, Queiroz Galv&atilde;o PE 3 Desenvolvimento Imobili&aacute;rio LTDA e Queiroz Galv&atilde;o PE 14 Desenvolvimento Imobili&aacute;rio LTDA.
+O lote em quest&atilde;o na participa&ccedil;&atilde;o societ&aacute;ria tem como propriet&aacute;rio fiduci&aacute;rio o Banco BTG.
+O leil&atilde;o p&uacute;blico presencial e virtual tamb&eacute;m foi autorizado no processo 0018004-19.2021.8.17.2001. A decis&atilde;o determinando a venda da participa&ccedil;&atilde;o societ&aacute;ria no projeto Novo Recife foi assinada, no dia 13 de setembro, pela magistrada titular da 28&ordf; Vara C&iacute;vel da Capital &ndash; Se&ccedil;&atilde;o A, a ju&iacute;za de Direito Adriana Cintra Coelho.
+&ldquo;A venda ocorrer&aacute; por meio de leil&atilde;o p&uacute;blico eletr&ocirc;nico ou presencial por se tratar da forma mais democr&aacute;tica e transparente para a aliena&ccedil;&atilde;o pretendida, em homenagem aos princ&iacute;pios da transpar&ecirc;ncia e igualdade entre os credores, como prev&ecirc; a Lei n&ordf; 11.101/2005&rdquo;, escreveu a magistrada.
+De acordo com a decis&atilde;o judicial da 28&ordf; Vara C&iacute;vel da Capital, o resultado da venda ser&aacute; destinado a liquida&ccedil;&atilde;o dos cr&eacute;ditos com garantias reais incidentes sobre as participa&ccedil;&otilde;es societ&aacute;rias detidas pelo credor BTG Pactual. Na hip&oacute;tese de saldo remanescente, este servir&aacute; ao incremento de caixa do grupo Queiroz Galv&atilde;o para fazer jus &agrave;s obriga&ccedil;&otilde;es da recupera&ccedil;&atilde;o judicial.
+O leil&atilde;o p&uacute;blico tamb&eacute;m teve a aprova&ccedil;&atilde;o em assembleia da maioria dos credores do Grupo.
+&ldquo;Como houve a aquiesc&ecirc;ncia da maioria dos credores com direito a voto em assembleia, nada h&aacute; de ilegal quanto a venda pretendida, havendo justificativa para a aliena&ccedil;&atilde;o, como forma de fomentar as atividades do grupo empresarial, considerando, ainda, que h&aacute; terceiro interessado em adquirir as participa&ccedil;&otilde;es societ&aacute;rias&rdquo;, afirmou a ju&iacute;za Adriana Cintra na decis&atilde;o.
+
+&nbsp;

@@ -1,0 +1,8 @@
+---
+layout: post
+title: "O espaço do presidente Alckmin é nas terças, quintas e sábados, diz Mendonça"
+date: 2006-08-19
+tags: espaço,fátima quintas,geraldo Alckmin,mendonça,Presidente
+author: None
+---
+Por Ana Lúcia AndradeRepórter de Pol?tica do JCO duro recado do presidente nacional do PSDB, senador Tasso Jereissati (PSDB), com ameaça de intervir nos programas regionais para garantir a presença do candidato a presidente Geraldo Alckmin (PSDB), não intimidou o governador e candidato à reeleição Mendonça Filho (PFL). Pelo contrário. O pefelista respondeu que não inclui Pernambuco entre os Estados para os quais o recado foi endereçado, e avisou que só “oportunamente??? é que seu programa fará ligação com o cenário nacional. E mais. Mendonça Filho registrou que o espaço de Geraldo Alckmin na propaganda eleitoral gratuita está garantido pela regra nacional, definida pela Justiça Eleitoral.Esse também é o espaço reservado ao presidente Lula (PT), que disputa a reeleição. Mas em Pernambuco, o petista também vem ocupando as propagandas estaduais, inclusive a de Mendonça Filho, que ontem voltou a destacar a imagem de Lula.“O espaço do presidente Alckmin é nas terças, quintas e sábados, dentro da regra nacional, o normal. O foco dos programas estaduais é o aspecto regional, a gente discute o Estado. Oportunamente, quando houver um fato concreto, a gente vai fazer algum tipo de ligação com a questão nacional???, respondeu o governador, ontem à noite, após uma caminhada na Zona Norte do Recife. 

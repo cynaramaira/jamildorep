@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Com candidaturas fechadas, Humberto lidera pesquisa de intenção de voto"
+date: 2012-07-12
+tags: candidaturas,Humberto Costa,liderança indígena,pesquisa
+author: None
+---
+N&uacute;meros arredondados pelo economista Maur&iacute;cio Rom&atilde;o, um dos respons&aacute;veis pela pesquisa. Os percentuais exatos s&atilde;o: Humberto Costa (35,5% na estimulada e 23,3% na espont&acirc;nea); Mendon&ccedil;a Filho (20,7% e 13%, respectivamente), Geraldo J&uacute;lio (6,8% e 5,1%, respectivamente); e Daniel Coelho (5,6% e 3,5%, respectivamente). Em Branco/Nulo (20,7% e 17,5%, respectivamente), N&atilde;o Sabe/N&atilde;o Respondeu (8,1% e 29,9%, respectivamente) e Outros (2,8% na espont&acirc;nea).
+Ap&oacute;s a defini&ccedil;&atilde;o dos nomes que disputar&atilde;o a Prefeitura do Recife no pleito de outubro, o senador e candidato pelo PT, Humberto Costa, mant&eacute;m a lideran&ccedil;a da pesquisa de inten&ccedil;&atilde;o de votos feita pelo Jornal do Commercio em parceria com o Instituto de Pesquisa Maur&iacute;cio de Nassau (IPMN). O petista tem 36% da inten&ccedil;&atilde;o de votos na pesquisa estimulada e 23% na espont&acirc;nea. J&aacute; Mendon&ccedil;a Filho (DEM), segurou o segundo lugar, com 21% na estimulada e 13% na espont&acirc;nea.
+Com menos de um m&ecirc;s de campanha, Geraldo J&uacute;lio j&aacute; aparece com 7% das inten&ccedil;&otilde;es de voto
+Apesar de manter a lideran&ccedil;a, Humberto apresentou praticamente os mesmos n&uacute;meros da edi&ccedil;&atilde;o passada, publicada no dia 16 de junho, enquanto que Mendon&ccedil;a cresceu com a retirada&nbsp; de outras candidaturas pela oposi&ccedil;&atilde;o, como o do deputado federal Raul Henry, do PMDB, que se aliou ao PSB. Em rela&ccedil;&atilde;o a junho, Mendon&ccedil;a cresceu mais de tr&ecirc;s pontos percentuais na estimulada. Apesar disso, caiu de 15% para 13% na espont&acirc;nea.
+Veja a pesquisa anterior:Imposto pela dire&ccedil;&atilde;o nacional do PT, Humberto Costa assume lideran&ccedil;a na pesquisa para sucess&atilde;o no Recife
+In&eacute;dito na pesquisa, o candidato do PSB, do governador Eduardo Campos, Geraldo J&uacute;lio - que nunca disputou uma elei&ccedil;&atilde;o -, aparece na frente de Daniel Coelho, do PSDB, que &eacute; ex-vereador, atualmente deputado estadual e tem seu candidatura posta para disputar a Prefeitura desde o in&iacute;cio. Geraldo tem 6,8% de inten&ccedil;&atilde;o de votos na estimulada e 5,1% na espont&acirc;nea contra os 3,5% na espont&acirc;nea e 6% na estimulada do tucano.
+
+Ao todo, entre os dias 9 e 10 deste m&ecirc;s foram ouvidas 1.080 pessoas com idade a partir de 16 anos. Para o cientista pol&iacute;tico e um dos respons&aacute;veis pela pesquisa, Adriano Oliveira, todos os dados revelam que tr&ecirc;s candidatos est&atilde;o, neste instante, disputando a ida para o segundo turno. Nesta sexta (13), ser&aacute; lan&ccedil;ada a pesquisa na &iacute;ntegra com a an&aacute;lise completa do especialista. &Agrave;s 10h, haver&aacute; um debate com a participa&ccedil;&atilde;o do editor do Blog de Jamildo, Jamildo Melo, com cobertura ao vivo.
+O rep&oacute;rter especial de Pol&iacute;tica do JC, Sergio Montenegro Filho, tamb&eacute;m estar&aacute; participando do encontro.Fique ligado.

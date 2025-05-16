@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Centro de Convenções terá requalificação do pavilhão de eventos"
+date: 2021-07-26
+tags: turismo, centro de convenções de pernambuco
+author: JAMILDO MELO
+---
+O governador Paulo C&acirc;mara anunciou, nesta segunda-feira (26.07), que assinou a ordem de servi&ccedil;o que autoriza a requalifica&ccedil;&atilde;o do pavilh&atilde;o de feiras e eventos do Centro de Conven&ccedil;&otilde;es de Pernambuco, em Olinda, na Regi&atilde;o Metropolitana do Recife.
+Or&ccedil;adas em R$ 1,7 milh&atilde;o, as obras devem come&ccedil;ar nesta ter&ccedil;a-feira (27.07), e incluem a recupera&ccedil;&atilde;o e polimento do piso em concreto (totalizando 18.650 m&sup2;), recupera&ccedil;&atilde;o e substitui&ccedil;&atilde;o de calhas t&eacute;cnicas (1.700m), reforma dos banheiros com acr&eacute;scimo de frald&aacute;rio e da cozinha do mezanino do pavilh&atilde;o.
+&ldquo;Vamos fazer a reformula&ccedil;&atilde;o do Centro de Conven&ccedil;&otilde;es de Pernambuco para melhorar a infraestrutura e adaptar esse grande espa&ccedil;o para a retomada dos eventos, que vai exigir muito trabalho, precau&ccedil;&otilde;es e protocolos, que j&aacute; est&atilde;o sendo pensados. Queremos que o Cecon esteja pronto e efetivamente adaptado &agrave; nova realidade que estamos vivendo em virtude da Covid-19&rdquo;, disse Paulo C&acirc;mara.
+De acordo com o diretor-presidente da Ag&ecirc;ncia de Desenvolvimento Econ&ocirc;mico de Pernambuco (AD Diper), Roberto Abreu e Lima, a proposta de requalifica&ccedil;&atilde;o foi um pleito que surgiu durante as reuni&otilde;es da C&acirc;mara Setorial de Turismo.
+&ldquo;O espa&ccedil;o tem uma import&acirc;ncia singular para o turismo de neg&oacute;cios em Pernambuco. Nossa decis&atilde;o por executar esta obra &eacute; fruto de conversas com diversos atores da &aacute;rea. Passado o per&iacute;odo de pandemia, acreditamos que o uso do espa&ccedil;o ganhar&aacute; ainda mais relev&acirc;ncia para os diversos neg&oacute;cios que s&atilde;o incentivados no local&rdquo;, afirmou Roberto Abreu.
+Antes da pandemia, o pavilh&atilde;o chegou a receber uma m&eacute;dia anual de 32 eventos, com p&uacute;blico m&eacute;dio de 300 mil pessoas. O espa&ccedil;o opera h&aacute; 40 anos, apoiando o desenvolvimento do trade tur&iacute;stico de Pernambuco.
+Segundo o secret&aacute;rio de Turismo e Lazer de Pernambuco, Rodrigo Novaes, ainda em 2021 est&atilde;o programadas oito feiras, dos mais variados segmentos.
+&ldquo;Estamos bem confiantes com a execu&ccedil;&atilde;o das obras. Teremos tempo h&aacute;bil para deixar o Centro de Conven&ccedil;&otilde;es renovado para os primeiros eventos que acontecem em outubro. A&ccedil;&otilde;es como essa s&atilde;o importantes para a retomada das feiras de neg&oacute;cios que aquecem nossa economia, geram emprego e renda e movimentam toda a cadeia do turismo&rdquo;, salientou Novaes.
+A secret&aacute;ria-executiva de Desenvolvimento Econ&ocirc;mico, Ana Paula Vila&ccedil;a, tamb&eacute;m participou da assinatura.

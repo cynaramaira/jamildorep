@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Depois de uma semana, continua arranca rabo entre Rebolation e produtora local por show que não houve na Arena da Copa"
+date: 2010-07-08
+tags: Arena Pernambuco,Copa,entrega,Naomi Campbell,Pnad contínua,Semana Santa,show
+author: None
+---
+
+NOTA EM RESPOSTA AO GRUPO PARANGOL&Eacute;
+A produ&ccedil;&atilde;o do Torcida Recife Copa do Mundo 2010 chama a aten&ccedil;&atilde;o do nosso povo mais uma vez para a postura contradit&oacute;ria e inconsistente do grupo baiano Parangol&eacute; com seus f&atilde;s pernambucano.
+Em nota de esclarecimento veiculada em meios de comunica&ccedil;&atilde;o&nbsp;o grupo diz que: &ldquo;O grupo Parangol&eacute; em a p&uacute;blico informar que est&aacute; sendo alvo de uma grande mentira por parte do Torcida Recife&rdquo;.
+O Torcida Recife pergunta: &ldquo;Qual mentira, Parangol&eacute;&#63; Estamos mentindo ao esclarecer que o grupo se negou a fazer show para o p&uacute;blico pernambucano, mesmo depois de ter se comprometido com o projeto&#63;&rdquo; (conforme e-mail trocado pelo pr&oacute;prio empres&aacute;rio 0 em anexo &ndash; com nossa produ&ccedil;&atilde;o)
+A banda diz ainda: &ldquo;N&atilde;o firmamos nenhuma esp&eacute;cie de contrato para shows em Recife na Copa do Mundo, nem tivemos contato com nenhum empres&aacute;rio membro dessa tal Torcida Recife&rdquo;.
+Agora questionamos: &ldquo;E o que significa todos os contatos que nossos produtores estabeleceram diretamente com voc&ecirc;s, Parangol&eacute;&#63; E o e-mail que recebemos do empres&aacute;rio do grupo, onde o mesmo registra que o Parangol&eacute; tinha se comprometido em fazer o show no Recife e, por interesses isolados de outrem, desmarca tudo&#63;&rdquo;
+A nota do Parangol&eacute; comenta ainda que: &ldquo;Est&atilde;o tentando confundir o p&uacute;blico pernambucano, inclusive usando sensacionalismo por conta das chuvas, que infelizmente ocorreram no Estado&rdquo;.
+O torcida Recife questiona: &ldquo;Parangol&eacute;, quem est&aacute; confundindo o p&uacute;blico&#63; Foram voc&ecirc;s que se comprometeram com o povo pernambucano e depois desmarcaram tudo. E qual sensacionalismo foi usado&#63; Voc&ecirc;s querem dizer que o Torcida Recife, Copa Solid&aacute;ria, movimento nacional promovido pela Rede Globo em todos locais de exibi&ccedil;&otilde;es p&uacute;blicas, em prol dos desabrigados e desalojados dos munic&iacute;pios do nosso Estado e de Alagoas, &eacute; um ato meramente apelativo e isolado&#63; S&oacute; podemos mais uma vez nos indignar e destacar nosso desapontamento, como empresa pernambucana e de representante tamb&eacute;m pernambucano, com o Parangol&eacute; por mais uma vez destratar o caos vivido por nosso povo&rdquo;.
+O texto do Parangol&eacute; enfatiza ainda: &ldquo;Estamos entrando com medidas judiciais contra todos os envolvidos nesta tal Torcida Recife, desde a produ&ccedil;&atilde;o do evento a seus patrocinadores. R&aacute;dios, TVs, blogs, sites.&rdquo;
+O Torcida questiona mais uma vez a &eacute;tica do Parangole: &ldquo;Medidas judiciais contra a imprensa&#63; Voltamos aos tempos da censura&#63; Da coibi&ccedil;&atilde;o do direito de liberdade da imprensa&#63; Parangol&eacute;, a imprensa pernambucana age de forma imparcial. Todos atuam de forma correta e &eacute;tica, buscando sempre a verdade dos fatos. Que de fato os senhores do Parangol&eacute; entrem de fato com suas medidas judiciais, pois s&oacute; assim a verdade vir&aacute; &agrave; tona, e o povo pernambucano conhecer&aacute; a &uacute;nica vers&atilde;o, a vers&atilde;o VERDADEIRA &rdquo;.
+O texto do Parangol&eacute; enfatiza ainda: &ldquo;Esta tal empresa irrespons&aacute;vel...&rdquo;
+O Torcida questiona mais uma vez ao Parangole: &ldquo;Senhores, ser&aacute; que uma empresa com mais de 20 anos de mercado, que faz parte de um dos maiores grupo de comunica&ccedil;&atilde;o do Nordeste, que tem clientes nacionais, multinacionais, parceiros de alt&iacute;ssima &eacute;tica e credibilidade, que foi a respons&aacute;vel pela transmiss&atilde;o p&uacute;blica, autorizada pela FIFA, com todo apoio dos governos municipal e estadual, dona grandes eventos, pode ser chamada de IRRESPONS&Aacute;VEL&#63; No m&iacute;nimo voc&ecirc;s, como empresa de outro estado (Bahia), deveriam ter respeito quando se dirigissem mais uma vez a n&oacute;s, que somos pernambucanos.&rdquo;
+Diante de todas as tentativas de alterar a verdade dos fatos, s&oacute; nos cabe manifestar nossa total indigna&ccedil;&atilde;o com o Parangol&eacute;, que at&eacute; o momento continua insistindo em enganar o p&uacute;blico pernambucano.
+ABPA ENTRETENIMENTO
+Uma empresa do AB Group.
+&nbsp; 

@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Os 100 dias de cárcere do maior empreiteiro do Brasil"
+date: 2015-09-27
+tags: brasil,Fred Dias,Maioria
+author: None
+---
+ Reprodução: UOL
+Estadão Conteúdo -  O mais poderoso dos empreiteiros alvos da Operação Lava Jato, Marcelo Bahia Odebrecht, completa hoje, 27, 100 dias encarcerado. Nos meios jurídico, político e empresarial, a efeméride é considerada um marco, por motivos distintos, e tem suscitados debates e batalhas nos tribunais.
+Eram 5h30 do dia 19 de junho de 2015 quando uma equipe da Polícia Federal comunicou a prisão dele. Odebrecht, aos 46 anos, estava pronto para uma de suas rotinas matinais: a natação na piscina de sua casa, no bairro do Morumbi, em São Paulo. Seu primeiro pedido aos policiais foi ter acesso ao mandado expedido pelo juiz federal Sérgio Moro - que conduz os processos da Lava Jato, em Curitiba, sede das investigações.
+&gt; Leia também:
+- Hackers invadem site da Odebrecht e criticam envolvimento na Lava Jato
+- ‘Não tenho o que dedurar’, diz Marcelo Odebrecht sobre delação
+Nas redes sociais, imediatamente, uma bolsa de apostas informais começou a funcionar. A unanimidade se formava no sentido de que o empresário não permaneceria preso mais do que um fim de semana. Seus defensores alegavam que a prisão era abusiva e seria rapidamente revista. Os céticos iam em outra direção: por ser um homem rico, ele sairia do cárcere porque a Justiça brasileira sempre fora conivente com os poderosos.
+A prisão de Odebrecht foi o maior desafio enfrentado até aqui pela força-tarefa do Ministério Público Federal. Chamado pelos demais empreiteiros do esquema de “príncipe”, nem mesmo os investigadores acreditavam que ele poderia ficar por longo período encarcerado. Alvo central da 14.ª fase, batizada de Operação Erga Omnes - “vale para todos”, em latim -, colocar Odebrecht atrás das grades, para a força-tarefa, era mais do que atingir o suposto líder do esquema de cartel. Sua prisão teve papel simbólico. “A lei deve valer pra todos ou não valer pra ninguém”, disse o procurador da República Carlos Fernando de Santos Lima, no dia da prisão.
+Dono da nona maior fortuna do País, avaliada em R$ 13 bilhões pela revista Forbes, o presidente do Grupo Odebrecht foi forjado desde criança pelo avô Norberto Odebrecht e pelo pai Emílio Odebrecht para assumir o comando do império familiar. No âmbito da operação, ele é acusado de corrupção, lavagem de dinheiro e organização criminosa em contratos da Petrobras. O empresário nega todas as acusações.
+A expectativa da defesa era tirar o empresário do cárcere em um mês. No entanto, antes de o primeiro pedido de habeas corpus ser analisado pelo Tribunal Regional Federal da 4ª Região (TRF), Moro decretou uma nova prisão preventiva, no dia 24 de julho. O tribunal, então, julga o pedido prejudicado.
+“No curso das investigações, surgiram elementos supervenientes que reforçam a relação entre a Odebrecht e o pagamento de propinas no exterior”, afirmou Moro na ordem de prisão. As investigações encontraram cinco contas na Suíça que seriam da Odebrecht. Para Moro, a prisão do executivo se faz necessária porque “a Odebrecht tem condições de interferir de várias maneiras na colheita das provas, seja pressionando testemunhas, seja buscando interferência política, observando que os próprios crimes em apuração envolviam a cooptação de agentes públicos”.
+Defesa
+Para a defesa de Odebrecht, os 100 dias dele na prisão são a marca indiscutível de uma “injusta antecipação de punição”, um abuso do juiz para mostrar ao País que os poderosos não estão acima da lei. Segundo os advogados, não há elementos que justifiquem a manutenção dele na prisão. Argumentam que o empreiteiro não foi citado pelos delatores e a teoria do domínio do fato não pode ser aplicada para o presidente de um conglomerado empresarial tão grande quanto o Grupo Odebrecht. A expectativa da defesa é de que nesta semana Odebrecht consiga um habeas corpus.
+A cerca de 20 dias de completar 47 anos, Odebrecht na parece estar resignado. É o principal orientador da estratégia de confrontar a validade das provas das investigações da Lava Jato, a competência do juiz Sérgio Moro e sua suspeição para julgar o caso. Não pensa em assinar o acordo de deleção premiada, dizem seus assessores. As informações são do jornal O Estado de S. Paulo.

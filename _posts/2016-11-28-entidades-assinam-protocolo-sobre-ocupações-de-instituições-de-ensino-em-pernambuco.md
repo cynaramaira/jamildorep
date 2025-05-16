@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Entidades assinam protocolo sobre ocupações de instituições de ensino em Pernambuco"
+date: 2016-11-28
+tags: Ensino Médio,pernambuco
+author: None
+---
+O Ministério Público Federal (MPF) em Pernambuco (PE) sediou, na tarde desta segunda-feira (28), reunião para assinatura de protocolo que define um modelo de atuação interinstitucional em relação às ocupações em instituições federais de ensino no estado.
+O documento ressalta o princípio democrático de reunião e manifestação por parte dos estudantes, desde que de forma pacífica, e a importância das instituições primarem pelo diálogo e discussão construtiva com a sociedade.
+Assinaram o documento, além do MPF, a Defensoria Pública da União (DPU), Reitorias da Universidade Católica de Pernambuco (Unicap), Universidade Federal de Pernambuco, Universidade Federal Rural de Pernambuco, Instituto Federal de Pernambuco (IFPE), Diretores-Gerais do campi do IFPE em municípios da Região Metropolitna e interior do estado, além de representantes da Polícia Militar de Pernambuco, Frente Brasil dos Juristas para Democracia, Procuradoria Federal da UFPE e Procuradoria Regional Federal da 5ª Região/Advocacia-Geral da União.
+Acordo 
+Por meio do protocolo, as entidades se comprometeram a tratar as ocupações de estabelecimentos de ensino do estado por estudantes como um evento político–constitucional, e não um evento criminal, sem prejuízo de apuração, administrativa e criminal, no caso de eventuais abusos e da prática de ilícitos.
+As instituições estabeleceram o compromisso de respeitar, oportunizar e dar prioridade ao processo democrático de negociação, dando margem ao desenvolvimento do diálogo entre estudantes - ocupantes ou não - e profissionais das instituições de ensino para solução pacífica do impasse.
+Também foi acordado que as entidades não vão se valer de meios de coação, visando à desocupação sem ordem judicial, tais como: corte de água, de energia, impedir entrada de alimentos, utilização de sinais sonoros, etc. Outro ponto ressaltado foi o de que o diálogo deve priorizar o máximo possível a compatibilidade entre o direito de livre manifestação dos estudantes e o respeito a funcionalidades dos prédios ocupados e que em caso de eventual decisão judicial, as entidades se comprometem a requerer prazo razoável para a desocupação voluntária das unidades de ensino e a apenas requerer utilização de força policial para desocupação forçada após frustradas as etapas de negociação, sempre com acompanhamento do MPF e da DPU.
+No documento foi reforçado ainda que, no caso de ser comprovadamente necessário o uso da força pela PM, será priorizada a utilização de instrumentos de menor potencial ofensivo, com baixa probabilidade de causar mortes ou lesões permanentes. Além disso, em caso de necessidade de desocupação de estabelecimentos de ensino com uso de força policial, será feita notificação prévia ao Ministério Público e à Defensoria Pública para acompanhamento da ação.
+Confira aqui o protocolo na íntegra.

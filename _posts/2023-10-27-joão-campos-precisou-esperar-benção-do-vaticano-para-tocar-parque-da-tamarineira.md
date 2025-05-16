@@ -1,0 +1,30 @@
+---
+layout: post
+title: "João Campos precisou esperar benção do Vaticano para tocar Parque da Tamarineira"
+date: 2023-10-27
+tags: jamildo, Parque da Tamarineira
+author: Jamildo Melo
+---
+Por uma quest&atilde;o de justi&ccedil;a, &eacute; preciso tirar o chap&eacute;u para a equipe t&eacute;cnica do prefeito Jo&atilde;o Campos (PSB) no Recife. Eles deram n&oacute; em pingo d'&aacute;gua para viabilizar o Parque da Tamarineira, depois que uma lei de Priscila Krause ainda vereadora travou o uso da &aacute;rea, para evitar uso comercial. A negocia&ccedil;&atilde;o que foi conclu&iacute;da agora precisou ser chancelada pelo Vaticano, uma vez que sozinha a Arquidiocese de Olinda e Recife n&atilde;o tinha poder para assinar o acordo de permuta de &aacute;reas.
+O xabu do Parque da Tamarineira se deu no come&ccedil;o de 2022, quando j&aacute; se contava 12 anos que a cidade do Recife esperava pela constru&ccedil;&atilde;o do parque &ndash; um projeto que mobilizou a cidade em 2010, quando foi anunciada a poss&iacute;vel constru&ccedil;&atilde;o de um shopping center no local.
+Naquele ano, os projetos de lei municipais 02 e 03 n&atilde;o contemplaram a viabiliza&ccedil;&atilde;o do parque. Pelo projeto original, a Santa Casa iria doar todo o terreno &agrave; Prefeitura do Recife (PCR) e receberia em troca o direito de exportar o potencial construtivo, que &eacute; chamado de TDC (Transfer&ecirc;ncia do Direito de Construir).
+"Nesses projetos de lei (os vereadores) n&atilde;o ressalvaram esse direito e inviabilizaram o parque. Resolveram dificultar o uso da TDC", explicou ent&atilde;o uma fonte do blog. "(Santa Casa) Desistiram da doa&ccedil;&atilde;o por conta dos entraves criados pela legisla&ccedil;&atilde;o". O projeto inicial do empreendimento previa a constru&ccedil;&atilde;o de 170 lojas no local, cujo empreendimento iria sustentar o parque.
+
+			
+		
+			Jo&atilde;o Campos (PSB) -  H&eacute;lia Scheppa/Prefeitura do Recife
+		
+	
+Assim, como se viu, o que aconteceu foi que as mudan&ccedil;as na legisla&ccedil;&atilde;o construtiva acabaram por deixar a Santa Casa com um grande mico na m&atilde;o. Ela tinha um terreno gigante na m&atilde;o, em uma &aacute;rea supervalorizada, do qual n&atilde;o podia se desvencilhar e fazer dinheiro. Foi por isto que o ex-arcebispo de Olinda e Recife, Fernando Saburido, mandou um of&iacute;cio desistindo do neg&oacute;cio, assinado inicialmente ainda na gest&atilde;o Jo&atilde;o da Costa, mas que passou pela gest&atilde;o Geraldo Julio e veio desembocar nas m&atilde;os do jovem gestor do PSB.
+Como havia a previs&atilde;o de que 70% das arvores n&atilde;o podiam ser derrubadas, o chamado potencial construtivo do terreno foi para o espa&ccedil;o. Eram 105 mil metros quadrados invi&aacute;veis para a venda, nem com reza forte.
+A solu&ccedil;&atilde;o t&eacute;cnica encontrada pela equipe de Jo&atilde;o Campos para viabilizar finalmente o Parque da Tamaineira foi a oferta de uma &aacute;rea de 18 mil metros quadrados ao lado do futuro Parque Eduardo Campos, no antigo Aeroclube. Com zero &aacute;rvores, plano, desimpedido legalmente, o terreno tem uma potencial construtivo enorme, apesar de menor. Quem comprar pode colocar um supermercado, pr&eacute;dio, o que for, em uma &aacute;rea que vai se valorizar com o novo empreendimento da Prefeitura do Recife. Bem mais f&aacute;cil de vender e fazer dinheiro para as obras de caridade da Santa Casa.
+O terreno do antigo S&iacute;tio da Tamarineira equivale a 10 campos de futebol e ser&aacute; permutado por seis lotes que fazem parte do futuro Parque Eduardo Campos, no Pina, e totalizam uma &aacute;rea de 18 mil metros quadrados, &aacute;rea quase seis vezes menor em compara&ccedil;&atilde;o ao terreno permutado.
+A opera&ccedil;&atilde;o foi conclu&iacute;da agora porque finalmente chegou a valida&ccedil;&atilde;o do Vaticano, com a ben&ccedil;&atilde;o do Papa e tudo, que tinha a palavra final para avalizar a troca das &aacute;reas. Como se v&ecirc;, depois que se deixou de fabricar terras neste velho mundo, as poucas terras que sobraram s&atilde;o disputadas at&eacute; pelos representantes de Deus na terra.
+Veja mais detalhes do novo projeto
+O terreno de 10,5 hectares (ou 105 mil metros quadrados) da Santa Casa de Miseric&oacute;rdia ser&aacute; cedido para o munic&iacute;pio, mas um Projeto de Lei ainda ser&aacute; enviado ao legislativo para formalizar a cess&atilde;o.
+Haver&aacute; equipamentos para crian&ccedil;as, pessoas idosas, pessoas com defici&ecirc;ncia e para as fam&iacute;lias de maneira geral. O espa&ccedil;o vai contar com equipamentos de lazer tanto para crian&ccedil;as quanto para adultos, de exerc&iacute;cios f&iacute;sicos, de conv&iacute;vio e contempla&ccedil;&atilde;o da cidade, funcionando de forma complementar &agrave;s &aacute;reas verdes j&aacute; existentes, ajudando a desafogar o Parque da Jaqueira.
+Segunda maior &aacute;rea verde da cidade
+Segundo a gest&atilde;o, o Parque da Tamarineira ser&aacute; a segunda maior &aacute;rea verde da cidade, ficando apenas atr&aacute;s do Parque Eduardo Campos (12 ha) e &agrave; frente da Jaqueira (7 ha), levando mais lazer, sa&uacute;de e &aacute;reas contemplativas para bairros e comunidades da Zona Norte, sobretudo as da &aacute;rea oposta &agrave; Avenida Norte, tais como &Aacute;gua Fria, Mangabeira, Arruda, Alto Jos&eacute; do Pinho e Casa Amarela.
+Servi&ccedil;os de sa&uacute;de
+Os servi&ccedil;os de sa&uacute;de que funcionam no terreno (hospitais Psiqui&aacute;trico Ulysses Pernambucano, Pedi&aacute;trico Helena Moura e o Centro de Preven&ccedil;&atilde;o, Tratamento e Reabilita&ccedil;&atilde;o de Alcoolismo-CPTRA) permanecer&atilde;o &agrave; disposi&ccedil;&atilde;o da popula&ccedil;&atilde;o. A ideia &eacute; que a primeira etapa do parque, cuja &aacute;rea ser&aacute; de 19 mil metros quadrados, seja entregue &agrave; popula&ccedil;&atilde;o j&aacute; no primeiro semestre do pr&oacute;ximo ano.
+&nbsp;

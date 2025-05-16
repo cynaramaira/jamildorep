@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Lula não está preocupado com a CPI e diz que não se esforçará para barrá-la"
+date: 2007-04-26
+tags: barra,esta,Lula,Naomi Campbell
+author: None
+---
+O presidente Luiz Inácio Lula da Silva disse ontem à noite, no Chile, que&nbsp;o governo não se esforçará para tentar barrar a Comissão Parlamentar de Inquérito do Apagão Aéreo e que está mais preocupado em consolidar seus programas. As informações são da Agência Brasil.Lula chegou às 22h40 (horário de Brasília) a Santiago. Hoje ele tem encontro com a&nbsp;presidente chilena, Michelle Bachelet. No hotel, foi questionado sobre a decisão do Supremo Tribunal Federal (STF), que determinou a abertura da&nbsp;CPI na Câmara.“Não tenho por hábito fazer julgamento de decisões do Judiciário. Ele tem uma lógica própria de funcionar, interpreta a legislação existente. Portanto, na hora que julga, nós acatamos, cumprimos, seja bom ou seja ruim. É isso que garante o exercício da democracia e o respeito à lei”.O presidente negou que a investigação sobre os problemas no tráfego aéreo possa atrapalhar o governo. “Pelo contrário. Penso que a CPI é um problema do Congresso e ele deve exercitar seu direito, não vejo problema. Estou, neste momento, muito mais preocupado em consolidar o PAC, o programa de educação.&nbsp;E ainda temos outros programas para anunciar nos próximos meses, um para melhorar a política social, um para cuidar melhor da saúde. Esta é a minha preocupação”.Lula descartou também a possibilidade de tentar evitar a comissão: “O governo não vai tentar barrar a CPI. O Congresso que organize a faça a CPI”. \,\\\).replace(\\,\\\) --> 

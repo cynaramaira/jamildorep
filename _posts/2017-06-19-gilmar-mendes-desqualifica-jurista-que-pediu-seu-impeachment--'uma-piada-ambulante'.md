@@ -1,0 +1,31 @@
+---
+layout: post
+title: "Gilmar Mendes desqualifica jurista que pediu seu impeachment: 'uma piada ambulante'"
+date: 2017-06-19
+tags: Gilmar Mendes,impeachment,juristas,Olimpíadas
+author: None
+---
+O ministro do Supremo Tribunal Federal (STF) e presidente do Tribunal Superior Eleitoral, Gilmar Mendes, desqualificou nesta segunda-feira (19), após palestra no Recife, os juristas Cláudio Fonteles e Marcelo Neves, que apresentaram um pedido de impeachment contra ele no Senado Federal, na última semana. “Foram dois falsos juristas”, disse.
+O grupo que pediu o impeachment de mendes toma como base a conversa telefônica interceptada pela Polícia Federal (PF) em que o senador afastado Aécio Neves (PSDB) pede a Gilmar Mendes que interceda com outros senadores para propiciar a aprovação de um projeto de lei. Os documentos pontuam que, apesar de estar sob sigilo, a gravação foi amplamente divulgada na imprensa e o próprio ministro admitiu o teor da conversa.
+Leia também:
+&gt;&gt; Gilmar Mendes é recebido com protesto por servidores do TRE-PE, no Recife
+&gt;&gt; Não se combate crime cometendo crime, diz Gilmar Mendes no Recife
+Questionado sobre o assunto, Mendes disse que não sentia “nenhum constrangimento” pela sua “ligação” com Aécio e partiu para o ataque aos juristas. "Esses pedidos foram impetrados por dois falsos juristas. Um é o Marcelo Neves daqui de Pernambuco, muito mal sucedido na carreira jurídica, foi expulso da FGV [Fundação Getúlio Vargas] por problemas comportamentais e contou com minha ajuda quando precisou de emprego. E o Cláudio Fonteles que foi um péssimo procurador-geral da República e era chamado no Supremo de doutor inépcia, tal seu despreparo. Era uma piada ambulante no tribunal", disparou Gilmar.
+O ministro acredita que o pedido de impeachment se deu pelo momento politizado que vive o Brasil. “Amizade eu tenho com vários políticos, já estou em Brasília há muitos anos e tenho me dedicado inclusive, neste diálogo com os políticos, em realizar a reforma política”, disse.
+Ainda sobre a conversa com Aécio, Gilmar Mendes afirma não haver "nenhuma novidade". “Defendo a lei de abuso de autoridade há muito tempo, faz parte do meu projeto na presidência do STF, defendo isso publicamente”. O ministro afirmou que hoje parece haver um “pensamento totalitário” e “qualquer definição de limites para Ministério Público ou polícia se tornou algo perigoso para eles”.
+Gilmar Mendes participou do seminário "Brasil, desafio para a governabilidade", promovido pelo Grupo de Líderes Empresarias de Pernambuco (Lide Pernambuco).
+PEDIDO DE IMPEACHMENT
+ Foto: Fabio Rodrigues Pozzebom/Agência Brasil
+Ex-procurador-geral da República, Cláudio Fonteles protocolou na quarta-feira (14), no Senado, o pedido de impeachment contra Gilmar Mendes, com assinaturas de juristas, professores, funcionários públicos e estudantes. O grupo produziu três peças jurídicas.
+O impeachment foi protocolado na Secretaria-Geral da Mesa Diretora do Senado e deverá ter sua admissão inicialmente analisada pelo presidente da Casa, Eunício Oliveira (PMDB-CE).
+A segunda peça é uma reclamação que será encaminhada à presidente do Supremo Tribunal Federal, ministra Cármen Lúcia, para apuração administrativa das condutas do ministro. A terceira peça é uma notícia-crime encaminhada ao procurador-geral da República, Rodrigo Janot.
+“O momento da história brasileira presente pede a participação de cidadãos e cidadãs brasileiros. Na qualidade de cidadãos, nós apresentamos este pedido aqui no Senado da República, um pedido por crime de responsabilidade. Calcado em notícias de quem produz jornalismo? Não, calcado em declarações do ministro Gilmar Mendes, publicadas sim pela imprensa, mas por ele jamais desmentidas, essas declarações. E que nós consideramos que elas caracterizam crime de responsabilidade”, explicou o ex-procurador-geral.
+O crime de responsabilidade que justificaria o impeachment, explicou Fonteles, estaria caracterizado pela conduta do ministro de “exercer atividades político-partidárias mediante a articulação e participação em atividades típicas de uma liderança político-partidária, especialmente por meio de atos de influenciar e persuadir parlamentares a votarem a favor de um determinado projeto de lei, por solicitação do presidente do respectivo partido político”, fato que teria ficado comprovado na conversa com o senador afastado.
+Condutas
+ Foto: José Cruz/ Agência Brasil
+Outras condutas de Gilmar Mendes são apontadas pelo grupo, como proferir julgamento em processo nos quais estaria impedido por ser, a parte, cliente do escritório de advocacia onde atua a esposa do ministro, ou em causas na qual seria legalmente suspeito por se apresentar como “velho amigo” de uma das partes. Em maio, o ministro divulgou nota afirmando que, no habeas corpus por meio do qual concedeu liberdade ao empresário Eike Batista, o empresário não era representado por advogado do escritório Sérgio Bermudes, onde a esposa Guiomar Mendes é sócia.
+&gt;&gt; Geraldo Julio: precisamos que política não seja confundida com má conduta
+Os signatários das petições também acusam Mendes de proceder de modo incompatível com a honra, a dignidade e o decoro das funções de ministro do Supremo Tribunal Federal, por ter feito uso de linguagem impolida, depreciativa e agressiva contra o ministro Marco Aurélio, a Procuradoria-Geral da República e seus membros, e o Tribunal Superior do Trabalho e seus membros; e de alimentar e ter relações de proximidade com pessoas investigadas ou denunciadas criminalmente no STF, ou que sejam réus, partes ou juridicamente interessadas em processos em andamento no STF e no TSE.
+No pedido encaminhado ao Senado, o grupo pede que o processo seja instaurado para que seja iniciada a apuração, com apresentação de rol de testemunhas e produção de provas. No Supremo, eles querem que os pares de Mendes avaliem administrativamente, em caráter disciplinar, se ele atuou com conduta incompatível com o cargo e com suspeição nos processos que julgou, aplicando as penas previstas em lei. Já para a Procuradoria-Geral da República, o pedido é para que seja investigado se o ministro utilizou-se do cargo para atuar em favor de interesses próprios e de terceiros.
+Com informações da Agência Brasil
+&nbsp;

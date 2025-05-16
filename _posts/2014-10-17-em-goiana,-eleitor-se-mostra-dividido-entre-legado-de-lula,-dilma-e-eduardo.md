@@ -1,0 +1,27 @@
+---
+layout: post
+title: "Em Goiana, eleitor se mostra dividido entre legado de Lula, Dilma e Eduardo"
+date: 2014-10-17
+tags: delegado,Dilma,eduardo,Eleitor,entrega,Goiana,Lula,Mostra
+author: None
+---
+ Construção da fábrica da Fiat em Goiana. Foto: Marcela Balbino/BlogImagem.
+A 62 quilômetros do Recife, a cidade que recebeu a cobiçada fábrica da Fiat em Pernambuco está dividida quanto ao candidato que irá apoiar no segundo turno presidencial. O legado deixado pelo ex-presidente Lula e por Eduardo Campos ainda está bem vivo na memória dos moradores.
+Goiana, na Mata Norte do Estado, recebe a presidente Dilma Rousseff (PT), postulante à reeleição, e o ex-presidente Lula (PT) na próxima terça-feira (21). A dupla petista visitará as instalações da obra e deve apropriar-se da paternidade do polo automotivo do Estado.
+Em Goiana, no primeiro turno, Marina Silva (PSB) foi a presidenciável mais votada, com 49,65% dos votos. Dilma veio em segundo lugar, com 44,87%. Aécio teve pouco mais de 4%. O ex-governador Eduardo Campos (PSB), no entanto, ainda figurou como o principal cabo eleitoral na disputa.
+ Obras da FIAT em Goiana. Foto: Marcela Balbino/BlogImagem.
+"Votei em Marina porque ela era a candidata de Eduardo Campos, mas se ele não tivesse morrido meu voto seria dele", contou a dona de casa Renata dos Santos, 19 anos, acrescentando que no segundo turno vai votar em Aécio Neves. "Marina apoiou 'Aélcio' então eu apoio também", contou.
+ Renata dos Santos diz que vai votar em Aécio porque Marina declarou apoio ao candidato. Foto: BlogImagem.
+A fábrica da Fiat deverá ser usada como trunfo do PT contra o adversário tucano. No primeiro turno, em Minas Gerais, o PSDB atacou o candidato ao governo mineiro Fernando Pimentel (PT) usando a empresa de carros.
+Em um vídeo da campanha de Pimenta da Veiga, postulante do PSDB, o narrador diz que a ida de nova fábrica para Pernambuco foi culpa do petista Pimentel, quando ministro, mas não passou pelo Ministério do Desenvolvimento a decisão de fábrica da montadora no Brasil. Foi decisão dos executivos na carona pela guerra fiscal entre Minas e Pernambuco do então governador Eduardo Campos, que deu mais incentivos fiscais.
+Para o mecânico do polo automotivo Gilberto Alvino, 21 anos, a chegada da Fiat em Goiana mudou a paisagem do município. Ele foi um dos que se empregou na nova fábrica. "Acho que Dilma será bem recebida. Meu desejo era que ela conversasse com os funcionários. Meu voto é nela", comentou o jovem, que votou na petista no primeiro turno.
+A opinião é compartilhada pela estagiária da Fiat, Marília Karla, 21. Apesar de se mostrar desiludida com a política, ela afirma que mantém o voto no PT. "Estou decepcionada com a política no Brasil, mas vendo o que Dilma e Lula fizeram em Pernambuco e em Goiana eu ainda acredito no PT e no dia 26 eu voto em Dilma", contou a estudante.
+A incoerência do voto neste segundo turno está simbolizado na declaração da dona de casa Cleonice Maria da Conceição, 36. Apesar de fazer panfletagem para o senador Aécio Neves, ela é firme ao declarar o voto em Dilma. "Voto nela porque tenho a sensação de que a vida mudou nos últimos tempos. A Fiat trouxe muitos empregos para Goiana, apesar da alta dos aluguéis na cidade", conta.
+O ex-governador Eduardo Campos permanece presente na memória dos moradores de Goiana como forte cabo eleitoral. "O povo de Goiana tem uma gratidão muito grande pelo ex-governador de Pernambuco Eduardo Campos. Através dele conseguimos trazer a fábrica para Goiana. Não votei em Eduardo por causa da tragédia, mas escolhi Marina e agora, no segundo turno, vou com Aécio. Se não acontecer o melhor, a gente tenta de novo daqui a quatro anos. Quem manda no Brasil é o povo com seu voto", finalizou o vendedor José Rodrigues Vieira, 27 anos.
+O PT organizou uma plenária, nessa quinta-feira (16), em que adiantou a tônica que será adotada durante a visita da presidenciável. Durante o ato político, o prefeito de Goiana, Fred Gadelha (PTB), pediu aos militantes reconhecimento e gratidão. Fred saiu em defesa do governo federal atribuindo à União a atração da Fiat para o Estado.
+"Até o final deste ano, Goiana vai receber mais R$ 80 milhões em investimentos federais”, afirmou o prefeito.
+O deputado federal João Paulo (PT) criticou duramente o tratamento que o PSB pernambucano dispensa à presidenta Dilma, ao longo da campanha presidencial. Segundo João Paulo, os socialistas não reconhecem os benefícios que as gestões petistas trouxeram para Pernambuco.
+
+DADOS - O polo automotivo vai produzir anualmente até 200 mil veículos. O primeiro modelo será o Jeep Renegade, nova plataforma global da montadora que foi apresentada oficialmente na Suíça.
+Todo o polo terá mais de R$ 7 bilhões em investimentos, somando a montadora e as sistemistas. Os fornecedores totalizam 16 fábricas. Além da montadora, a Fiat terá em Goiana um centro de treinamento, um centro de pesquisa e desenvolvimento, uma pista de testes e um campo de provas. Ao todo serão 8 mil trabalhadores no polo.
+A Fiat Chrysler iniciou as contratações pernambucanas no ano passado e fechou 2013 com 350 funcionários. Segundo a companhia, operários no canteiro de obras em Goiana também estão sendo capacitados para que possam disputar uma das vagas oferecidas na Fiat, quando a fábrica começar a funcionar.

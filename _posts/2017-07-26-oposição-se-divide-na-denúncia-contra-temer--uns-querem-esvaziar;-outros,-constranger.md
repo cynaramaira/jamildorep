@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Oposição se divide na denúncia contra Temer: uns querem esvaziar; outros, constranger"
+date: 2017-07-26
+tags: Contran,Michel Temer,Oposição,outubro
+author: None
+---
+Uma semana antes da votação da denúncia contra o presidente Michel Temer (PMDB) na Câmara dos Deputados, a oposição ainda não definiu qual será a estratégia contra o peemedebista. A reunião para bater o martelo será na terça-feira (1º), na véspera da análise e quando será lido o relatório aprovado na Comissão de Constituição e Justiça (CCJ), que, em segunda votação, decidiu recomendar a rejeição do pedido de investigação. Até lá, segundo o vice-líder da oposição, Silvio Costa (PTdoB-PE), a bancada está dividida: uma parte, incluindo ele, defende que a sessão seja esvaziada e a outra quer marcar presença para constranger a base aliada.
+O presidente da Casa, Rodrigo Maia (DEM-RJ), avisou antes do recesso parlamentar que só abriria a votação se fosse atingido o quórum de 342 deputados.
+A oposição tem cerca de 100 nomes. "Não há possibilidade de Michel Temer conseguir colocar 342 presenças no painel. Eles podem vender o País e não vão conseguir", desafiou Costa.
+Para o deputado, se esvaziar a sessão, a oposição pode adiar a votação forçar o presidente a ter que explicar a denúncia contra ele diversas vezes. "Se a oposição continuar não dando presença, vai chegar a um momento em que Temer não vai aguentar a pressão e vai renunciar", defendeu o deputado.
+Outros nomes da oposição enfatizam, porém, que a sessão será transmitida por emissoras de televisão aberta e de rádio, como aconteceu na votação da admissibilidade do impeachment de Dilma Rousseff (PT), garantindo ainda mais repercussão. Com isso, para esse grupo, a bancada deveria estar presente para forçar a votação, em que os deputados serão chamados ao microfone para proferir o seu voto. "É para que os deputados fiquem constrangidos (em defender a rejeição da denúncia)", diz Costa.
+A denúncia está baseada nas investigações iniciadas com o acordo de delação premiada da JBS, de Joesley Batista. O empresário gravou escondido uma conversa com o peemedebista no Palácio do Jaburu, residência oficial de Temer, em que ele supostamente negocia o silêncio do ex-presidente da Câmara Eduardo Cunha (PMDB-RJ), que estaria fechando um acordo de delação premiada em que o citaria. 
+O ex-deputado federal Rodrigo Rocha Loures (PMDB-PR) também foi denunciado pelo procurador pelo mesmo crime. Loures, ex-assessor de Temer, foi preso dois meses depois de ter sido flagrado recebendo uma mala contendo R$ 500 mil que seria de propina. Para os procuradores, o valor era destinado ao presidente, que nega.
+Para que o Supremo Tribunal Federal (STF) possa decidir se vai investigar Temer pelo caso da mala, apontado pelo procurador-geral da República, Rodrigo Janot, na denúncia, 342 deputados deverão votar 'não' - já que o parecer da CCJ é contrário à investigação. Antes da votação, serão dados 25 minutos para a defesa e mais 25 minutos para o relator, Paulo Abi-Ackel (PSDB-MG). Em seguida, tem início a discussão, com dois parlamentares para um lado e dois para o outro. 

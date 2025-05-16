@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Fundação FHC discute se o Brasil está preparado para defender sua democracia"
+date: 2023-02-28
+tags: jamildo, Sesi
+author: Jamildo Melo
+---
+A Funda&ccedil;&atilde;o FHC (FFHC) realiza nesta quinta-feira, 2 de mar&ccedil;o, a partir das 11 horas (hor&aacute;rio de Bras&iacute;lia), o webinar "Democracia: estamos preparados para defend&ecirc;-la sem p&ocirc;r direitos em risco?". O objetivo do evento online &eacute; discutir &ndash; ap&oacute;s os atos golpistas de 8 de janeiro e ante a resili&ecirc;ncia demonstrada at&eacute; aqui pelo Estado e a sociedade brasileira em preservar a Constitui&ccedil;&atilde;o &ndash; se o pa&iacute;s tem instrumentos legais eficientes e suficientes para defender o regime democr&aacute;tico nos pr&oacute;ximos anos.
+Na avalia&ccedil;&atilde;o da entidade, "como &eacute; sabido", desde o in&iacute;cio do governo Bolsonaro, ataques sistem&aacute;ticos &agrave; democracia, com uso de estrat&eacute;gias desconhecidas at&eacute; ent&atilde;o no Brasil, foram realizados.
+"Em circunst&acirc;ncias extraordin&aacute;rias, o Supremo Tribunal Federal (STF) atuou como p&ocirc;de para conter as agress&otilde;es. Em 2021, foi a vez de o Congresso dar um passo &agrave; frente, substituindo a antiga Lei de Seguran&ccedil;a Nacional pela Lei de Defesa do Estado Democr&aacute;tico de Direito, vetada em alguns pontos importantes pelo ent&atilde;o presidente da Rep&uacute;blica".
+"Neste ano, j&aacute; no novo governo, o Minist&eacute;rio da Justi&ccedil;a apresentou ao presidente da Rep&uacute;blica um anteprojeto que, entre outros pontos, busca fortalecer o poder da autoridade p&uacute;blica sobre as plataformas de m&iacute;dias sociais &ndash; cuja l&oacute;gica de funcionamento tem favorecido a divis&atilde;o social e o avan&ccedil;o de ideias autorit&aacute;rias em todo o mundo".
+De acordo com a entidade, uma quest&atilde;o crucial hoje &eacute; saber como buscar caminhos para aprimorar os instrumentos de defesa da democracia sem restringir as liberdades que ela visa proteger.
+Para debater todas essas quest&otilde;es, a Funda&ccedil;&atilde;o FHC reunir&aacute; dois professores de direito penal: Alaor Leite e Helena Lobo da Costa. Ambos conhecem bem a experi&ecirc;ncia alem&atilde; &ndash; que, depois do nazismo, criou uma &ldquo;democracia militante&rdquo;, voltada ao combate ativo aos extremismos &ndash;, o que n&atilde;o significa que tenham a mesma vis&atilde;o sobre seus resultados e implica&ccedil;&otilde;es.
+A media&ccedil;&atilde;o ser&aacute; do professor de Direito Constitucional e Direitos Humanos da FGV Direito SP e conselheiro da Funda&ccedil;&atilde;o FHC, Oscar Vilhena.

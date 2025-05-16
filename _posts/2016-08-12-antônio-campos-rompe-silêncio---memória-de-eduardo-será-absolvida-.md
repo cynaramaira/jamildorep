@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Antônio Campos rompe silêncio: "Memória de Eduardo será absolvida""
+date: 2016-08-12
+tags: Antonio Conte,eduardo,João Campos,Serasa
+author: None
+---
+"A memória de Eduardo será absolvida". Foi assim que o advogado Antônio Campos rompeu o silêncio da família sobre as recentes investigações sobre a compra do avião que caiu há dois anos, matando o seu irmão, o ex-governador Eduardo Campos (PSB). "Até porque não pode ser responsabilizado por atos de terceiros, que tenho convicção que ele não tinha conhecimento", acrescentou em texto enviado ao Blog de Jamildo o agora candidato a prefeito de Olinda pelo partido presidido pelo irmão até a sua morte.
+Então candidato a presidente que se colocava como terceira via em nome do que chamava "nova política", o socialista morreu na manhã de 13 de agosto de 2014, junto a quatro assessores e os dois pilotos do jatinho, quando iria cumprir um compromisso de campanha em Santos, no litoral de São Paulo. O acidente, ocorrido três dias depois do aniversário de 49 anos de Eduardo, chocou Pernambuco. Além da tragédia, a coincidência das datas: o socialista faleceu no mesmo dia, com uma diferença de nove anos, do avô, Miguel Arraes, uma das maiores lideranças da história do PSB.
+LEIA TAMBÉM
+» Pelas redes sociais, Antônio Campos fala em saudade de Eduardo no aniversário de 51 anos
+Dois anos depois, a Operação Turbulência prendeu quatro empresários após investigar a aquisição do Cessna Citation de prefixo PRA-FA e chegar a um esquema de desvio de recursos de obras da Refinaria Abreu e Lima e da Transposição do Rio São Francisco e de lavagem de dinheiro que pode ter abastecido as campanhas de Eduardo Campos em 2010 - para a reeleição ao Governo do Estado - e 2014 - na corrida presidencial - e, devido à apuração, o Ministério Público Federal (MPF) denunciou 18 pessoas apontadas como integrantes do grupo. Essa semana, no dia em que o socialista completaria 51 anos se estivesse vivo, a Polícia Federal divulgou uma nota informando que concluiu as investigações relacionadas a um inquérito da Operação Lava Jato e que tinha indícios de que a campanha do socialista à reeleição em Pernambuco recebeu R$ 20 milhões ilegalmente.
+"Sou favorável que se esclareçam os fatos e que as investigações aconteçam, dentro do devido processo legal", comentou Antônio Campos.
+» Campanha de Eduardo Campos recebeu R$ 20 milhões ilegalmente, diz PF
+» Turbulência: MPF diz que Eduardo Campos era ‘cliente’ de esquema operado por denunciados
+ No Dia das Mães, Antônio Campos publicou no Facebook uma foto com o irmão e a mãe, Ana Arraes, em homenagem a ela
+Mas não foi só em relação à Turbulência e à Lava Jato que o socialista defendeu o irmão. As memórias de Eduardo foram exaltadas por Tonca, como era chamado pelo ex-governador. "A lembrança que tenho do meu irmão é de um homem dedicado ao povo de Pernambuco e trabalhador. Eduardo doou sua vida às melhores causas de Pernambuco e do Brasil", afirmou.
+Na noite antes de morrer, Eduardo Campos concedeu entrevista ao Jornal Nacional e disse a frase que foi usada por aliados e eleitores para homenageá-lo desde então: "Não vamos desistir do Brasil". As palavras também foram repetidas diversas vezes na convenção que homologou a candidatura de Antônio Campos: "Não vamos desistir de Olinda".
+ESPECIAL
+» Eduardo Campos: legado em construção
+Governador de Pernambuco duas vezes, Eduardo Campos teve a sua gestão exaltada pelo irmão. "O seu jeito de governar era voltado para reduzir a grande dívida social que o país tem com os mais necessitados. Ele sabia que governos precisam transformar as realidades das pessoas e promover o bem-estar", defendeu ainda. As bases dos governos dele eram desenvolvimento econômico, através do crescimento do Produto Interno Bruto (PIB) com a atração de empresas, e melhoria da segurança pública, pelo Pacto pela Vida.
+Esse discurso tem sido relembrado também pelo filho mais velho do ex-gestor, João Campos, a quem a família defende como herdeiro político do socialista. A família Campos esteve na convenção para oficializar a candidatura de Geraldo Julio (PSB) à reeleição no Recife, mas não foi, no dia seguinte à de Antônio Campos. João começou a carreira política da mesma forma que o pai, como chefe de gabinete no Palácio do Campo das Princesas aos 22 anos; Eduardo no governo Miguel Arraes e o filho na gestão Paulo Câmara (PSB), nome de confiança, indicado e defendido por ele, que chegou a afirmar que seria difícil governar sem o ex-governador após a sua morte.
+» João Campos relembra o pai, Eduardo Campos, em inauguração de mais uma escola com nome do ex-governador
+» “Ninguém deve ser prejulgado por ser filho de A ou B”, diz filho de Eduardo Campos ao tomar posse de cargo público

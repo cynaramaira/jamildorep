@@ -1,0 +1,11 @@
+---
+layout: post
+title: "MPF ajuíza ação contra prefeito e secretários municipais de Serrita por improbidade administrativa"
+date: 2014-02-20
+tags: ação,Contran,eleições municipais,improbidade administrativa,prefeito
+author: None
+---
+O Ministério Público Federal (MPF) em Salgueiro (PE) ajuizou ação de improbidade administrativa contra Carlos Eurico Ferreita Cecílio, prefeito do município de Serrita (distante 544 Km de Recife), em virtude da utilização indevida de veículos federais para finalidades particulares. Também são alvos do processo os secretários municipais de Agricultura e de Planejamento, Claudivam Alves de Araújo e Rodrigo Rufino Cecílio, respectivamente.
+Segundo consta na ação, policiais federais flagraram, em novembro do ano passado, um caminhão e dois tratores com adesivos do Programa de Aceleração do Crescimento (PAC), do Governo Federal, sendo utilizados na reforma de um açude na Fazenda Minador, que pertence a Rodrigo Cecílio, filho do prefeito Carlos Cecílio. Os veículos são do PAC - 2 e foram cedidos/doados com encargo ao município visando à manutenção de infraestrutura e execução de obras hídricas e de drenagem.
+As apurações também apontaram que pessoas que dirigiam os veículos não possuíam habilitação e nem vínculo formalizado com a prefeitura. Além disso, o caminhão ainda não estava emplacado e as máquinas eram abastecidas com recursos públicos e guardadas no posto de gasolina pertencente a Rodrigo Cecílio. Destaca-se, na ação de improbidade, que os acusados tinham ciência de que empregavam bem público, de forma ilegal, em proveito particular, sem observar os princípios da moralidade, impessoalidade e interesse público, com prejuízo ao erário.
+Caso sejam condenados pela Justiça Federal, as sanções previstas são o ressarcimento do dano (R$ 4,5 mil pelo uso indevido dos veículos, correspondente ao valor de três diárias), suspensão dos direitos políticos por até 10 anos, perda da função pública e pagamento de multa, bem como proibição de contratar com o Poder Público por até 10 anos.

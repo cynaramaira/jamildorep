@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Raquel Lyra debate previdência social com o ministro Carlos Lupi"
+date: 2023-06-02
+tags: jamildo, PDT, Carlos Lupi, raquel lyra
+author: Jamildo Melo
+---
+A governadora de Pernambuco, Raquel Lyra, recebeu o ministro da Previd&ecirc;ncia Social, Carlos Lupi, no Pal&aacute;cio do Campo das Princesas. Durante a reuni&atilde;o, discutiram temas para melhorar a vida da popula&ccedil;&atilde;o, especialmente na &aacute;rea de assist&ecirc;ncia social. Tamb&eacute;m abordaram parcerias entre o governo federal e estadual para otimizar os servi&ccedil;os da Previd&ecirc;ncia Social brasileira.
+Raquel Lyra destacou que o encontro tratou de projetos para melhorar o Instituto Nacional do Seguro Social (INSS) e o sistema previdenci&aacute;rio nacional. &ldquo;Foi um prazer receber o ministro Carlos Lupi e discutir parcerias com as secretarias estaduais de Desenvolvimento Social e Direitos Humanos, al&eacute;m de articula&ccedil;&otilde;es com os munic&iacute;pios para reduzir as filas de benefici&aacute;rios que buscam per&iacute;cias e atendimentos a que t&ecirc;m direito&rdquo;, disse a governadora.
+A governadora tamb&eacute;m mencionou que o ministro apresentou novidades sobre melhorias no sistema previdenci&aacute;rio. &ldquo;O ministro trouxe novidades sobre o que est&aacute; sendo planejado para os pr&oacute;ximos anos. A implementa&ccedil;&atilde;o dessas novas a&ccedil;&otilde;es ser&aacute; importante para garantir que as pessoas que t&ecirc;m direito &agrave; assist&ecirc;ncia social em momentos de vulnerabilidade recebam o amparo garantido pela Previd&ecirc;ncia Social do Brasil&rdquo;, afirmou Raquel Lyra.
+Carlos Lupi expressou sua disposi&ccedil;&atilde;o em ajudar nas parcerias entre os governos federal e estadual. &ldquo;Foi uma conversa muito proveitosa sobre a previd&ecirc;ncia e acordos de coopera&ccedil;&atilde;o com o governo do estado para ajudar a reduzir nossa enorme fila na Previd&ecirc;ncia&rdquo;, enfatizou o ministro.

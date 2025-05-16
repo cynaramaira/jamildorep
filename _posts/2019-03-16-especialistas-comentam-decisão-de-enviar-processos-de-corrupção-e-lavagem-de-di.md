@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Especialistas comentam decisão de enviar processos de corrupção e lavagem de dinheiro à Justiça Eleitoral"
+date: 2019-03-16
+tags: corrupção,dinheiro,justiça eleitoral,lavagem d,Processos
+author: None
+---
+Agência do Rádio - Os crimes de corrupção e lavagem de dinheiro poderão ser julgados pelo TSE, caso as infrações tenham relação com questões eleitorais. A decisão é do Supremo Tribunal Federal (STF), que analisou o assunto nesta quinta-feira (14).
+O resultado foi considerado uma derrota para a Lava Jato. Os procuradores do Ministério Público Federal em Curitiba afirmaram que a Justiça Eleitoral não tem estrutura para julgar crimes complexos. De acordo com os procuradores, a nova jurisprudência pode gerar impunidade aos acusados de corrupção e lavagem de dinheiro.
+Contrário à decisão da maioria dos ministros, Luís Roberto Barroso acredita que a Justiça Federal seria a mais capacitada para julgar esse tipo de processo. Voto vencido, o magistrado afirmou no julgamento que “o problema não é para onde o dinheiro vai”, mas, sim, “de onde o dinheiro vem”.
+Especialista em direito penal, Yuri Sahione pensa diferente. De acordo com ele, embora exista a ideia de que a Justiça Eleitoral seja inferior à Justiça Federal, não há uma diferença da capacidade técnica entre as duas esferas.
+“Na perspectiva que se colocou no debate, não dá para se identificar teses jurídicas que se opunham à tradição da jurisprudência do STF. Me pareceu que os pontos contrários preponderantes foram: a Justiça Eleitoral não está aparelhada suficientemente para tratar de casos complexos. Na verdade não é um argumento que se justifica porque, na Operação Lava-Jato, nem a Justiça Federal do Paraná estava devidamente aparelhada. Foi em razão da compreensão da complexidade em certos casos que os tribunais passaram a dar o suporte necessário a quem vai atuar. Uma posição positiva na tentativa de reafirmar o ordenamento jurídico brasileiro”
+O especialista em direito eleitoral, Felipe Lizardo, também entende que a Justiça Eleitoral dispõe de competência técnica para acompanhar e fiscalizar processos eleitorais. Ele acredita, porém, que a Justiça Federal seja a mais capacitada para atuar em casos de combate à corrupção, sobretudo, que envolvam lavagem de dinheiro e crimes contra o sistema financeiro.
+Para ele, de qualquer forma, a decisão não deve prejudicar o andamento da Operação Lava Jato.
+“Os procuradores da Lava Jato chegaram a usar a expressão ‘jogar uma pá de cal na operação’. Eu não entendo dessa forma! A operação vai prosseguir e naqueles casos que houver constatação do crime de caixa dois, vai haver o deslocamento para a Justiça Eleitoral da competência. Mas as investigações que já foram realizadas não serão perdidas.”
+Os ministros Edson Fachin, Luís Roberto Barroso, Rosa Weber, Luiz Fux e Carmen Lúcia votaram a favor de manter ações penais na Justiça Federal. Já Marco Aurélio Mello, Alexandre de Moraes, Ricardo Lewandoski, Gilmar Mendes, Celso de Mello e Dias Toffoli apoiaram a ideia de que prevaleça o julgamento desse tipo de ação na Justiça Eleitoral.

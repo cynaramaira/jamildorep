@@ -1,0 +1,31 @@
+---
+layout: post
+title: "Debate na TV Jornal: Quando empatar pode significar vencer"
+date: 2014-09-17
+tags: Debate,TV Jornal
+author: None
+---
+ Foto: JC Imagem
+Por Jamildo Melo, editor do Blog
+Já ultrapassado nas pesquisas eleitorais, uma das saídas para o petebista Armando Monteiro Neto, nas próximas semanas, para reduzir ou reverter a desvantagem, será tentar abater o socialista Paulo Câmara nos debates na TV.
+No primeiro debate televisivo, realizado pela TV Jornal, nesta terça-feira (16), ficou evidente que o petebista tem mais desenvoltura no vídeo, obtida ao longo de mais de 15 anos de vida pública, em embates no Legislativo e em várias campanhas eleitorais. Neófito nos palanques, não há quem esperasse do candidato socialista, um técnico tímido até ontem, desenvoltura semelhante ou superior ao rival, sendo sempre acusado de ser um "produto de marketing".
+Nesta noite, apesar de acossado pelos rivais, Paulo Câmara não saiu abatido. Assim, para quem busca manter-se na frente nas pesquisas, empatar já é bom negócio. No primeiro bloco, Paulo chegou a passar incólume, sem sofrer maiores questionamentos.
+ Debate da TV Jornal fica polarizado entre Armando e Paulo. Foto: Arnaldo Carvalho/JC Imagem.
+Penso que, mesmo com toda bagagem em embates no legislativo, o senador Armando Monteiro não conseguiu encurralar o socialista. Mesmo mantendo a tabelinha com o PSOL, o petebista não conseguiu detonar o opositor, como seria desejável, do ponto de vista da estratégia da campanha oposicionista. O risco de ser mais incisivo é parecer agressivo e autoritário.
+Sem cometer deslizes ou gafes, Paulo Câmara também não fugiu do debate direto com o petebista, quando teve oportunidade, sem deixar de se apresentar como o candidato de Eduardo Campos, tido e havido como o maior cabo eleitoral do Estado, especialmente após sua morte, de acordo com os dados mais recentes da pesquisa do Instituto Maurício de Nassau.
+O socialista pareceu ficar desconcertado mesmo quando confrontado sobre educação, no terceiro bloco, quando perguntado pelos jornalistas sobre a falta de estrutura na faculdade de odontologia, há oito meses sem aula, em Arcoverde. Como a resposta padrão do Ideb não funcionava neste caso, o socialista foi obrigado a reconhecer os erros e prometeu correção.
+Prolixo em algumas oportunidades, o pior momento do petebista deu-se quando abordou a questão do avião de Eduardo Campos, questionando de forma genérica a concessão de benefícios fiscais para uma empresa que admitiu repassar recursos para a compra da aeronave. Não conseguiu nem concluir a pergunta. Não se sabe se foi proposital, para fugir a uma ampliação da rejeição. Falou em "episódio nebuloso" do avião.
+ Foto: JC Imagem
+O tiro saiu pela culatra, uma vez que a produção concedeu ao socialista direito de resposta e foi ironizado. “Cada vez que cai nas pesquisas perde mais a razão. Não vamos entrar neste jogo baixo”, aproveitou Paulo Câmara, para revidar.
+Em sua defesa, Armando Monteiro disse que não injuriou nem difamou. "Não se proteja com as figuras que passaram", retrucou, sem citar o nome de Eduardo Campos. "Vamos respeitar quem não está mais aqui", apressou-se Paulo, tentando jogar o petebista contra falecido, no debate.
+Falta ao petebista uma bala de prata contra o socialista, nesta questão do avião.
+ Foto: Arnaldo Carvalho/JC Imagem.
+No ataque, chegou a chamar Paulo Câmara de demagogo e usou de ironia ao desacreditar a proposta de dobrar o salário dos professores, para um piso de R$ 4 mil, em quatro anos.
+"Você como candidato foi generoso. Como secretário da fazenda, você foi perverso com o funcionalismo", ironizou. "Já teve oportunidade de fazer. o governo teve muita arrecadação e ainda assim não proporcionou melhor salário", comparou.
+Um dos problemas de Armando, ao tentar desconstruir Paulo Câmara, é medir o nível do ataque, de modo que não pareça arrogância ao eleitor. Na hora em que trocaram farpas sobre experiência e preparo, no quarto bloco, em que Paulo Câmara contrapôs Geraldo Julio e Dilma, essa linha divisória ficou visível. “Você teve experiência na burocracia, mas liderança pública não se herda. Se você perseverar, um dia terá habilitação. O problema é que você foi ungido”, disse, inicialmente.
+“Você é um rapaz aplicado, mas não tem lastro político. Não bata no peito dizendo que é líder, pois é herdeiro. A você seria atribuído a gerência. Você não tem perfil (de líder)”, sapecou o petebista.
+E se o eleitor desejar homenagear Eduardo votando no herdeiro sem perfil de líder, quem poderá impedir?
+Já o candidato do PSOL, Zé Gomes, não foi além do que se esperava dele. No bloco final, até o adversário Armando Monteiro pareceu perder a paciência e deu-lhe um coice, chamando-o de populista e demagogo. Bingo. Os dois falavam de linhas de ônibus. Gomes sugeriu que Armando teria ‘comprometimento’ com empresários do setor. Armando ainda ironizou questionando se o adversário falava em uma proposta estatizante.
+Antes disto, já havia sido desmascarado pela pergunta certeira da jornalista Inês Calado, do NE10, que comparou suas críticas generalizadas, sem propostas claras ou viáveis além de velhos chavões, em contraponto ao pífio desempenho eleitoral. Sobrou para Gomes reclamar dos 72 segundos e das coligações que lhe roubam mais tempo na tv. A repórter ainda perguntou, com acuidade, se o puro PSOL tinha se aliado ao PMN com o objetivo de apenas eleger um nome para a Alepe. Bingo.
+No embate com o mesmo nanico, ao responder sobre mobilidade na Região Metropolitana do Recife (RMR), o socialista Paulo Câmara acabou cunhando um dos motes do debate. “Você e Armando gostam de botar gosto ruim, mas não adianta botar gosto ruim”. Armando Monteiro ainda usou uma pergunta sobre saúde no interior, feita por um telespectador, para perguntar se era gosto ruim da população, mas Paulo Câmara ainda teve oportunidade de devolver, por ter a última palavra.
+O próximo debate televisivo será na TV Clube, na sexta-feira. Vamos ver como os candidatos e as coisas se comportam até lá.

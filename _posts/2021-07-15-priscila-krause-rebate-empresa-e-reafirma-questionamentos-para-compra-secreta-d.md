@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Priscila Krause rebate empresa e reafirma questionamentos para compra secreta de equipamentos musicais pela PCR"
+date: 2021-07-15
+tags: Recife
+author: Jamildo
+---
+Veja abaixo a carta enviada ao blog pela deputada, nesta quinta 
+N&atilde;o surpreende o fato de a empresa contratada secretamente pela Prefeitura do Recife, para aquisi&ccedil;&atilde;o de R$ 10,8 milh&otilde;es em instrumentos musicais durante a pandemia, julgar nossos apontamentos como &ldquo;equivocados&rdquo;: eles defendem o seu interesse comercial, n&oacute;s defendemos o interesse p&uacute;blico. &Eacute; preciso que entenda que Pernambuco n&atilde;o se resume ao PSB, velho conhecido: somos muitos, somos diferentes.
+
+    
+            Priscila Krause questiona ao TCE e MPPE compra secreta de sete mil instrumentos musicais pela Prefeitura do Recife: R$ 10,8 milhões
+            MPCO vê indícios de irregularidades e pede investigação da compra de R$ 10 milhões em instrumentos musicais no Recife
+            Empresa de equipamentos musicais rebate questionamentos de Priscila Krause e reclama de calote da PCR
+        
+
+Fato &eacute; que atrav&eacute;s de opera&ccedil;&atilde;o administrativa nebulosa e secreta, que sequer teve at&eacute; hoje seu extrato da contrata&ccedil;&atilde;o publicado no Di&aacute;rio Oficial do Munic&iacute;pio &ndash; o que o torna, conforme a Lei Federal das Licita&ccedil;&otilde;es, ineficaz &ndash; a gest&atilde;o do ex-prefeito Geraldo Julio (PSB) adquiriu silenciosamente, nos &uacute;ltimos dias depois de oito anos de administra&ccedil;&atilde;o, sete mil instrumentos musicais e sete mil estantes de partituras para as escolas municipais &ndash; fechadas desde mar&ccedil;o de 2020! Todos os itens liquidados (oficialmente entregues) ainda em dezembro passado.
+Sem licita&ccedil;&atilde;o do munic&iacute;pio! Para dispensar a disputa e a divulga&ccedil;&atilde;o do processo &ndash; que certamente traria empecilhos ao plano &ndash; a gest&atilde;o usou do artif&iacute;cio da carona numa ata de registro de pre&ccedil;os publicada em novembro de 2020, de responsabilidade do cons&oacute;rcio dos munic&iacute;pios mineiros da regi&atilde;o da Sudene. De t&atilde;o secreta, a ata n&atilde;o consta nem da presta&ccedil;&atilde;o de contas da Secretaria de Educa&ccedil;&atilde;o do Recife, exerc&iacute;cio de 2020, obrigatoriamente entregue ao Tribunal de Contas do Estado em mar&ccedil;o deste ano.
+O sil&ecirc;ncio no momento da compra &eacute; o mesmo sil&ecirc;ncio, agora, da gest&atilde;o Jo&atilde;o Campos (PSB), que mesmo afeito ao marketing, n&atilde;o citou sequer uma vez &ndash; nesses seis meses e meio &ndash; a aquisi&ccedil;&atilde;o milion&aacute;ria dos instrumentos musicais. Certamente porque n&atilde;o h&aacute; justificativa que se sustente em p&eacute; para justificar a heran&ccedil;a maldita do ex-prefeito aliado. Apesar do sil&ecirc;ncio, a administra&ccedil;&atilde;o do atual prefeito tem pago, em parcelas, a compra secreta.
+Ao anunciar que os instrumentos musicais profissionais ser&atilde;o distribu&iacute;dos a 36 escolas das 310 existentes na rede, j&aacute; que s&atilde;o impr&oacute;prios para a maior parte dos alunos da rede municipal (crian&ccedil;as na sua grande maioria sem estrutura corporal e aptid&atilde;o cognitiva para conseguir carreg&aacute;-los e manuse&aacute;-los!), a gest&atilde;o municipal esqueceu de fazer as contas &ndash; ser&atilde;o cerca de 225 instrumentos por unidade, quando na verdade cada banda, conforme orienta&ccedil;&atilde;o do Minist&eacute;rio da Educa&ccedil;&atilde;o, deveria ser composta por 14 instrumentos/integrantes. Teremos ent&atilde;o v&aacute;rias dezenas de baterias de escola de samba ou orquestras sinf&ocirc;nicas nas &ldquo;Escolas do Futuro&rdquo; do PSB?
+Por fim, reafirmo inteira confian&ccedil;a nos &oacute;rg&atilde;os de fiscaliza&ccedil;&atilde;o estaduais, que certamente tomar&atilde;o as medidas devidas para impedir que, mais uma vez, a m&aacute; gest&atilde;o e a gan&acirc;ncia com recursos p&uacute;blicos vinculados &agrave; Educa&ccedil;&atilde;o do Recife insista em nos colocar como a capital nordestina com maior gasto per capita por aluno ao mesmo tempo em que infelizmente patinamos nas &uacute;ltimas coloca&ccedil;&otilde;es do IDEB

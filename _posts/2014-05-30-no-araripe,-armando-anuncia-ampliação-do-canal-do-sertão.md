@@ -1,0 +1,13 @@
+---
+layout: post
+title: "No Araripe, Armando anuncia ampliação do Canal do Sertão"
+date: 2014-05-30
+tags: Ampliação,Armando Monteiro,canal aberto,Sertão
+author: None
+---
+
+Durante passagem por Ouricuri, no Sertão do Araripe, o senador Armando Monteiro (PTB) anunciou uma série de mudanças no projeto do Canal do Sertão, que poderão garantir o abastecimento de água a diversos municípios da região e permitir a geração de empregos com a implantação de uma área irrigada de 10 mil hectares.
+O projeto do Canal do Sertão havia sido modificado e beneficiaria apenas os municípios do São Francisco. Inicialmente, teria 145 quilômetros, mas Armando fez gestões junto ao governo federal para suspender a licitação da obra, com o objetivo de garantir que o canal fosse ampliado em mais 74 quilômetros e pudesse servir à produção agrícola por meio da irrigação e ao abastecimento humano no Araripe.
+"Os estudos para viabilização dessa obra estarão prontos em três meses e aí, sim, poderemos dizer de forma definitiva qual será a configuração final do projeto. Estamos juntos nessa luta, independentemente de qualquer circunstância, para que se possa ter essa tão sonhada obra, que até hoje não se materializou", disse Armando, durante participação do primeiro congresso da Associação de Vereadores do Araripe (AVA).
+Armando está no Araripe desde quinta-feira (29) junto com o deputado federal João Paulo (PT), pré-candidato ao Senado, para uma série de compromissos políticos e administrativos. Nesta sexta-feira (30), eles prestigiaram a inauguração do escritório de representação da Codevasf (Companhia de Desenvolvimento dos Vales do São Francisco e Parnaíba) em Ouricuri. A abertura do escritório, como forma de desconcentrar as atividades da Codevasf, hoje centralizadas na superintendência de Petrolina, é fruto de uma articulação de Armando Monteiro, juntamente com o senador Humberto Costa (PT).
+Ainda em Ouricuri, durante o congresso de vereadores, Armando Monteiro e João Paulo receberam um documento do presidente da AVA, Ubirajara Araripe, com uma série de reivindicações para serem atendidas pelo governo de Pernambuco. Entre as reivindicações estão a construção da rodovia PE 630 entre os municípios de Trindade e Dormentes, passando por Santa Filomena, e o recapeamento do trecho entre Trindade e Ipubi. Além disso, eles cobram mais estrutura de segurança pública, a construção de uma delegacia da mulher e uma unidade do IML em Ouricuri. “O Araripe precisa ser visto com outros olhos”, cobrou o presidente da AVA.

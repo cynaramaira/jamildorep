@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Ipojuca vai ganhar mega centro administrativo e de prestação de serviços"
+date: 2009-09-05
+tags: Ipojuca,serviços
+author: None
+---
+
+
+Representantes do governo municipal de Ipojuca acertaram os detalhes t&eacute;cnicos e jur&iacute;dicos para a constru&ccedil;&atilde;o de centro administrativo que concentrar&aacute; o Tribunal Regional do Trabalho, o Tribunal de Justi&ccedil;a de Pernambuco, INSS e Caixa Econ&ocirc;mica Federal numa &aacute;rea de 22 mil metros quadrados.
+O encontro foi realizado no gabinete da Presid&ecirc;ncia do TRT, no bairro do Recife Antigo, onde autoridades das mencionadas institui&ccedil;&otilde;es concordaram em desenvolver projetos, imediatos e de curto prazo, para a instala&ccedil;&atilde;o de representa&ccedil;&otilde;es na &aacute;rea doada pela Prefeitura de Ipojuca, que se responsabilizar&aacute; pelas obras de drenagem e de urbaniza&ccedil;&atilde;o no entorno do novo polo, distante 800 metros do centro daquela cidade.
+Os magistrados e os executivos dos &oacute;rg&atilde;os p&uacute;blicos interessados em se estabelecer na cidade de Ipojuca&nbsp;afirmam que a iniciativa resulta do acelerado crescimento econ&ocirc;mico com fortes demandas para servi&ccedil;os jurisdicionais e de atendimento a trabalhadores nos polos do Complexo Industrial Portu&aacute;rio de Suape e de turismo receptivo em Porto de Galinhas.
+Em menos de 30 dias a sede do munic&iacute;pio de Ipojuca est&aacute; ganhando um conjunto de projetos que ser&atilde;o executados num prazo m&eacute;dio de tr&ecirc;s anos e que prometem modificar o cen&aacute;rio urbano da cidade, acentuando os contrastes entre seculares edifica&ccedil;&otilde;es como o Mosteiro do Santo Cristo com o lado oposto pontuado de novos edif&iacute;cios com designes de vanguarda. Entre estes, o Complexo Poli Desportivo em constru&ccedil;&atilde;o gra&ccedil;as a conv&ecirc;nio com a Petrobras, cuja arma&ccedil;&atilde;o em a&ccedil;o dar&aacute; uma fei&ccedil;&atilde;o futurista &agrave; cidade.
+Os entendimentos firmados no TRT revelam tamb&eacute;m que os edif&iacute;cios a serem constru&iacute;dos no centro administrativo ter&atilde;o, em m&eacute;dia, de 1 mil metros quadrados a&nbsp;2 mil metros quadrados de &aacute;rea coberta. Alem das institui&ccedil;&otilde;es cujos representantes marcaram presen&ccedil;a na reuni&atilde;o, sabe-se tamb&eacute;m que o Minist&eacute;rio P&uacute;blico Estadual e o Minist&eacute;rio P&uacute;blico Federal manifestaram a decis&atilde;o de erguer unidades no mesmo bloco de presta&ccedil;&atilde;o de servi&ccedil;os.
+A Prefeitura de Ipojuca anunciou que colocar&aacute; todas as suas equipes t&eacute;cnicas e executivas para que analisem os projetos em regime de prioridade a fim de que as obras sejam conclu&iacute;das de acordo com os cronogramas a serem apresentados por cada uma das institui&ccedil;&otilde;es. 

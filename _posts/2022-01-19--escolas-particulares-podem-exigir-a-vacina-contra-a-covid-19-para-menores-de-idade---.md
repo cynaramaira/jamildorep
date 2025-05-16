@@ -1,0 +1,43 @@
+---
+layout: post
+title: " Escolas particulares podem exigir a vacina contra a Covid-19 para menores de idade?  "
+date: 2022-01-19
+tags: Coronavírus, vacinação infantil
+author: JAMILDO MELO
+---
+Desde dezembro, o Pa&iacute;s vem observando um grande aumento no n&uacute;mero de casos e de interna&ccedil;&otilde;es em consequ&ecirc;ncia da Covid-19 e da gripe influenza. O que acendeu um sinal de alerta para o retorno das atividades que estavam previstas, entre elas, o das aulas presenciais.
+Com isso, as dire&ccedil;&otilde;es de algumas escolas no Rio de Janeiro e pelo Brasil estabeleceram, entre suas orienta&ccedil;&otilde;es gerais para o in&iacute;cio do ano letivo, a obrigatoriedade do comprovante de vacina&ccedil;&atilde;o contra a Covid-19 para professores, funcion&aacute;rios e alunos.
+Por&eacute;m, essa exig&ecirc;ncia gerou um debate entre os pais e as escolas sobre a legalidade da decis&atilde;o.
+
+    
+            Lewandowski determina ação dos MPs estaduais contra pais antivacina
+        
+
+A vacina&ccedil;&atilde;o &eacute; obrigat&oacute;ria no Brasil nos casos recomendados pelas autoridades sanit&aacute;rias h&aacute; mais de trinta anos e est&aacute; prevista no Estatuto da Crian&ccedil;a e Adolescente. Contudo, para que essa obrigatoriedade tenha efeito, &eacute; necess&aacute;ria a inclus&atilde;o da vacina no Plano Nacional de Imuniza&ccedil;&atilde;o.
+
+    
+            Escolas particulares não exigirão vacinação de crianças, diz federação nacional
+        
+
+Segundo a advogada Francine Barreto, o Estado do Rio de Janeiro conta com legisla&ccedil;&atilde;o pr&oacute;pria e determina a obrigatoriedade da apresenta&ccedil;&atilde;o da caderneta de vacina no ato da matr&iacute;cula na pr&eacute;-escola e no 1&ordm; grau, tanto na rede de ensino p&uacute;blica como na particular.
+O Munic&iacute;pio do Rio de Janeiro tamb&eacute;m conta com legisla&ccedil;&atilde;o pr&oacute;pria, mas apenas sobre a educa&ccedil;&atilde;o infantil.
+J&aacute; as institui&ccedil;&otilde;es de ensino particular, possuem autonomia para cobrar o cart&atilde;o de vacina&ccedil;&atilde;o e assim o fazem de acordo com as recomenda&ccedil;&otilde;es das autoridades sanit&aacute;rias, sendo que em alguns Estados e Munic&iacute;pios isso &eacute; uma imposi&ccedil;&atilde;o legal.
+No entanto, o Munic&iacute;pio do Rio de Janeiro j&aacute; se pronunciou que n&atilde;o exigir&aacute; a comprova&ccedil;&atilde;o da vacina contra a Covid-19 nas escolas e, muito provavelmente, as escolas particulares seguir&atilde;o o mesmo caminho.
+Grupos de pais j&aacute; vem se organizando em abaixos-assinados para que as institui&ccedil;&otilde;es particulares que decidiram pela exig&ecirc;ncia voltem atr&aacute;s e liberem as aulas para os jovens que n&atilde;o queiram receber as doses do imunizante, ou que tenham sido impedidos por seus respons&aacute;veis.
+Os pais alegam que a vacina&ccedil;&atilde;o de crian&ccedil;as deve ser uma decis&atilde;o exclusiva dos respons&aacute;veis pelas crian&ccedil;as, n&atilde;o cabendo ao diretor da escola ou &agrave; sua diretoria o direito ou a compet&ecirc;ncia m&eacute;dica para obrigar &agrave; vacina&ccedil;&atilde;o, sob pena de privar os menores de acesso presencial &agrave; escola.
+Francine explica que em se tratando de crian&ccedil;as, a obrigatoriedade da vacina&ccedil;&atilde;o decorre da recomenda&ccedil;&atilde;o das autoridades sanit&aacute;rias e da imposi&ccedil;&atilde;o legal.
+&ldquo;Como a vacina&ccedil;&atilde;o contra o COVID-19 ainda n&atilde;o foi inclu&iacute;da no Plano Nacional de Imuniza&ccedil;&atilde;o, n&atilde;o h&aacute; como impor a sua obrigatoriedade e consequentemente, a sua comprova&ccedil;&atilde;o, bem como o impedimento da pr&aacute;tica de atos da vida civil por conta de tal exig&ecirc;ncia&rdquo;.
+Mas a advogada faz um alerta.
+No caso das institui&ccedil;&otilde;es de ensino privadas, por quest&otilde;es contratuais pode se estabelecer a obrigatoriedade da comprova&ccedil;&atilde;o da vacina, mas n&atilde;o como um impedimento para o acesso &agrave; sala de aula.
+&ldquo;Se a escola entender que &eacute; obrigat&oacute;ria por contrato a comprova&ccedil;&atilde;o da vacina&ccedil;&atilde;o para acesso &agrave;s suas depend&ecirc;ncias, em caso de negativa dos pais, pode alegar viola&ccedil;&atilde;o &agrave; norma contratual -- claro, desde que tenha sido estabelecida no contrato de servi&ccedil;os de ensino a apresenta&ccedil;&atilde;o da carteira de vacina&ccedil;&atilde;o -- e considerar que h&aacute; descumprimento ao art. 14 do ECA, pois ainda que a vacina do COVID-19 n&atilde;o esteja no Plano Nacional de Imuniza&ccedil;&atilde;o, est&aacute; inclu&iacute;da no Plano Nacional de Operacionaliza&ccedil;&atilde;o da Vacina&ccedil;&atilde;o contra a COVID-19 institu&iacute;do pelo Minist&eacute;rio da Sa&uacute;de. A escola pode ainda alegar a viola&ccedil;&atilde;o ao art. 227 da Constitui&ccedil;&atilde;o Federal pelos pais, pois ao se negarem a vacinar seu filho, deixam de assegurar o direito &agrave; sa&uacute;de em detrimento de sua pr&oacute;pria convic&ccedil;&atilde;o ideol&oacute;gica sobre a quest&atilde;o da vacina&ccedil;&atilde;o&rdquo;, afirma.
+Por outro lado, Francine esclarece que caso os pais se sintam lesados e as crian&ccedil;as sejam impedidas de frequentar as aulas, os respons&aacute;veis podem ajuizar medida judicial para garantir o acesso, sob o argumento de que a vacina&ccedil;&atilde;o n&atilde;o &eacute; obrigat&oacute;ria por n&atilde;o estar inclu&iacute;da no Plano Nacional de Imuniza&ccedil;&atilde;o -- instrumento legal que contempla todas as vacinas obrigat&oacute;rias -- e que n&atilde;o h&aacute; legisla&ccedil;&atilde;o espec&iacute;fica acerca de tal imposi&ccedil;&atilde;o.
+&ldquo;Essa quest&atilde;o j&aacute; foi enfrentada pelo Supremo Tribunal Federal - STF e a partir de uma leitura conjunta e sistem&aacute;tica das teses, os pais s&atilde;o sim obrigados a vacinar seus filhos menores de idade contra a Covid-19, se o imunizante j&aacute; estiver devidamente registrado pela ANVISA, estiver inclu&iacute;do no Plano Nacional de Imuniza&ccedil;&atilde;o - PNI e tenha sua obrigatoriedade inclu&iacute;da em lei ou sua aplica&ccedil;&atilde;o determinada pela autoridade competente&rdquo;, assegura Francine.
+Carla Dolezel, reitora da Faculdade Instituto Rio de Janeiro - FIURJ, defende que a vacina&ccedil;&atilde;o &eacute; um instrumento fundamental no combate &agrave; pandemia e ao atraso no ensino, pois vai possibilitar o retorno de forma mais segura e duradoura.
+Ela disse que a falta das aulas presenciais gerou um atraso na educa&ccedil;&atilde;o de crian&ccedil;as e jovens, atraso este, que levar&aacute; d&eacute;cadas para ser superado.
+De acordo com a reitora, a n&atilde;o vacina&ccedil;&atilde;o pode ser prejudicial ao setor de ensino, considerando que as salas de aulas geram uma aglomera&ccedil;&atilde;o.
+&ldquo;Controlar as crian&ccedil;as neste ambiente &eacute; extremamente dif&iacute;cil, especialmente no setor p&uacute;blico, onde h&aacute; um n&uacute;mero menor de funcion&aacute;rios para fiscalizar e orientar as crian&ccedil;as quanto &agrave;s medidas de preven&ccedil;&atilde;o, como uso correto das m&aacute;scaras e uso de &aacute;lcool em gel&rdquo;.
+Carla Dolezel, comenta que a expectativa de retorno das aulas presenciais ap&oacute;s dois anos de pandemia por parte das institui&ccedil;&otilde;es de ensino, dos pais e alunos &eacute; enorme.
+&ldquo;O isolamento gerado pela pandemia afetou em demasia a socializa&ccedil;&atilde;o das crian&ccedil;as e dos jovens, assim como, o n&iacute;vel de aprendizado que n&atilde;o foi o mesmo, especialmente na rede p&uacute;blica, onde muitos alunos n&atilde;o tinham acesso a tecnologia&rdquo;, garante.
+A m&eacute;dica pediatra, da Iron Telemedicina, Luciana Gualberto Rocha, relata que j&aacute; foi comprovada a efic&aacute;cia de cerca de 90% da vacina para crian&ccedil;as entre 05 e 11 anos, e que os estudos j&aacute; foram enviados para a Ag&ecirc;ncia Nacional de Vigil&acirc;ncia Sanit&aacute;ria - Anvisa.
+Ela alerta que em 2021, houveram 301 &oacute;bitos e 606 casos de s&iacute;ndromes inflamat&oacute;rias pedi&aacute;trica, no Brasil, causadas pela Covid-19.
+&ldquo;Os EUA aplicaram 8,7 milh&otilde;es de doses entre crian&ccedil;as de 05 e 11 anos, nenhuma morte foi registrada e eventos adversos graves foram raros na imuniza&ccedil;&atilde;o de crian&ccedil;as no pa&iacute;s. Temos que vacinar as crian&ccedil;as, e diminuir a dissemina&ccedil;&atilde;o e as intercorr&ecirc;ncias graves que esse v&iacute;rus vem causando&rdquo;, defende a m&eacute;dica. 

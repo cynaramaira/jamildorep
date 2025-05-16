@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Alepe adia discussão sobre a criação do Bope em Pernambuco"
+date: 2017-05-10
+tags: alepe,Ibope,pernambuco,recriação
+author: None
+---
+O projeto que dá origem ao Batalhão de Operações Policiais Especiais (BOPE) na estrutura da Polícia Militar de Pernambuco (PMPE), levará mais tempo para ser analisado na Assembleia Legislativa de Pernambuco  (Alepe). Nessa terça-feira (9), por acordo entre a bancada do Governo e da Oposição, a proposta foi retirada da pauta da reunião da Comissão de Justiça e só voltará a ser apreciada na Casa no próximo dia 16.
+De autoria do Poder Executivo, a matéria transforma a atual Companhia Independente de Operações Especiais (Cioe) num Batalhão de Operações Policiais Especiais. Com a mudança, a unidade terá o efetivo ampliado e irá contar com gratificações de R$ 2,5 mil a R$ 3,6 mil. Segundo a justificativa anexada à proposição, os custos da criação do batalhão serão viabilizados com a redução do Programa Jornada Extra de Segurança (PJES).
+O adiamento da discussão foi sugerido pelo líder do Governo e relator do texto na Comissão de Justiça, deputado Isaltino Nascimento (PSB). “Conversamos com a Oposição e por isso pedimos que a matéria seja votada na próxima semana”, explicou. “Traremos membros do Governo para debater o projeto e, em seguida, vamos submetê-lo à apreciação dos pares”, anunciou o socialista.
+Líder da Oposição, Sílvio Costa Filho (PRB) elogiou o posicionamento adotado e defendeu o aprofundamento do debate. “Quem sabe, o próprio secretário de Defesa Social possa vir tratar desse tema conosco, tendo em vista os questionamentos que temos a fazer”. Edilson Silva (PSOL) destacou a “sensibilidade do Governo em entender que é preciso mais tempo para chegar a definições mais amadurecidas”.
+Na semana passada, em manifestações no Plenário, os parlamentares contrários à medida demonstraram receio de que, com as novas gratificações, surja alguma insatisfação entre os militares que não forem beneficiados. Governistas, por sua vez, defenderam a proposta como meio de fortalecer as ações de combate ao crime organizado em Pernambuco.
+Plantões extras
+Um outro texto também dividiu as bancadas e teve a apreciação adiada na manhã dessa terça. A Emenda Modificativa que institui o Sistema de Plantões Extraordinários na Rede Estadual de Saúde, foi retirada da pauta do colegiado, a pedido da Oposição e com o consentimento da liderança do Governo.
+Já aprovada em Primeira Discussão no Plenário, a proposta do Executivo autoriza médicos e outros servidores a trabalhar em jornadas não cobertas pela escala normal e, segundo justificativa anexada ao texto, quer suprir lacunas no quadro de pessoal e garantir a continuidade do atendimento nas unidades.
+A emenda encaminhada à Alepe pelo Poder Executivo pretende que a remuneração paga aos plantonistas – que tem natureza de indenização – seja definida por decreto do governador do Estado e não mais esteja determinada na própria lei.
+“O Governo melhora o projeto, porque é difícil fixar desde já um valor que, em dado momento, pode ficar aquém do que é justo”, explicou o relator da matéria, deputado Tony Gel (PMDB). O peemedebista já havia se pronunciado favoravelmente à mudança, quando o líder da Oposição pediu mais tempo para avaliar a nova norma.
+“As entidades médicas estão preocupadas com essa questão. Há um conjunto de interrogações acerca desse tema, então vamos precisar de mais tempo para dialogar”, argumentou Sílvio Costa Filho.
+O texto deve voltar à pauta da Comissão de Justiça na próxima terça (16). Na mesma reunião, os deputados aprovaram outras dez proposições e registraram um pedido de vista.

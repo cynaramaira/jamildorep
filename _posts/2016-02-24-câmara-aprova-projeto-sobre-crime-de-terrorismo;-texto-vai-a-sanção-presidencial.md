@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Câmara aprova projeto sobre crime de terrorismo; texto vai a sanção presidencial"
+date: 2016-02-24
+tags: aprovados,Câmara,Crime,projeto,terrorismo,Texto-Base
+author: None
+---
+ Foto: Jefferson Rudy/Agência Senado
+Da ABr
+A Câmara dos Deputados aprovou hoje (24) o Projeto de Lei 2016/15, que tipifica o crime de terrorismo. O projeto, que agora vai para a sanção presidencial, classifica como ato de terrorismo “a prática, por um ou mais indivíduos, de atos por razões de xenofobia, discriminação ou preconceito de raça, cor, etnia e religião, com a finalidade de provocar terror social ou generalizado, expondo a perigo pessoa, patrimônio, a paz pública e a incolumidade pública”.
+Os deputados rejeitaram as mudanças no texto promovidas pelo Senado e mantiveram a proposta aprovada na Câmara, em agosto de 2015. A principal divergência com a proposta aprovada no Senado girou em torno de um artigo que evitava o enquadramento como ato terrorista de violência praticada no âmbito de movimentos sociais.
+O texto final, um substitutivo apresentado pelo relator Arthur Maia (SD-BA), exclui os movimentos sociais desse tipo de crime, criando uma espécie de salvaguarda. Maia disse que sua proposta deixa claro que os movimentos sociais e as manifestações políticas não serão enquadrados na Lei Antiterrorismo, enquanto, no texto aprovado pelos senadores, não constava o dispositivo, uma vez que ele foi retirado.
+LEIA TAMBÉM:
+&gt; Raul Jungmann defende adiamento da votação sobre crime de terrorismo
+&gt; Dilma defende ação internacional urgente contra o terrorismo em reunião do Brics
+&gt; Lei que tipifica terrorismo passa no Senado
+Para Maia, ações dos movimentos sociais não podem ser comparadas com atos terroristas. “O Senado Federal suprimiu a cláusula de salvaguarda democrática, inserida por esta Casa, que assegurou o direito de manifestação por parte da população”, disse Maia em seu parecer.
+Segundo o deputado, no caso de excessos cometidos por movimentos sociais na defesa de direitos e garantias assegurados na Constituição, que configurem algum crime, os responsáveis vão responder de acordo com a legislação penal existente.
+Mesmo com a exclusão, deputados argumentaram que a proposta poderia abrir margem para criminalizar manifestações políticas. O deputado Glauber Braga (Psol-RJ) criticou a falta de debate em torno do projeto. “Não é à toa que mais de 90 entidades assinaram um manifesto contra o projeto”, disse Braga.
+Movimentos sociais
+De acordo com o deputado, mesmo com a cláusula de exclusão, o projeto tem uma tipificação ampla para o crime de terrorismo que poderá ser usada para reprimir movimentos sociais e manifestações populares. “Por mais que a Câmara venha aprovar o texto com essa tipificação, e com esse tipo penal, o juiz de plantão pode, sim, fazer uma interpretação contra movimentos sociais de que estejam cometendo atos de terrorismo”, criticou.
+Para o líder do governo na Câmara, José Guimarães (PT-CE), com a retomada da exclusão, os movimentos sociais e sindicais não serão prejudicados com o projeto. “Esses movimentos sempre foram e são necessários para sustentar a evolução do processo democrático no Brasil. A proposta preserva isso, diferentemente do que fez o Senado. Preservar esse legado é algo muito importante”, disse Guimarães.
+No texto aprovado pelos deputados, são classificados como atos de terrorismo usar, ameaçar, transportar e guardar explosivos e gases tóxicos, conteúdos químicos e nucleares, com o objetivo de desestabilizar a ordem pública. O texto aprovado também inclui entre esses atos: incendiar, depredar meios de transporte públicos ou privados ou qualquer bem público, assim como sabotar sistemas de informática, o funcionamento de meios de comunicação ou de transporte, portos, aeroportos, estações ferroviárias ou rodoviárias, hospitais e locais onde funcionam serviços públicos. De acordo com o texto aprovado na Câmara, as penas para quem for enquadrado nessas atividades variam de 12 a 30 anos de reclusão em regime fechado.
+Já para quem for condenado por "constituir, integrar ou prestar auxílio, pessoalmente ou por interposta pessoa, a organização terrorista", dar abrigo a pessoa de quem saiba que tenha praticado crime de terrorismo e fazer, publicamente, apologia de terrorismo, as penas variam de quatro a oito anos de reclusão, acrescidas de multa. Essas penas serão acrescidas de um sexto a dois terços se o crime for praticado usando a internet ou por qualquer meio de comunicação social.
+A pena para qualquer dos crimes cometidos será aumentada em um terço se resultar em dano ambiental. Caberá à Polícia Federal a investigação criminal das ações apontadas como terroristas sendo que a coordenação dos trabalhos ficará a cargo do Gabinete de Segurança Institucional da Presidência da República.

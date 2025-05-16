@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Sai edital de apoio a iniciativas que promovam direito à água e saneamento nas regiões Norte e Nordeste"
+date: 2023-08-14
+tags: jamildo, recursos hídricos
+author: Jamildo Melo
+---
+A ONG Habitat para a Humanidade Brasil est&aacute; com inscri&ccedil;&otilde;es abertas para um edital que ir&aacute; apoiar iniciativas voltadas para a promo&ccedil;&atilde;o e defesa do direito &agrave; &aacute;gua, saneamento e higiene nas regi&otilde;es Norte e Nordeste do Brasil. Podem se inscrever organiza&ccedil;&otilde;es da sociedade civil, organiza&ccedil;&otilde;es populares, articula&ccedil;&otilde;es coletivas, f&oacute;runs, redes ou movimentos sociais.
+As propostas devem ter como objetivo a elabora&ccedil;&atilde;o ou implementa&ccedil;&atilde;o de estrat&eacute;gias, planos ou iniciativas como: mobiliza&ccedil;&atilde;o e forma&ccedil;&atilde;o para reivindicar o acesso aos direitos &agrave; &aacute;gua, saneamento e higiene; coleta de dados e produ&ccedil;&atilde;o de informa&ccedil;&otilde;es sobre as condi&ccedil;&otilde;es de acesso; monitoramento e fiscaliza&ccedil;&atilde;o da implementa&ccedil;&atilde;o e cumprimento das pol&iacute;ticas p&uacute;blicas relacionadas ao tema; desenvolvimento de campanhas e mobiliza&ccedil;&atilde;o popular de conscientiza&ccedil;&atilde;o sobre a import&acirc;ncia dos direitos &agrave; &aacute;gua, saneamento e higiene.
+O edital e o link para as inscri&ccedil;&otilde;es est&atilde;o dispon&iacute;veis no site da ONG Habitat para a Humanidade Brasil e ficam abertas at&eacute; o dia 27 de agosto. Ao todo, ser&atilde;o 200 mil reais disponibilizados e divididos para, pelo menos, 20 propostas que receber&atilde;o um aporte de at&eacute; 10 mil reais cada.
+&ldquo;Acesso &agrave; &aacute;gua, saneamento e higiene s&atilde;o itens b&aacute;sicos para que uma popula&ccedil;&atilde;o tenha sa&uacute;de, qualidade de vida e possa viver com dignidade. No Brasil, ainda h&aacute; milh&otilde;es de pessoas que n&atilde;o t&ecirc;m esses direitos b&aacute;sicos garantidos. E &eacute; para mitigar essa situa&ccedil;&atilde;o e trazer &agrave; tona a import&acirc;ncia de discutir este grande problema nacional que estamos lan&ccedil;ando este edital&rdquo;, disse Raquel Ludermir, gerente de Incid&ecirc;ncia Pol&iacute;tica da Habitat Brasil.

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Raul Jungmann diz que governabilidade está mantida, apesar de dificuldades"
+date: 2017-06-09
+tags: esta,Raul Jungmann
+author: None
+---
+Agência Brasil - O ministro da Defesa, Raul Jungmann, disse que o Brasil tem conseguido manter a governabilidade, apesar de as dificuldades pelas quais o país passa “terem se intensificado”. As afirmações foram feitas nesta sexta-feira (9) após ele participar de uma cerimônia em comemoração aos 152 anos da Batalha Naval do Riachuelo.
+No evento, o comandante da Marinha e almirante de esquadra, Eduardo Bacellar, disse que o Brasil passa por uma "crise profunda e multifacetada". "No entanto, por mais grave que se apresente, a crise nunca será mais forte nem maior do que nós, brasileiros”, disse o comandante.
+Citando a Batalha Naval do Riachuelo, lembrada na data magna da Marinha, Bacellar disse que, para superar as dificuldades, o país deverá ter “o mesmo espírito” de quando enfrentou, na Guerra do Paraguai, os inimigos no Rio Riachuelo, um afluente do Rio Paraguai, na província de Corrientes, na Argentina.
+“Que o espírito de união e o fervor patriótico de Riachuelo fortaleçam-se e sirvam de estímulo para superarmos nossas diferenças e atravessarmos seguros este período de adversidades e sacrifícios. A despeito de termos as nossas atenções e esforços voltados para os graves problemas internos, não podemos nos iludir com a sensação de segurança no campo externo e de perenidade da paz", disse o comandante.
+Após ter ouvido o discurso do comandante, Jungmann falou com a imprensa e fez comentários sobre a crise política e sobre o julgamento da chapa Dilma-Temer no Tribunal Superior Eleitoral (TSE).
+“Sempre tive a visão de que esse governo, pelas suas características e pelo fato em que ele mesmo se deu, seria um governo difícil. Não seria um governo fácil. Nunca me iludi a esse respeito. Essas dificuldades, todos sabem, não adianta aqui nos iludir, têm se intensificado”, disse ele. “Mas no meu modo de entender, acho que o governo tem conseguido, até aqui, manter a governabilidade. Isso é o que importa efetivamente para o Brasil, e é isso o que entendo estar acontecendo. Torço para que continue”, acrescentou.
+Jungmann falou também sobre a reforma da previdência dos militares, em elaboração. Hoje ele acenou com a possibilidade de um projeto a ser apresentado ao presidente Michel Temer ser concluído ainda em junho, já que não foi possível finalizá-lo em maio, como anunciado anteriormente. “Quanto ao presidente, [quando] vai enviá-lo ao Congresso Nacional, isso é uma decisão política que não nos compete. Mas quero dizer que a questão da reforma da proteção social dos militares, que é o termo correto, e da revisão das carreiras, tudo deve ser concluído tecnicamente, espero não ser desmentido, até o final de junho”, disse o ministro.

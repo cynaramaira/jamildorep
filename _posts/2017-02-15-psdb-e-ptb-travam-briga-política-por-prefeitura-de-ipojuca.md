@@ -1,0 +1,14 @@
+---
+layout: post
+title: "PSDB e PTB travam briga política por prefeitura de Ipojuca"
+date: 2017-02-15
+tags: briga,Ipojuca,Política,Prefeitura,PSDB
+author: None
+---
+A briga política entre os candidatos do PSDB e PTB em Ipojuca, na Região Metropolitana, volta-se agora ao campo jurídico, há 46 dias das eleições suplementares. A coligação liderada pela candidata Célia Sales (PTB) ingressou nesta terça-feira (14) com pedido de impugnação de registro do tucano Carlos Santana, que encerrou mandato de prefeito no ano passado e tentou, sem sucesso, a reeleição. Alega que ele seria inelegível por causa de condenação em segunda instância no Tribunal de Contas da União.
+"O tribunal confirmou a improbidade administrativa, em razão de obras de saneamento superfaturadas", explica o advogado de Walber Agra, que defende a coligação de Célia Sales. Em 2015, após auditoria do Tribunal de Contas do Estado (TCE) em parceria com o Tribunal de Contas da União (TCU) apontar prejuízo de mais de R$ 10 milhões à Prefeitura de Ipojuca, a Justiça chegou a decretar o bloqueio de bens de Carlos Santana, do ex-prefeito Pedro Serafim (PDT) e de mais 19 pessoas suspeitas de desvio de verbas. O Jornal do Commercio tentou, mas não conseguiu falar com Carlos Santana.
+O prazo para impugnar as três principais candidaturas a prefeito nas eleições suplementares - Santana, Célia e Olavo Aguiar (PMN) - terminou ontem. Nesta quarta-feira (15) encerra-se também o período para impugnação da candidatura de Fabiana Christine (PSOL). No entanto, segundo o cartório eleitoral da cidade, Fabiana deve ter seu pedido interferido, por não ter quitação eleitoral. É que nas eleições de 2014, quando candidata a deputada, ela não prestou contas de campanha, estando, por isso, impedida de concorrer ao novo pleito.
+Na prática, o cenário das próximas eleições só estará melhor definido após o carnaval. É que até lá correm os prazos para apresentação de defesa dos candidatos impugnados, emissão de pareceres do Ministério Público e decisão do juiz eleitoral. Caberá ainda recursos em outras instâncias.
+Novas eleições
+Ipojuca terá eleições suplementares por que o pleito de outubro foi anulado pelo Tribunal Superior Eleitoral (TSE), que considerou o candidato mais votado, Romero Sales (PTB), inelegível, com base na Lei da Ficha Limpa. Quando vereador, ele foi condenado por ter participado de um curso fora do Estado que não se realizou plenamente. Sales alega que não foi o responsável pelo curso e que devolveu os recursos públicos referentes às despesas com a viagem.
+A candidatura de sua mulher tenta agora, segundo a coligação, garantir a vontade popular. No próximo dia 8 de março haverá sorteio para ordem dos programas de rádio. A campanha, já liberada nas ruas e na internet, poderá, a partir de então, ser veiculada nas duas rádios da cidade.

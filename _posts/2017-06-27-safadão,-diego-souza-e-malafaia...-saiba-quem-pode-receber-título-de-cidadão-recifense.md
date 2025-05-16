@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Safadão, Diego Souza e Malafaia... saiba quem pode receber título de cidadão recifense"
+date: 2017-06-27
+tags: cidadão recifense,diego nigro,E-título,poderosa,Silas Malafaia,wesley safadão
+author: None
+---
+A coluna Pinga-Fogo, assinada por Giovanni Sandes no Jornal do Commercio, mostrou que, apesar de o prefeito de São Paulo, João Doria (PSDB), ter afirmado que viria ao Recife para receber na Câmara o título de cidadão da cidade, a proposta sequer foi apresentada por algum vereador. Há a proposta, porém, para homenagear o pastor Silas Malafaia. Além dele, podem receber o título ao cantor Wesley Safadão e ao jogador do Sport Diego Souza. Nove projetos sobre o assunto apresentados só este ano ainda serão votados.
+O vereador que apresentou o pedido para conceder o título a Wesley Safadão foi Felipe Francismar, do PSB, alegando "relevantes serviços prestados no ramo musical". Da mesma forma que o projeto que dá o nome do ex-governador Eduardo Campos (PSB) ao novo plenário da Assembleia Legislativa de Pernambuco (Alepe), uma parte da justificativa do projeto sobre o cantor foi copiada da Wikipedia, mas adaptada aos trabalhos feitos no Recife.
+
+O vereador argumenta no texto que há dez anos Safadão passou a fazer parte do casting da Luan Produções, empresa com sede na capital pernambucana e que cinco anos depois gravou um DVD na cidade. "Umas das grandes alegrias de Wesley foi ter participado do carnaval do Recife, cantando em vários blocos, em especial no maior bloco do mundo, o Galo da Madrugada. O artista costuma dizer que fazer show em Recife traz uma sensação diferente. É no Recife onde se encontra o seu maior número de fã-clubes e onde ele se apresenta várias vezes ao ano, média mais alta em relação a todas as outras capitais do País", diz ainda o projeto.
+No ano passado, o cachê de R$ 575 mil para Safadão no São João de Caruaru, no Agreste pernambucano, gerou polêmica. O show chegou a ser cancelado por determinação judicial, mas a gestão municipal recorreu e a apresentação foi mantida. Diante das críticas ao valor, o cantor usou o dinheiro para fazer doações a instituições filantrópicas da cidade. Este ano, a noite em que ele e Marília Mendonça se apresentaram em Limoeiro, na mesma região, custou cerca de R$ 800 mil.
+Homenagem religiosa
+No caso da homenagem a Silas Malafaia, a proposta foi apresentada pelo vereador Fred Ferreira (PSC), do clã de André - deputado estadual - e Anderson Ferreira - ex-deputado federal e agora prefeito de Jaboatão dos Guararapes. A família faz parte das bancadas evangélicas em todas as Casas. A alegação é de "relevantes serviços prestados ao povo recifense".
+No projeto, o vereador evangélico afirma que a Igreja Assembleia de Deus Vitória em Cristo, presidida por Malafaia, tem seis unidades no Recife. "É justo que este poder reconheça a liderança inconteste do pastor Silas Malafaia, pela dedicação que tem com as nossas instituições evangélicas e compromisso com uma sociedade mais justa, mais igualitária e mais ética, especialmente e na divulgação das boas novas de salvação", afirma a justificativa da proposta. Esta terça-feira (27) é o último dia do prazo regimental para que a proposta receba emendas.
+ Foto: Fabio Rodrigues Pozzebom/ABr
+Em fevereiro, Malafaia foi indiciado pela Polícia Federal na Operação Timóteo, que investiga um esquema de corrupção em cobranças judiciais de royalties da exploração mineral. Malafaia é suspeito de apoiar na lavagem do dinheiro do esquema, que recebeu valores do principal escritório de advocacia investigado.
+Outros dois líderes religiosos podem receber o título: bispo William Brígido, por iniciativa de Ana Lúcia (PRB), o reverendo Abner Ferreira de Assis, por Michele Collins (PP).
+Título para rubro-negros
+ Foto: Alexandre Gondim/JC Imagem
+Um mês antes de vir a público a intenção do Palmeiras de levar o atleta do Sport Diego Souza, o vereador Davi Muniz (PEN) apresentou à Câmara o projeto para homenageá-lo. "Quem é torcedor do Sport Club do Recife reconhece a importância que tem o jogador Diego de Souza para o mundo do esporte", diz a justificativa do projeto, que cita ainda o seu currículo e enfatiza que ele foi convocado para a seleção brasileira.
+Outros nomes
+Mesmo estando na coligação do prefeito Geraldo Julio (PSB) nas últimas eleições, Romero Albuquerque (PP) quer conceder o título de cidadão recifense a Carlos Augusto Costa, que disputou a prefeitura pelo PV. Alcides Teixeira Neto (PRTB) propôs homenagear a sanfoneira Terezinha do Arcodeon. Hélio Guabiraba (PRTB), o professor de caratê Hayashi Kawamura; Jayme Asfora (PMDB), Flavia Picolo, diretora da Accenture Brasil; Augusto Carreras (PSB), o médico Antonoaldo Grangeon Trancoso Neves.

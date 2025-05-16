@@ -1,0 +1,17 @@
+---
+layout: post
+title: "'TCE detectou R$ 36 milhões em rombo da gestão de Geraldo Júlio na pandemia' diz Priscila Krause"
+date: 2021-05-25
+tags: Geraldo Julio,Priscila Cruz
+author: None
+---
+A deputada estadual de oposição Priscila Krause (DEM) divulgou, no final da tarde desta terça-feira (25), nas suas redes sociais, levantamento apontando que o Tribunal de Contas do Estado de Pernambuco (TCE-PE) tem concluídas 31 relatórios de auditorias especiais em torno de contratações emergenciais da Secretaria de Saúde do Recife, indicando supostas irregularidades em dispensas de licitação relacionadas à gestão da pandemia.
+"De acordo com os documentos, o montante de recursos públicos que devem ser devolvidos por gestores e empresas é, por enquanto, de R$ 36,0 milhões. Parabenizo o trabalho dos auditores e analistas do TCE-PE e afirmo que os seus trabalhos precisam ter consequência", disse em vídeo.
+“Eu quero compartilhar com vocês a importância desse trabalho de auditores e analistas do Tribunal de Contas de Pernambuco, especialmente da Gerência de Contas da Capital e do Ministério Público de Contas. É um trabalho significativo em defesa do interesse público que precisa ter consequências”, afirmou.
+"Segundo os dados do gabinete, o TCE-PE instaurou 47 auditorias especiais nos gastos da Prefeitura do Recife envolvendo a pandemia das quais 31 estão com relatórios técnicos finalizados, três já foram julgadas como “regular com ressalvas” pela 1ª. Câmara da Casa e outras onze seguem “em instrução”. Cabe ao relator das contas levar os casos a julgamento", afirma.
+Nas suas contas, relatórios técnicos finalizados apontam que houve suposto superfaturamento em contratações e compras da Secretaria de Saúde do Recife em 43 dispensas de licitação.
+"Dos R$ 36,01 milhões a serem devolvidos por gestores e empresas, R$ 28,04 milhões referem-se a compras de insumos hospitalares, entre EPIs, medicamentos e materiais de penso, R$ 6,42 milhões são decorrentes de compras de equipamentos permanentes, como respiradores e monitores multiparamétricos, enquanto o restante se divide em irregularidades em serviços de engenharia e contratação de estruturas temporárias, como lonas onde funcionaram parte dos hospitais de campanha", acusa.
+"Desde maio de 2020, já denunciamos aos órgãos de controle a compra superfaturada e superdimensionada de materiais como luvas de procedimento, luvas cirúrgicas, seringas, material do kit intubação, entre vários outros. A gestão municipal contratou serviços e compras da noite para o dia, em quantidades milionárias e a preços acima do mercado, mesmo considerando a escassez no mercado. A maior parte das empresas escolhidas via dispensa de licitação eram de pequeno porte, sem condições de atender às exigências contratuais".
+“Os achados do Tribunal de Contas do Estado são substanciais, gravíssimos. Não tenho dúvidas que estamos diante do maior escândalo de má gestão e corrupção da história da nossa capital e não podemos aceitar que o cidadão seja vítima duas vezes: da pandemia e da corrupção”, diz.
+Outro lado
+A assessoria do ex-prefeito, alvo das oposições, tem sido informada dos ataques, mas tem evitado se posicionar. O blog continua aberto ao contraditório

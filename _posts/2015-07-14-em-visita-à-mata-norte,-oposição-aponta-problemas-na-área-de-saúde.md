@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Em visita à Mata Norte, oposição aponta problemas na área de saúde"
+date: 2015-07-14
+tags: litoral norte,Oposição,problemas auditivos,visita
+author: None
+---
+
+Os deputados da Bancada da Oposição na Assembleia Legislativa visitaram a Zona da Mata Norte pernambucana e lá afirmaram que constataram a “diferença entre realidade e discurso” do que é apresentado pelo Governo do Estado. Durante a manhã e início da tarde, os parlamentares visitaram os municípios de Goiana, Aliança, Carpina.
+Em Goiana, constataram as condições de atendimento a que são submetidos os pacientes do Hospital Belarmino Correia. Desde 2012 o hospital teve as obras de ampliação e modernização anunciadas, mas até hoje não foram entregues.
+No hospital, os deputados se depararam com duas situações: uma ala totalmente nova, mas sem funcionar, ainda com equipamentos intactos, sem uso e na embalagem. Por outro lado, nos antigos corredores do hospital, crianças recebendo soro sentadas em cadeiras de plástico e ambulatórios lotados, com pacientes aguardando consultas em ambientes cheios de infiltrações nas paredes.
+
+“Desde 2012, a população aguarda intervenções, como a separação das emergências adulta e pediátrica e a implantação de uma UTI com 10 novos leitos. Até hoje, nada foi efetivamente realizado”, sublinha o líder da Bancada da Oposição, deputado estadual Silvio Costa Filho. O parlamentar lembra que logo no início do mandato (08 de janeiro), o governador Paulo Câmara (PSB) foi a Goiana e anunciou a retomada das obras com previsão de entrega em 05 meses. O prazo já expirou. “Já a UTI deveria ser entregue em 3 meses após a ida do governador a Goiana, ou seja, em abril passado. Já são quase 100 dias de atraso”, aponta Silvio.
+Após passarem por Goiana, os deputados Silvio Costa Filho, Ossesio Silva (PRB), Augusto Cesar (PTB) e Julio Cavalcanti (PTB) foram ao terreno onde já deveria estar funcionando a Escola Técnica Estadual de Aliança. O centro educacional teve o processo de licitação aberto em julho de 2012. Os investimentos previstos eram de quase R$ 10 milhões. Ao falar sobre a agenda da oposição na Zona da Mata, o deputado Augusto Cesar observou que a oposição quer dar a sua contribuição para que o Governo do Estado possa errar menos. “Estamos mostrando talvez o que o próprio governo tenha dificuldade de admitir ou de detectar”, pontuou.
+A última parada do grupo de oposição foi na UPA Especialidades de Carpina, onde também foi constatada a paralisação da obra, que já está com quase um ano de atraso. Caso estivesse pronta, a UPA estaria realizando 79 mil consultas por ano, e 190 mil exames complementares, beneficiando 253 mil pessoas de toda a região, de acordo com dados divulgados pelo próprio Governo do Estado à época do anúncio do equipamento.
+Segundo Silvio, a chegada da FIAT e de outros empreendimentos para a Mata Norte foi muito importante para o desenvolvimento da região. “Mas fica claro que o Governo do Estado não está conseguindo buscar um ponto de equilíbrio entre o desenvolvimento econômico e a melhoria da qualidade de vida das pessoas. O governo não dá a devida atenção à Mata Norte”, arremata.

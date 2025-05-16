@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Boicote à Netflix. Muito barulho e pouco resultado"
+date: 2018-03-28
+tags: Netflix,resultado
+author: None
+---
+O boicote à Netflix organizado por perfis alinhados ao PT fez barulho em ambientes digitais, mas teve o efeito contrário do desejado pelos manifestantes. 
+Entre os 10 artigos com mais interações sobre a empresa de streaming, nos últimos 3 dias, 9 ironizaram o boicote ou foram usados por perfis antipetistas contra a ex-presidente Dilma Rousseff. 
+O artigo com mais interações foi a sátira do Sensacionalista que fez troça com o protesto: "Petista cancela Netflix mas abre outra conta em nome de laranja" (https://goo.gl/GbaQWe), com 90,2 mil interações até agora. O site também ironizou a série O Mecanismo, mas com repercussão mais tímida, com o título: "Padilha vai refilmar Star Wars com Chewbacca dizendo 'Luke, eu sou seu pai'" (https://goo.gl/b4g3mM, 41,3 mil interações). 
+Quem mais aproveitou o boicote foram os sites antipetistas, como o Diário Nacional (https://goo.gl/VYiT9c, 78,4 mil interações; https://goo.gl/Q9ZmJx, 46,5 mil) e JornaLivre (https://goo.gl/r6DPTw, 70,2 mil). 
+A mídia tradicional repercutiu as críticas de Dilma à série e à Netflix. Mas também alimentou perfis críticos à ex-presidente. Matéria da Folha, que enfatizou a aspa de Dilma "Netflix não está sabendo onde se meteu" (https://goo.gl/R4J1xz, 40,4 mil interações), foi tomada por sites de direita como uma ameaça de Dilma e compartilhada em tom crítico por fan pages como a Anonymous Brasil (https://goo.gl/CiC2Yd). O Estadão repercutiu a acusação de Dilma de que a série propaga fake news (https://goo.gl/VQTfa8, 33,8 mil interações). Teve mais reações de risadas e comentários contra o PT do que curtidas (https://goo.gl/VQTfa8). 
+Até mesmo uma nota revelando que o ator José de Abreu cancelou sua assinatura do serviço de streaming (https://goo.gl/r27Ksx, 36,7 mil interações) foi alvo das piadas dos internautas. De 17,3 mil reações na fan page do jornal O Globo (https://goo.gl/eyV6WF), 12,6 mil foram de risadas. 
+Os 300 artigos publicados no Brasil de ontem até as 18h40 de hoje, em sites de notícia e por produtores independentes de conteúdo, registraram 4,5 milhões de interações no Facebook e Twitter. Desse total, 34 citaram Netflix, José Padilha ou O Mecanismo – apenas duas só repercutiram uma ação promocional da empresa, sem citar as polêmicas. Os 32 textos que mencionaram o boicote geraram 799 mil interações, 17,7%. 
+No Twitter, foram feitas 555 mil menções a Netflix, O Mecanismo ou Padilha, em português, desde o dia 23, quando a série estreou. Das 25 mensagens com mais RTs, apenas uma foi crítica ao serviço de streaming: de Dilma Rousseff (https://goo.gl/aStZvC, 1.782 RTs). 
+A postura contra a empresa, porém, foi ironizada por críticos à esquerda, como o ex-deputado Babá (PSOL, https://goo.gl/fjBweX, 1.750 RTs). O burburinho foi ainda maior em torno do tema entre perfis antipetistas, com mensagens da advogada Janaína Paschoal (https://goo.gl/sjjddp, 1.762 RTs) e a ex-jogadora de vôlei Ana Paula (https://goo.gl/9Fhn3F, 3.034 RTs), por exemplo. 
+Perfis que não contribuem com a polarização pró e contra PT também se opuseram à tentativa de boicote (https://goo.gl/FzbS4j, 3.474 RTs; https://goo.gl/3yRHur, 2.438 RTs). 
+A empresa, que estava sendo criticada por setores de esquerda, se aproveitou de um tweet do deputado estadual Flávio Bolsonaro (PSL-RJ), filho do pré-candidato Jair Bolsonaro, para reconquistar a simpatia de consumidores desse campo político. Flávio sugeriu que a Netflix pretendia fazer uma série com seu pai. O perfil da empresa respondeu irreverentemente e teve 60,4 mil RTs e 109 mil curtir em menos de 6 horas (https://goo.gl/C5oExq). 
+A hashtag #omecanismocausando apareceu em 27,6 mil tweets, em geral em mensagens pró-Netflix, como do perfil satírico Joaquin Teixeira (https://goo.gl/R5tVAR, 1.650 RTs). A hashtag #cancelaNetflix só apareceu em 9,9 mil tweets, com destaque para perfis mais alinhados ao PT, como o blogueiro Rodrigo Vianna (https://goo.gl/4fHWm4, 560 RTs) e a professora Elika Takimoto (https://goo.gl/osVkTs, 345 RTs). 
+  

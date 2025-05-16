@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Coronavírus e economia: esforços do Recife e de Pernambuco estão no caminho certo. Por Guila Calheiros"
+date: 2020-03-29
+tags: Caminhões,Coronavírus,Economia,pernambuco,Recife,Renan Calheiros
+author: None
+---
+Por Guila Calheiros*, em artigo enviado ao blog
+Diante do momento de enfrentamento à disseminação do novo coronavírus e de contenção da Covid-19, além da crise sanitária, gestores municipais como eu e meus colegas da Prefeitura da Cidade do Recife e de outras Regiões do país temos trabalhado continuamente para responder à crise socioeconômica que estamos enfrentado.
+Os trabalhadores informais e pessoas em vulnerabilidade estão sofrendo desde o primeiro dia da quarentena. Sabemos que setores como os de turismo, comércio, cultura e lazer, bares e restaurantes, moda e beleza e a indústria de produtos considerados de “segunda necessidade” são alguns dos mais afetados com a crise e podem começar a demitir em massa, principalmente os pequenos negócios.
+Entretanto, os estados e municípios que estão na ponta combatendo como podem e centrando seus esforços nessa crise sanitária não possuem as ferramentas para conter a crise econômica. A União é a única entidade pública que pode socorrer os negócios nesse momento. Só ela tem o poder de enfrentar, na escala necessária, o desastre que se aproxima no setor.
+Só o Recife já realizou, desde janeiro, mais de 140 ações de combate à Covid-19. Entre as iniciativas, estão a ampliação dos leitos de atendimento nos hospitais e unidades de saúde, compra de equipamentos e materiais, contratação de profissionais, ações de divulgação e orientação à população, aquisição e distribuição de milhares de cestas básicas, entre tantas outras medidas importantes.
+Ao contrário dos estados e municípios, a União pode emitir títulos públicos e até moeda para financiar e irrigar a nossa economia, diminuindo, assim, os impactos da crise. Isso é o que todos os países vêm fazendo, como Alemanha, Inglaterra e Estados Unidos.
+Basicamente, temos algumas grandes linhas de ação: Injeção de grande volume de recursos financeiros para segurar as empresas mais afetadas, colocando o risco e as garantias em nome do Governo; uso do poder de compra do Governo Federal para investimentos fundamentais de combate à crise e também para apoiar os setores mais prejudicados; apoio financeiro direto às pessoas mais vulneráveis, resultando no aumento do consumo; suspensão do corte de serviços básicos por falta de pagamento, como água, luz e internet.
+Além destas medidas outras iniciativas são a injeção de grande volume de recursos financeiros para segurar as empresas mais afetadas, colocando o risco e as garantias em nome do governo, bem como a renegociação e adiamento das dívidas dos estados e municípios para que haja capacidade financeira de manutenção dos serviços públicos, em especial saúde e segurança. Isso também daria condições para os estados e municípios apoiarem a economia através da redução ou adiamento de obrigações tributárias e ações diretas de fomento.
+
+Em um cenário ideal de cooperação entre União, estados e municípios, cada um fazendo a sua parte, teríamos ainda mais força para combater a Covid-19 e também os seus impactos econômicos. Não estamos neste cenário ideal, mas temos a certeza de que os esforços do Recife e de Pernambuco estão no caminho certo.
+*Guilherme Calheiros é Secretário de Desenvolvimento Econômico do Recife.

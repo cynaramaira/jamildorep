@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Só quem tem direito de decretar o meu fim é o povo brasileiro, diz Lula"
+date: 2017-07-13
+tags: brasileiros,direito,Lula
+author: None
+---
+Estadão Conteúdo - No primeiro pronunciamento depois de ser condenado por corrupção passiva e lavagem de dinheiro, o ex-presidente Luiz Inácio Lula da Silva disse nesta quinta-feira (13), que a sentença proferida pelo juiz Sérgio Moro tem que prestar conta para a história por conter "forte contexto político" e não ter provas. Lula disse que a condenação tem como objetivo tirá-lo do jogo político e afirmou que com isso vai reivindicar o direito de ser candidato à presidência em 2018.
+"Quem acha que é o fim do Lula vai quebrar a cara porque quem tem direito de decretar meu fim é a população brasileira", disse o ex-presidente na sede do PT, em São Paulo, onde falou acompanhado de senadores, deputados e lideranças petistas e de partidos aliados e de integrantes de movimentos sociais, além do escritor Raduan Nassar. "Vocês vão ter um pré-candidato com um problema jurídico, mas vou brigar a boa briga democrática nas ruas", disse ele. "Podem saber que estou no jogo."
+Segundo o ex-presidente, o juiz usou a teoria do domínio no fato travestida da palavra "contexto" para fundamentar a condenação. "Moro tem que prestar conta para a História, como eu tenho que prestar conta para a História", disse. "A única prova que tem neste processo é a prova da minha inocência", disse.
+Lula foi condenado a 9 anos e 6 meses por corrupção passiva e lavagem de dinheiro no caso do triplex. "Eu queria hoje era estar discutindo a situação política e econômica do Brasil. Discutindo o golpe dentro do golpe", afirmou o petista, defendendo que o presidente Michel Temer deixe o cargo e o Congresso vote um proposta de emenda constitucional para uma eleição direta.
+O ex-presidente disse que já previa que seria condenado em outubro de 2016 quando, em artigo publicado, disse que seus acusadores criaram uma narrativa amplificada pela imprensa e não poderiam voltar atrás. "Estão condenados a me condenar e se não me prenderem serão eles desmoralizados", disse ele ao ler um trecho do artigo.
+Ao defender sua candidatura à Presidência, Lula disse que é preciso permitir que o pobre entre no Orçamento Federal novamente. "Senhores da casa grande, permitam que alguém da senzala faça o que vocês não têm competência pra fazer."
+Apoio
+Antes do pronunciamento de Lula, a senadora Gleisi Hoffmann (PR), presidente nacional do PT, disse que o ex-presidente recebeu mensagens de apoio de países como Alemanha, Cuba, Uruguai, Equador e uma pessoal do presidente da Bolívia, Evo Morales.
+Em frente à sede nacional do PT, manifestantes fizeram um ato de apoio a Lula. A rua foi fechada por um carro de som, onde oradores se revezaram ao microfone. Uma pequena multidão acompanhou o carro de som. O líder do MTST, Guilherme Boulos, presente ao encontro, afirmou que a sentença contra a Lula une os movimentos de esquerda para lutar contra a tentativa de torná-lo inelegível em 2018. "O que unifica todos os setores é que não dá para decidir a eleição no tapetão", afirmou.
+Defesa
+O advogado de Lula, Cristiano Zanin Martins, afirmou que sua equipe ainda estuda qual a melhor forma de recorrer da sentença, o que pode incluir um recurso diretamente ao TRF-4. Ele lembrou que o presidente não está impedido juridicamente de concorrer a eleição no ano que vem por ser alvo de uma decisão apenas de primeira instância.
+"Acredito que não só a questão de tempo (para a sentença em segunda instância) é relevante, mas que a inocência do ex-presidente seja reconhecida nas instâncias superiores. Nosso trabalho não é com o tempo."

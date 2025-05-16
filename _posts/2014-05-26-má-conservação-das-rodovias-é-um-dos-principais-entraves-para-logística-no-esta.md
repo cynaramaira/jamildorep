@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Má conservação das rodovias é um dos principais entraves para logística no Estado, aponta estudo da Amcham"
+date: 2014-05-26
+tags: Estado,estudo,RODOVIAS
+author: None
+---
+A Câmara Americana de Comércio no Recife (Amcham Recife) apresenta, nesta quarta-feira (28), a partir das 8h, estudo inédito sobre entraves na estrutura e na infraestrutura de Pernambuco. O levantamento mapeou os principais gargalos de transporte e logística no Estado e, entre outros pontos, concluiu que quase 100% das empresas estão insatisfeitas com as rodovias que cortam Pernambuco.
+A pesquisa ouviu, neste mês de maio, 128 profissionais de vários setores de negócio do Estado, em sua maioria presidentes e diretores de empresas locais, sobre os muitos aspectos da infraestrutura em Pernambuco. O estudo traz um olhar sobre os impactos das deficiências e oportunidades de infraestrutura na produtividade das companhias, incluindo PPPs, mobilidade urbana, modais de transporte, serviços, investimentos e obras estruturadoras.
+Participam do evento como palestrantes Adauto Duarte, diretor de RH da Fiat Chrysler em Pernambuco; Elias Lages, diretor presidente da Concessionária Rota do Atlântico; Fernando Braga, sócio da TGI Consultoria em Gestão e Diretor executivo da INTG – Instituto da Gestão; e Gustavo Maia, cofundador do aplicativo Colab.re.
+Além da apresentação do estudo inédito da Amcham, o encontro discutirá as tendências e perspectivas mundiais e nacionais de infraestrutura. Durante o debate com a iniciativa privada local, será abordado o processo de instalação da fábrica da Fiat em Goiana, na Zona da Mata Norte do Estado, as mudanças logísticas e os benefícios e os impactos das obras estruturadoras em Pernambuco, além de expor as funcionalidades do Colab.re, aplicativo colaborativo voltado para as necessidades das cidades. Com o Projeto Pernambuco em 2035, a TGI trará um panorama do Estado no futuro – meio, mobilidade urbana, infraestrutura.
+O Ciclo de Desenvolvimento Regional: Infraestrutura da Amcham-Recife é voltado para executivos e empreendedores de empresas de qualquer porte e segmento. As inscrições estão abertas pelo site www.amcham.com.br/acontece ou pelo telefone (81) 3205-1864.

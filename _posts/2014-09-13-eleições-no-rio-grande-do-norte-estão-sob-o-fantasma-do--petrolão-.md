@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Eleições no Rio Grande do Norte estão sob o fantasma do "Petrolão""
+date: 2014-09-13
+tags: eleições,Lagoa Grande,litoral norte
+author: None
+---
+
+Por Júlio Cirne, repórter do Blog.
+À frente das pesquisas de intenção de voto que apontam para uma vitória na disputa pelo Governo do Rio Grande do Norte, o deputado do PMDB Henrique Alves deparou-se na última semana com aquele que pode se tornar um obstáculo no seu caminho: a inclusão de seu nome na lista de políticos que teriam recebido dinheiro num esquema de desvio de verbas da Petrobras. A lista foi publicada pela revista Veja na edição do dia 6 de setembro e trazia o nome do presidente da Câmara entre os 25 deputados, três governadores, três senadores e um ministro de Estado que teriam participado do esquema. De acordo com a publicação, os nomes foram mencionados no depoimento de delação premiada do ex-diretor da Petrobras, Paulo Roberto Costa, preso em março pela Polícia Federal na Operação Lava Jato.
+&gt;&gt; Antigos aliados disputam o governo do Rio Grande do NorteApesar da repercussão nacional do episódio, o professor Antônio Spinelli acredita que ele ainda não teve muito impacto negativo na candidatura de Alves. "Ainda é muito cedo para avaliar se isto influenciará numa possível queda do candidato", pontuou. Os adversário de Alves reagiram dizendo que este é apenas mais um episódio polêmico na vida política do parlamentar, que foi eleito presidente da Câmara em 2013 sob acusações de suspeitas de irregularidades.   Ainda no dia em que a publicação chegou às bancas, Alves divulgou uma nota de repúdio em que considerava as acusações como "insinuações feitas de forma genérica, sem apresentar evidências." Com exceção das alegações de seus adversários e de alguns veículos da capital, Natal, encontrar notícias que liguem diretamente o nome de Alves ao esquema é uma tarefa difícil, uma vez que o parlamentar é proprietário e sócio de alguns dos maiores veículos de comunicação do Rio Grande do Norte, entre emissoras de TV, rádios um jornal de grande circulação.

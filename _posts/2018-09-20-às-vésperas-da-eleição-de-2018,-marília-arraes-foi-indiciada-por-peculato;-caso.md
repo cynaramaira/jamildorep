@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Às vésperas da eleição de 2018, Marília Arraes foi indiciada por peculato; caso foi arquivado por falta de provas"
+date: 2018-09-20
+tags: eleição,eleições2018,Falta,Marília Arraes,Provas
+author: None
+---
+A duas semanas das eleições de 2018, a delegada Patrícia Domingos, titular da Delegacia de Crimes Contra a Administração e Serviços Públicos (Decasp), confirmou nesta quinta-feira (20) ao Jornal do Commercio o indiciamento da vereadora do Recife Marília Arraes (PT). A petista foi acusada de peculato, por supostamente empregar quatro funcionários fantasmas, o que nega. O caso foi arquivado em abril de 2019 por "indícios frágeis".
+A investigação está sob sigilo, no Ministério Público de Pernambuco (MPPE). Apesar de o anúncio ter sido feito nesta quinta-feira, chegou ao órgão antes. Não há previsão para ser concluído.
+Marília disse ter sido surpreendida com a notícia e afirmou estar à disposição da Justiça. "Não temos como deixar de repudiar atitudes que claramente tem o propósito de tumultuar o processo eleitoral democrático em nome de interesses não republicanos", afirmou.
+"Há cerca de três anos, após tomar conhecimento de uma denúncia anônima totalmente absurda, que versava sobre este tema, eu mesma tomei a iniciativa de procurar o Ministério Público de Pernambuco para solicitar que os fatos fossem investigados", explicou a vereadora. "Estranhamente agora, a duas semanas das eleições, na qual eu sou candidata, a delegada responsável pelas investigações anuncia, em entrevista coletiva, sem que houvesse sequer uma comunicação oficial sobre a conclusão do inquérito, o indiciamento".
+Marília era pré-candidata ao governo de Pernambuco pelo PT. A cinco dias do prazo para as convenções, porém, o partido fechou um acordo com o PSB para retirar a candidatura dela e apoiar a reeleição de Paulo Câmara (PSB) no Estado. Com isso, o senador Humberto Costa (PT) entrou na chapa majoritária. Marília decidiu, então, disputar para deputada federal.
+Além do indiciamento dela, a delegada Patrícia Domingos anunciou o do candidato a deputado federal Milton Coelho (PSB). O socialista afirmou que nunca foi ouvido por ela. "Por fim, vou denunciar a delegada ao Ministério Público e à corregedoria, ela nunca me ouviu, o inquérito é falso. Ela está atribuindo a condição de faltoso a servidores que trabalhavam", disse.' O que ela quer é me destruir politicamente", acusou.
+Coelho justificou: "essa denúncia foi aberta com base em uma denúncia anônima de que a jornalista Roberta Jungmann seria funcionária fantasma de meu gabinete. A jornalista é funcionária de carreira do Estado há 32 anos, e passou a ser lotada na SAD em 2015, onde ficou até 2016, quando tirou licença prêmio".

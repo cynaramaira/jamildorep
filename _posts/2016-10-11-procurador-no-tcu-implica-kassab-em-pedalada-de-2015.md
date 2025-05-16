@@ -1,0 +1,29 @@
+---
+layout: post
+title: "Procurador no TCU implica Kassab em pedalada de 2015"
+date: 2016-10-11
+tags: procuradoria municipal
+author: None
+---
+Estadão Conteúdo - O Ministério Público que atua no Tribunal de Contas da União (TCU) pediu que a corte inclua o ex-ministro das Cidades Gilberto Kassab (PSD-SP), atual titular da Ciência e Tecnologia, e mais três autoridades que fizeram parte do governo Dilma Rousseff na lista de responsáveis pelas pedaladas fiscais de 2015. O relatório, subscrito pelo procurador Júlio Marcelo de Oliveira, sugere que 15 integrantes da equipe da petista sejam ouvidos para explicar as operações.
+O tribunal diz que, em 2015, o governo federal pagou os débitos com o Fundo de Garantia do Tempo de Serviço (FGTS), destinados ao custeio do Minha Casa Minha Vida, mas o fez sem autorização na Lei Orçamentária ou em Lei de Créditos Adicionais. O programa era gerido pelo Ministério das Cidades, na época chefiado por Kassab. Além dele, o procurador sugere que sejam convocados secretários executivos da pasta naquele ano.
+As pedaladas foram atrasos no repasse de verba do Tesouro Nacional para bancos públicos e o FGTS bancarem obrigações do governo com programas sociais e de empréstimos subsidiados. As manobras ocorreram tanto em 2014 quanto em 2015. Com isso, os saldos dos programas ficaram negativos nas instituições, que tiveram de cobrir os gastos com recursos próprios. O TCU já firmou o entendimento de que os atrasos configuraram empréstimos ilegais entre as instituições e a União.
+O parecer do MP de Contas, obtido pelo jornal O Estado de S. Paulo, é um dos que vão subsidiar a análise dos ministros do TCU sobre as pedaladas de 2015.
+Na semana passada, a corte julgou o processo referente às manobras do ano anterior e, entre outras penalidades, inabilitou o ex-ministro da Fazenda Guido Mantega e o ex-secretário do Tesouro Arno Augustin para o exercício de cargos em comissão e funções de confiança no serviço público federal.
+Os dois e mais seis ex-integrantes da equipe econômica do governo de Dilma foram ainda multados pelo tribunal.
+Num relatório concluído em junho, a área técnica do TCU havia apontado responsabilidade de 11 integrantes da equipe econômica de Dilma nas pedaladas de 2015, entre elas o ex-ministro da Fazenda Joaquim Levy e o então secretário do Tesouro, Marcelo Saintive. O procurador, agora, requer a inclusão de Kassab e outras autoridades no relatório que será analisado. A proposta é de que todos sejam chamados em audiências para se explicar em 15 dias.
+Relator
+As análises foram enviadas ao relator do processo no tribunal, ministro Raimundo Carreiro, a quem caberá elaborar um voto e pautar o caso para julgamento em plenário.
+Fora a inabilitação para o serviço público, o TCU tem aplicado multas aos gestores condenados pelas pedaladas. O procurador implica ainda os ex-presidentes do Banco do Brasil Alexandre Abreu e do BNDES Luciano Coutinho. Sustenta que eles foram "negligentes" e "coniventes" com as manobras.
+"Tais gestores foram partícipes dessas operações de crédito e com elas compactuaram. Com efeito, eles não tomaram providências efetivas para que seus créditos perante a União fossem satisfeitos. Como presidentes de instituições financeiras, deveriam ter adotado imediatamente as medidas de cobrança que qualquer instituição privada adotaria, inclusive medidas judiciais", argumenta.
+Banco Central
+O parecer do MP de Contas também inclui na lista de responsáveis o ex-presidente do Banco Central Alexandre Tombini e o diretor de Política Econômica do BC, Túlio José Lenti Maciel. Os dois foram multados no processo que avaliou as pedaladas de 2014 por, supostamente, permitir que os passivos criados por essas operações não fossem registrados na dívida pública, maquiando a situação fiscal do País. "Por terem permitido a continuidade da irregularidade no exercício de 2015, também merecem ser chamados em audiência no presente processo", diz o procurador.
+Ministro afirma que 'sempre respeitou as leis'
+A assessoria do ministro Gilberto Kassab informou na segunda-feira, 10, por meio de nota, que ele não foi oficialmente comunicado do relatório do Ministério Público que atua no Tribunal de Contas da União (TCU) que pede a inclusão de seu nome na lista de autoridades responsáveis pelas pedaladas fiscais de 2015.
+Segundo a nota, "eventual pronunciamento só poderá ser feito após conhecimento integral" do documento.
+"Reiteramos que o ministro, ao longo de sua vida pública, sempre se pautou pelo respeito às leis, pela lisura nos atos administrativos e pela transparência", afirmou.
+Kassab, ex-prefeito de São Paulo e filiado ao PSD, foi ministro das Cidades durante parte do segundo mandato do governo de Dilma Rousseff. Ele deixou o cargo em abril do ano passado, pouco antes do impeachment da petista.
+Procurado pela reportagem para comentar o relatório, o Banco do Brasil justificou ter cumprido "rigorosamente toda a legislação e os normativos internos sobre o assunto". Disse ainda que "prestará os esclarecimentos que se fizerem necessários após conhecer o teor do relatório".
+O ex-presidente do Banco Nacional de Desenvolvimento Econômico e Social (BNDES) Luciano Coutinho, acusado de ser "negligente" e "coniventes" com as manobras fiscais, afirmou, também em nota, desconhecer o relatório. Alegou que "todas as ações adotadas pelo BNDES estiveram dentro da lei, não havendo em nenhum momento qualquer omissão ou descumprimento de norma legal". Ele acrescentou que "não houve realização de operação de crédito" entre o banco e a União e que "os saldos em atraso foram devidamente liquidados pelo Tesouro ao fim de 2015".
+O Banco Central informou que se manifestará apenas "nos autos do processo".
+As informações são do jornal O Estado de S. Paulo.

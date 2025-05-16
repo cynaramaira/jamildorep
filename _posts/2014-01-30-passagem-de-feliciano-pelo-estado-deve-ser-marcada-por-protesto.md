@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Passagem de Feliciano pelo Estado deve ser marcada por protesto"
+date: 2014-01-30
+tags: Estado,passagem aérea,protesto
+author: None
+---
+ Foto: Antonio Cruz/ABr
+O evento evangélico organizado pelo vereador André Ferreira (PMDB) e o deputado federal Anderson Ferreira nesta quinta-feira (30) à noite promete ser marcado por polêmicas. A presença do convidado especial Marco Feliciano, deputado federal evangélico, suscitou a criação de uma manifestação paralela ao encontro religioso. Um grupo organizou, pelo Facebook, um "beijaço" para recepcionar Feliciano, ex-presidente da Comissão de Direitos Humanos da Câmara dos Deputados.
+O culto está marcado para as 19h, na Avenida Santo Elias, em Prazeres, Jaboatão dos Guararapes. Novo encontro está agendado para esta sexta-feira (31), em Ponte dos Carvalhos, Cabo de Santo Agostinho, conforme antecipou o Blog de jamildo, na segunda-feira ainda.
+Feliciano ganhou destaque nacional na época em que presidiu a Comissão de Direitos Humanos. Acusado de homofobia e racismo, ele conquistou a antipatia dos movimentos LGBT por causa de projetos polêmicos, entre eles a "cura gay", a iniciativa orientava os gays a procurarem psicólogos "para se tratar".
+De acordo com organizador do evento, Cristiano Vasconcelos, da Juventude Popular Socialista (JPS), o beijaço é um repúdio às ações fundamentalistas e homofóbicas de Marco Feliciano. "São críticas de pessoas que se dizem não preconceituosas, mas no fundo mantém posturas desrespeitosas. Se fosse um casal heterossexual teria algum problema, teria esse repúdio?", explicou.
+O vereador André Ferreira afirma que viu com "muita tristeza" a iniciativa. "O movimento LGBT sempre fala em perseguição e intolerância, mas se houver algum ato intolerante não é nosso", defendeu.
+Ferreira explica que o pastor Marco Feliciano veio fazer um trabalho de evangelização e não política. "Se eles quiserem ouvir a palavra, serão bem-vindos, mas fazer baderna eles não vão conseguir", pontuou.
+“Hoje é o dia do grande avivamento e poder de Deus. Jaboatão vai ferver e o fogo vai cair, estaremos de pé na presença do senhor. Quem estará conosco é meu amigo e Pastor conferencista Marcos Feliciano, com mais uma pregação impactante. Deus tem uma palavra para você, Não perca. Leve sua Família e amigos que não conhecem a Jesus e vamos cultuar conosco. Sua Família é um Projeto de Deus não esqueça!”, escreveu Ferreira, pelo face.
+“O Deputado Federal Marco Feliciano, conhecido como perseguidor da comunidade LGBT, estará em Pernambuco para ministrar um culto que vai ocorrer em praça publica e nós estaremos la para dar um BASTA NO FUNDAMENTALISMO RELIGIOSO E O PRECONCEITO, que tem matado milhares de homossexuais. "A NOSSA LUTA É TODO DIA CONTRA O MACHISMO, RACISMO, HOMOFOBIA. Vamos mostrar que somos contra e sempre repudiamos as atitudes desse covarde,enquanto estive da CDHM cometeu diversas atrocidades, vamos mostrar A FELICIANO pra que viemos." elas existem meu amor". FELICIANO NÃO PASSARÁ!”, escreve o face criado só para o ato.

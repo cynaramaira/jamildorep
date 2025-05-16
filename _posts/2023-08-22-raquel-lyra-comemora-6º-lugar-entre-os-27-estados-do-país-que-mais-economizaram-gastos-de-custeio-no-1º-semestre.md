@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Raquel Lyra comemora 6º lugar entre os 27 estados do País que mais economizaram gastos de custeio no 1º semestre"
+date: 2023-08-22
+tags: jamildo, Economia, raquel lyra
+author: Jamildo Melo
+---
+O governo Raquel Lyra garantiu para Pernambuco o sexto melhor desempenho entre os 27 entes subnacionais estaduais do Pa&iacute;s (26 estados e Distrito Federal) no quesito controle das despesas correntes no primeiro semestre de 2023.
+Os dados relativos ao desempenho de receitas e despesas dos estados foram divulgados nessa segunda-feira (21) pela Secretaria do Tesouro Nacional (STN).
+Segundo os n&uacute;meros do &ldquo;RREO em Foco &ndash; Estados + Distrito Federal&rdquo;, entre janeiro e junho as despesas correntes de Pernambuco cresceram 6%, pr&oacute;ximo ao ritmo da infla&ccedil;&atilde;o do per&iacute;odo (4%), enquanto as receitas recuaram em 1%. No conjunto de estados do Norte e Nordeste, o aumento m&eacute;dio de despesas foi de 13%.
+A governadora Raquel Lyra disse que os resultados confirmam a efic&aacute;cia do Plano de Qualidade dos Gastos, uma das primeiras medidas da nova gest&atilde;o, iniciado a partir da assinatura do Decreto Estadual n&ordm; 54.394, em 6 de janeiro de 2023.
+&ldquo;Nosso trabalho tem sido intenso para que os recursos arrecadados em Pernambuco sejam utilizados da forma mais respons&aacute;vel e eficiente poss&iacute;vel, permitindo fazer a mudan&ccedil;a que Pernambuco precisa. Esse resultado confirma que estamos fazendo a nossa parte para garantir que as a&ccedil;&otilde;es cheguem para quem mais precisa&rdquo;, afirma.
+O Plano de Qualidade dos Gastos teria como objetivo principal a melhoria da qualidade dos gastos no Estado, garantindo a organiza&ccedil;&atilde;o das contas estaduais e o direcionamento de investimentos que efetivamente melhorem a qualidade de vida da popula&ccedil;&atilde;o.
+Segundo a Secretaria da Fazenda, a economia de gastos n&atilde;o obrigat&oacute;rios (que exclui sal&aacute;rios e seus reajustes, por exemplo) foi de R$ 428 milh&otilde;es no primeiro semestre, destacando-se itens como servi&ccedil;os de consultoria (redu&ccedil;&atilde;o de R$ 22,2 milh&otilde;es), materiais gr&aacute;ficos (R$ 8,9 milh&otilde;es) e combust&iacute;veis (R$ 8,3 milh&otilde;es), por exemplo.
+Nos dados da STN divulgados hoje, est&atilde;o contabilizadas despesas obrigat&oacute;rias com pessoal, incluindo reajustes concedidos em 2022 com repercuss&atilde;o em 2023.
+O secret&aacute;rio da Fazenda, Wilson Jos&eacute; de Paula, disser que os dados da Secretaria do Tesouro Nacional v&atilde;o ao encontro do objetivo da gest&atilde;o Raquel Lyra nesse primeiro ano de gest&atilde;o.
+&ldquo;N&oacute;s temos feito um esfor&ccedil;o muito grande para usar o dinheiro dos impostos de forma racional, cortando sup&eacute;rfluos, e garantindo mais recursos na ponta, para o cidad&atilde;o que mais precisa. Como se v&ecirc;, tivemos um decr&eacute;scimo de um por cento na receita corrente, algo que est&aacute; ocorrendo em todo o Pa&iacute;s, por isso o Plano de Qualidade do Gasto se mostra fundamental&rdquo;, registra.
+Conforme os dados do STN, os seis estados que mais conseguiram controlar as despesas de custeio no primeiro semestre foram Minas Gerais (-11%), S&atilde;o Paulo (-6%), Distrito Federal (-4%), Maranh&atilde;o (4%), Sergipe (5%) e Pernambuco (6%). Na outra ponta, onde houve maior crescimento dos gastos de custeio no primeiro semestre do ano foi no Amap&aacute; (30%).

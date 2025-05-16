@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Oposição se une em ação por suposto uso da máquina por Danilo, Teresa, João Campos e Paulo Câmara"
+date: 2022-09-26
+tags: jamildo, eleições 2022
+author: Jamildo Melo
+---
+Os candidatos Miguel Coelho (Coliga&ccedil;&atilde;o Pernambuco Com For&ccedil;a de Novo), Raquel Lyra (Coliga&ccedil;&atilde;o Pernambuco Quer Mudar) e Anderson Ferreira (Coliga&ccedil;&atilde;o Simbora Mudar Pernambuco), ao lado dos seus candidatos ao Senado, respectivamente, Carlos Andrade Lima, Guilherme Coelho e Gilson Machado, resolveram denunciar de forma conjunta a Frente Popular de Pernambuco, o Prefeito do Recife, Jo&atilde;o Campos, e o Governador do Estado, Paulo C&acirc;mara, por supostamente beneficiarem Danilo Cabral e Luciana Santos, candidatos do PSB/PCdoB, al&eacute;m da candidata ao Senado Teresa Leit&atilde;o do PT, por uso da m&aacute;quina p&uacute;blica.
+A den&uacute;ncia se baseia, em especial, na suposta convoca&ccedil;&atilde;o dos secret&aacute;rios e secret&aacute;rias municipais e estaduais, para ajudarem na campanha.
+"Com o objetivo de reunir um ex&eacute;rcito com ocupantes de cargos comissionados, contratados e terceirizados das duas esferas do poder (mais de 4.000 pessoas) em uma verdadeira campanha de boca de urna, em n&iacute;tido comprometimento da lisura que deve imperar as elei&ccedil;&otilde;es 2022 em Pernambuco", informam os opositores.
+A mat&eacute;ria foi alvo de representa&ccedil;&atilde;o criminal perante o Minist&eacute;rio P&uacute;blico Federal (MPF) e den&uacute;ncia no Tribunal Regional Eleitoral (TRE) de Pernambuco.
+Convidada a integrar a a&ccedil;&atilde;o, a candidata Mar&iacute;lia Arraes declinou do convite. A estrat&eacute;gia pode estar j&aacute; ligada a uma expectativa de alian&ccedil;as no segundo turno, quando Mar&iacute;lia Arraes espera contar com os votos de socialistas e lulistas, no Estado. 
+'Professor de Paulo C&acirc;mara foi Danilo', diz Miguel
+O candidato a governador Miguel Coelho afirmou nesta segunda-feira (26), durante sabatina na r&aacute;dio CBN, que o candidato do PSB tenta esconder o governador Paulo C&acirc;mara da campanha eleitoral e defendeu que a popula&ccedil;&atilde;o conhe&ccedil;a cada candidatura a fundo.
+"Embora Danilo Cabral tenha adotado a estrat&eacute;gia de evitar a presen&ccedil;a do governador em sua campanha, o advers&aacute;rio socialista e Paulo C&acirc;mara representam o mesmo fracasso da gest&atilde;o atual", disse.
+&ldquo;Danilo tem vergonha e esconde o seu governador. Danilo esconde Paulo a todo custo. Mas a gente sabe que Danilo &eacute; Paulo e Paulo &eacute; Danilo. &Eacute; mais do mesmo. Paulo foi chefe de gabinete de Danilo. Ent&atilde;o, o professor de Paulo foi Danilo. Se o aluno foi ruim, imagina o professor. Pernambuco vai virar um caos&rdquo;, disse Miguel.
+O candidato do Uni&atilde;o Brasil voltou a criticar a nacionaliza&ccedil;&atilde;o da campanha eleitoral em Pernambuco e disse que pautou sua estrat&eacute;gia no debate sobre os problemas do estado.
+&ldquo;Sou candidato a governador para transformar Pernambuco. Quero ser o melhor governador que Pernambuco j&aacute; teve. Com muita humildade, mas com muita determina&ccedil;&atilde;o e com muita garra. Fazendo as parcerias necess&aacute;rias com a iniciativa privada, organiza&ccedil;&otilde;es sociais, governo federal, organismos internacionais", afirmou, na sabatina.
+"Chegando junto das pessoas, governando na rua, e n&atilde;o no pal&aacute;cio. Visitando as cidades nos quatro anos do mandato e n&atilde;o olhando os prefeitos pelos partidos, mas pela compet&ecirc;ncia e o car&aacute;ter de cada um. No segundo turno, vou continuar priorizando Pernambuco&rdquo;, afirmou.

@@ -1,0 +1,33 @@
+---
+layout: post
+title: "PGR reúne provas de contas na Suíça e os gastos de luxo da família Cunha"
+date: 2016-06-10
+tags: Contas Externas,família,gastos,luxo,Provas,thiago cunha
+author: None
+---
+Estadão Conteúdo - Um relatório de análise da Procuradoria Geral da República sobre as contas na Suíça do presidente afastado da Câmara dos Deputados, Eduardo Cunha (PMDB-RJ), reuniu os principais documentos compartilhados por autoridades estrangeiras que comprovam para a força-tarefa da Operação Lava Jato que o dinheiro que circulou nelas pertence ao parlamentar e sustentou uma rotina de luxo e ostentação em viagens a Paris, Roma, Espanha, Dubai e Miami.
+Relatório de Análise 113/2015 da Secretaria de Pesquisa e Análise da PGR foi anexado ao processo criminal aberto nessa quinta-feira (9) pelo juiz federal Sérgio Moro - dos processos da Lava Jato, em Curitiba - contra a mulher de Cunha, a jornalista Cláudia Cruz. O documento faz parte dos casos em trâmite no Supremo Tribunal Federal (STF), que tem o deputado como alvo - por ter foro privilegiado, sua parte nas acusações foi separada da mulher.
+LEIA TAMBÉM
+» Cunha diz que conta de sua mulher no exterior não recebeu recursos ilícitos
+» Teori Zavascki libera segunda denúncia contra Cunha para julgamento no STF
+O documento reúne os extratos, que mostram os gastos de luxo em lojas de grifes, restaurante badalados e hotéis de luxo do casal Cunha, em viagens feitas entre 2012 e 2014. O procurador-geral da República, Rodrigo Janot, aponta que essa vida de luxo era sustentada com dinheiro publico - desviado no esquema de cartel e corrupção montado na Petrobras.
+GASTOS - Os registros de gastos de Cláudia Cruz, que virou réu em processo aberto por Moro, mostram os gastos de 7,7 mil euros na loja da Chanel, em Paris, em janeiro de 2014, de US$ 4,4 mil na Prada, em Roma, de US$ 2,2 mil na Victoria’s Secrets, de Miami, entre outros. Na denúncia que entregou à Justiça Federal, a Procuradoria da República sustenta que a mulher de Cunha usou propina paga ao marido no esquema de corrupção da Petrobras para cobrir elevadas despesas com luxos comprados no exterior.
+» Partidos rivais se unem para afastar Eduardo Cunha definitivamente
+» Mulher de Cunha transformou dinheiro público em sapatos e roupas de grife, diz MPF
+O relatório reúne ainda nos seus anexos os extratos dos cartões de crédito usados por Cunha em suas viagens fora do Brasil.
+Segundo a acusação, a mulher do parlamentar consumiu US$ 854 387,31 em artigos de grife, como bolsas, sapatos e roupas femininas. "Os recursos que aportaram na conta de Cláudia Cruz foram utilizados, por exemplo, para pagar compras de luxo feitas com cartões de crédito no exterior", aponta a Procuradoria, que atribui à ré os crimes de lavagem de dinheiro e de evasão de divisas. "Outra parte dos recursos foi destinada para despesas pessoais diversas da família de Cunha, entre elas o pagamento de empresas educacionais responsáveis pelos estudos dos filhos do deputado afastado, como a Malvern College (Inglaterra) e a IMG Academies LLP (Estados Unidos)."
+ Foto: Marcos Oliveira/ABr
+O procurador da República Deltan Dallagnol, coordenador da força-tarefa da Lava Jato em Curitiba, destacou a comprovação de que foi dinheiro público que financiou essa rotina de luxo em Paris, Roma e Dubai da mulher de Cunha. "Essa propina foi recebida pelo Eduardo Cunha numa conta no exterior e essa propina foi passada para outra conta que era escondida no exterior por Cláudia Cruz.
+Cláudia Cruz cometeu dois tipos de lavagem de dinheiro com base nesse dinheiro, mais de US$ 1 milhão. Um tipo de lavagem de dinheiro foi pela ocultação no exterior desses mais de US$ 1 milhão que são fruto de propina, propina recebida pelo marido Eduardo Cunha. A outra lavagem de dinheiro foi a conversão desse dinheiro em bens de luxo. Dinheiro público foi convertido em sapatos e roupas de grifes", afirmou.
+CUNHA - O documento, de 57 páginas, reúne os elementos que provam para a PGR que Cunha era o dono das contas identificadas pela Suíça. Delta atacou o álibi no qual o deputado afastado alega não ser o dono das contas no exterior, que receberam recursos do operador de propinas do PMDB João Augusto Rezende Henriques - e que sustentaram os gastos de luxo da mulher. Ao Conselho de Ética da Câmara, onde enfrenta um processo de cassação, Eduardo Cunha tem batido na tecla que não mantinha contas no exterior e, sim, trustes.
+» Cunha pede para apresentar defesa antes de STF decidir pedido de prisão
+» Moro desmonta álibi de Eduardo Cunha sobre truste
+"De modo bastante simples, quem cria um truste em benefício próprio é como se usasse o truste como depositário. É como se a pessoa entregasse para o seu gerente de banco o dinheiro para depois recebê-lo de volta. E de modo bastante simples, nós podemos dizer que para esconder quem é o verdadeiro proprietário do dinheiro, os criminosos mais antiquados, mais defasados, usavam ou usam laranjas e testas de ferros. Os criminosos mais modernos, mais sofisticados, usam offshores e trustes", afirmou Deltan.
+O juiz Sérgio Moro também desmontou o álibi da família Cunha, na decisão em que aceitou denúncia contra Cláudia Cruz. "Em princípio, o álibi de que as contas e os valores eram titularizados por trustes ou off-shore é bastante questionável, já que aparentam ser apenas empresas de papel, sem existência física ou real . A Köpek (da mulher de Cunha, Cláudia Cruz), aliás, menos do que isso", assinala Moro.
+BRASIL - Num dos trechos do documento, foi destacado que para abrir a conta Triunph, declarou que os documentos do banco deveriam ser encaminhados para um endereços nos Estados Unidos, embora ele não morasse naquele país. "A justificativa alegada é que Eduardo Cunha ‘mora em país onde os serviços postais não são seguros'".
+» Humberto Costa acusa Temer de fazer ‘malabarismos’ para defender Cunha por ‘medo de delação’
+» Sérgio Moro aceita denúncia contra mulher de Cunha e mais três na Lava Jato
+Segundo o criminalista Pierpaolo Bottini, Claudia Cruz responderá às imputações como fez até o momento, colaborando com a Justiça e entregando os documentos necessários à apuração dos fatos. Destaca que não tem qualquer relação com atos de corrupção ou de lavagem de dinheiro, não conhece os demais denunciados e jamais participou ou presenciou negociações ilícitas.
+» Após manobra na CCJ a favor de Cunha, reunião é encerrada sem voto sobre cassação
+» ‘Governo não tem que se envolver’ em cassação de Cunha, diz Araújo
+&nbsp;

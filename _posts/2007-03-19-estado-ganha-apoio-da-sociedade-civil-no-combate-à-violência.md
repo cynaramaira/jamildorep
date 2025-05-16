@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Estado ganha apoio da sociedade civil no combate à violência"
+date: 2007-03-19
+tags: casa civil,combate,Estado,Ganhadores
+author: None
+---
+Nesta segunda-feira, representantes de 11 entidades representativas da sociedade civil foram ao Palácio do Campo das Princesas para entregar uma nota oficial de apoio às políticas públicas para a área de segurança, anunciadas até o momento pelo Governador Eduardo Campos. 
+Segundo o texto, “A construção democrática de um Pacto pela Vida, nos moldes do que vem sendo elaborado por sugestão do Governador Eduardo Campos, constitui oportunidade singular para que Estado e sociedade, integrados, dêem a resposta adequada à questão da segurança pública”.
+“Estamos aqui para afirmar um compromisso com o desenvolvimento de um Plano de Segurança para o Estado. Esse é um compromisso que temos com a sociedade, não apenas com o governo”, disse o presidente da Ordem dos Advogados do Brasil, secção Pernambuco, Jayme Asfora.
+O governador agradeceu o gesto promovido pelo conjunto das entidades e afirmou que o “Pacto pela Vida” está construindo, de forma democrática e participativa, um plano de segurança, não de governo, mas de Estado.
+“Não vamos recuar um palmo na construção conjunta desse plano. A sociedade não suporta mais a situação em que nos encontramos. Não é possível conviver com este nível de insegurança e violência”, disse Eduardo.
+Os representantes também classificaram como “de grande importância” o projeto de lei que viabiliza a reforma na carreira da Polícia Civil. O texto enviado pelo executivo à Assembléia Legislativa amplia para 150 o número de delegados que podem assumir cargos de chefia na corporação, abrindo mais espaços para ascensão na carreira policial. 
+“A medida em apreço, além do seu caráter democratizante, pois amplia as oportunidades de ascensão na carreira policial, valorizando o mérito, ainda tem o poder de eliminar privilégios”, diz a nota. Para o coordenador-adjunto do Centro Dom Hélder Câmara (Cendhec), Marcelo Santa Cruz, a medida dará mais eficiência ao trabalho da Polícia Civil. 
+Veja a nota das entidades
+As entidades da sociedade civil, abaixo identificadas, vêm, por meio desta nota oficial, declarar seu apoio ao processo de elaboração de um Plano Estadual de Segurança Pública, focado no combate e na prevenção ao crime, no respeito aos direitos humanos e no envolvimento de toda a sociedade na definição e implementação das ações voltadas para a proteção do cidadão.&nbsp; As instituições subscritoras avaliam que a construção democrática de um Pacto pela Vida, nos moldes do que vem sendo elaborado por sugestão do governador Eduardo Campos, constitui oportunidade singular para que Estado e sociedade, integrados, dêem a resposta adequada à questão da segurança pública, causa das maiores inquietações do povo pernambucano. 
+Entre as ações incluídas na agenda inicial do Pacto pela Vida que reputamos de grande importância está o envio, à Assembléia Legislativa, de Projeto de Lei que viabiliza a inadiável reforma da carreira da Polícia Civil. A medida em apreço, além do seu caráter democratizante, pois amplia as oportunidades de ascensão na carreira policial, valorizando o mérito, ainda tem o poder de eliminar privilégios. 
+Por fim, as entidades que subscrevem o presente documento reafirmam a compreensão de que a questão da violência não pode ser resolvida com gestos voluntaristas nem com atitudes pirotécnicas. Só o trabalho planejado, esforço permanente e disposição para o diálogo com o conjunto da sociedade, no tempo certo, devolverão aos pernambucanos a tranqüilidade perdida.&nbsp; 
+Recife, 19 de março de 2007
+Ordem dos Advogados do Brasil/ Seccional PernambucoMovimento Nacional de Direitos Humanos / Articulação EstadualGabinete de Assessoria Jurídica as Organizações Populares (GAJOP)Centro de Estudos Sociais Dom Hélder Câmara (CENDHEC)Instituto Antonio Carlos Escobar (IACE)Delegados Pela CidadaniaCentro de Cultura Luís Freire – (CCLF)Serviço Ecumênico de Militância nas Prisões (SEMPRI)Diocese Anglicana 

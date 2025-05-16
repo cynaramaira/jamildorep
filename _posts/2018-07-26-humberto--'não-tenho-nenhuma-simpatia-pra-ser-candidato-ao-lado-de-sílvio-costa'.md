@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Humberto: 'Não tenho nenhuma simpatia pra ser candidato ao lado de Sílvio Costa'"
+date: 2018-07-26
+tags: candidatos,Humberto Costa,Lado B,Silvio Costa
+author: None
+---
+Nesta quinta-feira (26), o senador Humberto Costa (PT) concedeu entrevista ao programa 'Cidade em Foco' da Rede Agreste de Rádio e fez duras críticas aos deputados federais Sílvio Costa (Avante), Bruno Araújo (PSDB) e Mendonça Filho (DEM). Durante o programa, o ex-ministro da saúde do governo Lula ainda falou sobre a disputa pelo Senado e reafirmou sua posição sobre uma aliança com o PSB.
+LEIA TAMBÉM 
+» Humberto admite que tem ‘plano B’ para Lula mas desconversa sobre nomes
+» Humberto: ‘Com Temer, Brasil segue perdendo empregos’
+» Humberto Costa faz maratona em defesa de Lula, na Mata Sul
+» Humberto cobra explicações de Jungmann sobre suposto pedido para PF não soltar Lula
+Perguntado sobre a qual cargo ele irá disputar nas próximas eleições, de senador ao lado de Jarbas (MDB) na chapa do governador Paulo Câmara (PSB) ou de deputado federal caso Marília Arraes (PT) seja candidata, o senador demonstrou seu desejo pela vaga do Senado. "Quero ser candidato a senador, por onde eu ando eu recebo o reconhecimento da população, tenho minha história, então eu acho que posso apresentar meu nome para ser senador mais uma vez. Agora minha preferência seria estar na chapa com o PSB, mas eu já disse que se a posição for outra eu vou analisar a possibilidade de ser candidato a senador ou deputado federal", contou, reafirmando sua opção pelo PSB.
+"Se a gente olhar Pernambuco, o momento que Pernambuco mais cresceu, mais se desenvolveu foi quando fizemos essa união do PT com o PSB, quando nós tínhamos o presidente Lula e Eduardo, portanto pelo bem de Pernambuco isso se justifica plenamente". 
+Sobre o PSB ter sido a favor do impeachment de Dilma Rousseff (PT) e agora buscar uma aliança com o PT, Humberto aproveitou para criticar Bruno Araújo (PSDB) e Mendonça Filho (DEM). "Se é verdade que lá no PSB tem golpista, no lado de Armando, que não foi a favor do golpe, tem por exemplo Mendoncinha, que não foi só golpista mas é um dos chefes do golpe, votou duas vezes pra Michel Temer não ser processado e que foi ministro da educação de Temer".
+"O Bruno Araújo, que também pode ser candidato a senador na chapa de lá, votou não somente pelo golpe como também livrou a cara de Temer duas vezes. E nessa aliança que a vereadora Marília está fazendo ela está juntando golpistas, o presidente do PROS, o deputado João Fernando (Coutinho), com todo o respeito, mas ele também votou pelo golpe, ele faltou nas duas votações que Temer ia ser processado, então vamos parar com a bobagem de querer dividir o mundo entre quem foi golpista e quem não foi golpista, eu quero saber quem é do governo de Temer, quem tem cargo de Temer, acho que é esse o caminho que a gente deve trilhar", insistiu.
+&nbsp;
+Questionado se pode ser candidato ao Senado ao lado do deputado Sílvio Costa (Avante) na chapa de Marília Arraes, Humberto foi claro. "Eu confesso a você que eu não tenho nenhuma simpatia pra ser candidato ao lado de Sílvio Costa, acho que ele além de contribuir pouco para o processo aqui, tem o interesse de fazer uma campanha que não é o meu estilo, campanha de agressões, não acho que ele some nada para o PT", contou. 
+Quando foi perguntado o motivo pelo qual ainda não 'anda' com o governador Paulo Câmara pelo Estado, Humberto Costa respondeu e aproveitou para criticar mais uma vez Sílvio Costa (Avante). "Primeiro porque eu tenho respeito pelo meu partido e não vou fazer como uns incheridos que tem aí, que não conversam com o partido e fica à tira colo com quem ele pensa que é candidato do partido. A primeira vez que ele (Sílvio Costa) discutiu com o partido foi ontem, agora pra ficar se metendo na vida do PT, pra ficar pra cima e pra baixo feito papagaio de pirata pra tentar disputar a eleição ele sabe fazer, eu não vou fazer isso, vou pra onde o PT decidir", disse, se referindo a Sílvio Costa que foi lançado candidato ao Senado por Marília Arraes, pré-candidata do PT. 

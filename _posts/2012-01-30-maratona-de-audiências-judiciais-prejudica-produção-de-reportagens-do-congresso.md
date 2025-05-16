@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Maratona de audiências judiciais prejudica produção de reportagens do Congresso em Foco"
+date: 2012-01-30
+tags: Congresso,Decisões Judiciais,Maratona,produção
+author: None
+---
+Come&ccedil;ou na sexta-feira, 27 de janeiro, a maratona de audi&ecirc;ncias em processos enfrentados pelo site de not&iacute;cias Congresso em Foco, alvo de uma ofensiva judicial ap&oacute;s publicar uma s&eacute;rie de reportagens sobre a exist&ecirc;ncia de sal&aacute;rios acima do teto constitucional pagos a pol&iacute;ticos, autoridades e servidores no Executivo, Judici&aacute;rio e Legislativo, informou a publica&ccedil;&atilde;o online.
+Orientados pelo Sindicato dos Servidores do Poder Legislativo (Sindilegis), que deixou advogados &agrave; disposi&ccedil;&atilde;o, 43 servidores cujos nomes foram divulgados na lista dos que ganham acima do teto ajuizaram  a&ccedil;&otilde;es id&ecirc;nticas por danos morais na justi&ccedil;a contra a p&aacute;gina eletr&ocirc;nica. Rep&oacute;rteres do Congresso em Foco precisar&atilde;o acompanhar advogados em dezenas de audi&ecirc;ncias de concilia&ccedil;&atilde;o id&ecirc;nticas em hor&aacute;rios sucessivos e, &agrave;s vezes, simult&acirc;neos, prejudicando a produ&ccedil;&atilde;o de reportagens.
+A estrat&eacute;gia dos servidores, considerada &ldquo;m&aacute; f&eacute;&rdquo; pela OAB, tem como objetivo intimidar e elevar os custos do Congresso em Foco,  al&eacute;m de impossibilitar a presta&ccedil;&atilde;o de depoimento em todos os casos,  gra&ccedil;as &agrave; grande quantidade de a&ccedil;&otilde;es em locais distintos, de acordo com  entidades jornal&iacute;sticas.
+O caso &eacute; mais um exemplo do risco, apontado por diversas organiza&ccedil;&otilde;es internacionais, da justi&ccedil;a se tornar um instrumento de censura e cerceamento da liberdade de imprensa.
+O site de not&iacute;cias ressaltou ter publicado os nomes dos servidores  que recebiam sal&aacute;rios acima do teto constitucional ap&oacute;s ouvir cinco  juristas, entre eles F&aacute;bio Konder Comparato e Ophir Cavalcante, atual presidente nacional da Ordem dos Advogados do Brasil (OAB), que apontaram o interesse p&uacute;blico em rela&ccedil;&atilde;o &agrave; divulga&ccedil;&atilde;o.

@@ -1,0 +1,19 @@
+---
+layout: post
+title: "PIB e Confiança"
+date: 2018-12-15
+tags: confiança na industria
+author: None
+---
+Por Christian Bundt, em artigo enviado ao blog
+O Instituto Brasileiro de Geografia e Estatística (IBGE) divulgou os números positivos do PIB no terceiro trimestre de 2018. A cifra foi de pouco mais de 1,7 trilhão de reais. E o setor que mais influenciou este aumento foi o de serviços, seguido pelo da agropecuária, que cresceram 0,5% e 0,7%, na comparação entre o segundo e o terceiro trimestre.
+A fatia da agropecuária no PIB cresceu 0,7% do segundo para o terceiro trimestre de 2018. Comparado ao terceiro trimestre de 2017, o terceiro trimestre de 2018 cresceu 2,5%.
+Já o setor de serviços, que tem a maior parcela dos três segmentos do PIB, pelo lado da oferta, também cresceu: 0,5% do segundo para o terceiro trimestre. Comparado com o mesmo período do ano passado, os serviços cresceram 1,2%. A indústria também cresceu: 0,4% do segundo para p terceiro trimestre de 2018. Comparando 2017 e 2018, o crescimento foi de 0,8%.
+Os números são todos positivos na observação pela oferta. Importante não esquecer que quando a agricultura cresce, os setores de indústria e de serviço também são impactados, já que os transportes de safra e a agroindústria não são contabilizados no segmento agropecuário.
+Outro ponto a considerar é que a greve dos caminhoneiros, no segundo trimestre de 2018, ajuda a ‘inflar’ o número do crescimento deste terceiro trimestre. Dos segmentos econômicos, na comparação com o trimestre imediatamente anterior, destaque para o setor de transporte e armazenagem, atividades imobiliárias e indústria de transformação. Na agropecuária, as culturas de algodão e café se apresentaram com relevância no período.
+Na comparação com o trimestre imediatamente anterior, destaque para os investimentos, explicados pela contabilização de importações de plataformas de petróleo e complementares (Petrobrás), e o consumo das famílias que novamente segue positivo desde o início de 2017. Apesar dos números positivos, ainda não há motivos para comemorações. É um crescimento moderado frente à forte recessão passada nos últimos anos e com interferências que afetam os números (greve dos caminhoneiros e importações da Petrobras).
+Atentemos nesses próximos meses para os índices de confiança de empresários e consumidores, importantes para antever o comportamento da economia. Outro ponto interessante é a confirmação de dados sobre o crescimento do crédito às pessoas físicas, de 8,9% na comparação do terceiro trimestre de 2018 com o terceiro trimestre de 2017. Na ponta governista, seguem os anúncios dos ministros do governo Bolsonaro, enquanto Temer dá aumento de quase 16% para os vencimentos do judiciário. Como diriam os mais experientes: “o medo não é como a coragem!”.
+Do lado dos economistas, nova queda na previsão do PIB para 2018: de 1,39% para 1,32%, conforme o Relatório Focus do Banco Central do Brasil. A notícia ruim a respeito do PIB foi a divulgação da carga tributária em 2017, comparada com o PIB 2017. A Receita Federal informou, no dia 03 de dezembro, que os impostos em 2017 representaram quase 33% de todo o valor do PIB de 2017. Este número é um pouquinho maior que o de 2016.
+Choremos, rezemos e torçamos para que o novo governo atente para esta situação. O dinheiro precisa ficar no bolso do cidadão, para ele decidir o que fazer com ele. O governo é um mau gastador (sem falar na corrupção!).
+Continuemos atentos para a leitura objetiva do cenário e torcendo para que o governo Temer não apronte ao apagar das luzes (leia-se não dê mais aumentos) e que o novo governo seja mais assertivo na comunicação e feliz nas escolhas dos componentes da equipe!
+Christian Bundt é administrador, professor da Universidade Estadual de Ponta Grossa (UEPG) e membro do Comitê Macroeconômico do ISAE Escola de Negócios.

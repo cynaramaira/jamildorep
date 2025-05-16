@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Estudo da Oposição aponta que Estado já deve R$ 1 bilhão a fornecedores em 2016"
+date: 2016-12-14
+tags: Estado,estudo,Oposição
+author: None
+---
+Estudo da Bancada de Oposição na Assembleia Legislativa de Pernambuco (Alepe), discutido nessa terça-feira (13) no plenário da Casa, aponta que o Governo do Estado está encerrando o ano de 2016 com cerca de R$ 1 bilhão em dívidas com fornecedores, assim como aconteceu em 2015.
+Os números, levantados no Portal da Transparência do Estado, apontam que até o dia 31 de outubro o Governo já contabilizava um saldo a pagar de R$ 959,3 milhões.
+Com base no estudo, a Bancada de Oposição vai apresentar um pedido para que o Secretário da Fazenda, Marcelo Barros, compareça à Alepe para discutir a questão dos débitos com os fornecedores.
+Líder da Oposição, o deputado Silvio Costa Filho (PRB) destaca que esse é o segundo ano consecutivo que o governo Paulo Câmara (PSB) deve fechar o ano com uma dívida grande com os fornecedores. “Ao final de 2015, o Estado inscreveu como restos a pagar um montante de R$ 1 bilhão, dos quais R$ 170,9 milhões ainda não foram pagos até agora. Isso por produtos e serviços prestados ainda no ano passado”, destaca o parlamentar.
+Em aparte, a deputada Priscila Krause lembrou que no ano passado o Governo deixou mais de R$ 1 bilhão de restos a pagar apesar de receitas extraordinárias. “O que salvou o Estado, foi a venda da folha de pagamentos, no valor de R$ 740 milhões, que foram injetados no caixa. Este ano estamos contando com o dinheiro do Refis e do repatriamento. O Governo vem sempre recorrendo a receitas extras para fechar a conta, mas não apresenta uma alternativa de redução de despesas para equilibrar o caixa”, questionou.
+Para a Oposição, o descompasso entre as receitas e despesas do Estado confirma a necessidade de uma reforma administrativa, com redução de Secretarias e de cargos comissionados. “O 13º salário só está pago graças aos recursos da repatriação. E mesmo assim, caminhamos novamente para fechar o ano com uma dívida de mais de R$ 1 bilhão, apesar do pacote de aumento de impostos aprovado em 2015, que deveria render um reforço de caixa de quase R$ 500 milhões.”, lembra Silvio.
+Segundo o deputado, além de comprometer a prestação de serviços à população, que deveria ser prioridade do Governo, as dívidas do Estado comprometem o equilíbrio financeiro das empresas contratadas pelo Governo e aumenta o desemprego. “Governar é fazer escolhas. A Bancada de Oposição está à disposição para sentar à mesa e discutir a redução do tamanho do Estado e os problemas de Pernambuco, sobretudo nas áreas de educação, saúde e segurança pública, para que a conta do desequilíbrio financeiro de Pernambuco não continue sendo paga pela sociedade”, ressalta.

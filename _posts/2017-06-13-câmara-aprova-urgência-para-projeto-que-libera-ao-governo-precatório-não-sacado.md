@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Câmara aprova urgência para projeto que libera ao governo precatório não sacado"
+date: 2017-06-13
+tags: aprovados,Câmara,governo,Liberação,Naomi Campbell,precatórios,projeto
+author: None
+---
+Estadão Conteúdo - Deputados aprovaram nesta terça-feira (13), por 303 votos a 69, o regime de urgência para tramitação projeto de lei que permite ao governo federal resgatar os precatórios depositados mas não sacados pelos beneficiários no prazo previsto em lei, de dois anos. A iniciativa poderia trazer mais de R$ 8,6 bilhões aos cofres da União. Com a aprovação, deputados já começaram a votar o mérito da proposta.
+A liderança do governo defende a aprovação do texto original do projeto enviado pelo governo. A proposta faz parte do pacote de medidas econômicas que o governo quer aprovar no Congresso Nacional para incrementar receitas. O objetivo é liberar o quanto antes uma parte maior dos recursos do Orçamento que foram bloqueados no início do ano. Até o momento, as despesas de custeio represadas pelo contingenciamento somam R$ 38,978 bilhões.
+Caso o projeto seja aprovado rapidamente pela Câmara e pelo Senado, o governo cogita preparar e divulgar um relatório extemporâneo de avaliação de receitas e despesas, para liberar o dinheiro o mais breve possível, como mostrou o Broadcast, serviço de notícias em tempo real do Grupo Estado, na semana passada. A divulgação regular do relatório é feita a cada dois meses. A próxima está programada para até 22 de julho, referente ao terceiro bimestre do ano. Mas a avaliação da área econômica é de que há despesas que precisam ser urgentemente liberadas, inclusive na área da saúde.
+A proposta para o resgate dos precatórios foi enviada pelo governo no último dia 15 de maio, com pedido de urgência constitucional para que a matéria seja aprovada na Casa em até 45 dias. Esse prazo vence em 29 de junho. Caso não seja votado até lá, o projeto passa a trancar a pauta do plenário. O projeto foi aprovado nesta terça-feira na Comissão de Constituição e Justiça (CCJ) na Câmara.

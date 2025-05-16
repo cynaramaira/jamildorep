@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Boa notícia. Ciclistas e Detran-PE vão ampliar discussão sobre respeito no trânsito"
+date: 2014-06-30
+tags: boa notícia,Detran,Galvão Bueno,motociclistas,trânsito
+author: None
+---
+Os ciclistas terão mais espaço para diálogo dentro do Detran-PE. A afirmativa foi dada, na manhã desta segunda (30), pelo diretor presidente do órgão, Caio Mello, ao receber uma proposta do ex-secretário de Turismo e Lazer do Recife, Felipe Carreras, para inclusão, no exame teórico de direção, de questões sobre a legislação que trata de bicicletas e ciclistas, mas com foco principal para elevar o respeito dos motoristas com os ciclistas.
+“Precisamos ampliar o conhecimento sobre os direitos e deveres dos ciclistas. No trânsito, o ciclista é o lado mais fraco, mais vulnerável, o motorista precisa ter mais consciência sobre isso, pois estamos falando da segurança de vidas”, comentou Felipe Carreras durante a reunião, que também contou com a presença da vereadora Aline Mariano, do diretor de Atendimento do Detran, Wanderson Florêncio, e do cicloativista Alcides Neto.
+De acordo com Alcides Neto, da Ciclo Adventure, o maior número de desrespeito no trânsito com ciclistas é causado por motoristas que estão dirigindo a trabalho, como motoristas de ônibus, taxistas e motoboys.
+“De fato, temos que interagir mais para mudar isso. Vamos abrir espaço para que os ciclistas venham dar palestras para nossos monitores do Detran”, afirmou Caio Mello, que também ressaltou a necessidade de aprimorar essa discussão para o exame de habilitação direcionado aos motoristas profissionais. “O desafio agora é fazer com que as pessoas que utilizam a bicicleta como meio de transporte para ir ao trabalho se sintam mais seguras no trânsito”, disse Aline Mariano.
+Além de solicitar a inclusão de questões que versem sobre o respeito entre motoristas e ciclistas, tanto nos exames para obter ou renovar a carteira de habilitação, o documento entregue por Felipe Carreras sugere a possibilidade de incluir perguntas elaboradas por representantes de associações de ciclistas.
+Na lista de propostas está ainda a inclusão dos temas bicicletas no trânsito e respeito aos ciclistas entre os assuntos debatidos durante os cursos de reciclagem para motoristas infratores. Nessas aulas, a proposta de Felipe Carreras é que, inclusive, o Detran-PE esteja munido de material didático para distribuir com os condutores que tiveram a CNH suspensa ou cassada.

@@ -1,0 +1,36 @@
+---
+layout: post
+title: "Prefeitura do Recife modifica trânsito no entorno do Mercado da Madalena"
+date: 2011-10-20
+tags: Mercado,Prefeitura,Recife,trânsito
+author: None
+---
+A Prefeitura do Recife realiza, neste s&aacute;bado (22), mais uma etapa do Plano de A&ccedil;&otilde;es para o Tr&acirc;nsito 2011/2012. Dessa vez, o trabalho beneficiar&aacute; o entorno do Mercado da Madalena com algumas mudan&ccedil;as no tr&aacute;fego, na &aacute;rea de estacionamento, al&eacute;m de implanta&ccedil;&atilde;o e manuten&ccedil;&atilde;o de sinaliza&ccedil;&atilde;o horizontal e vertical. A opera&ccedil;&atilde;o visa a melhorar a circula&ccedil;&atilde;o de ve&iacute;culos e pedestres pela &aacute;rea, especialmente na Rua Real da Torre e nas vias localizadas por tr&aacute;s do centro comercial.
+
+A principal interven&ccedil;&atilde;o ser&aacute; a cria&ccedil;&atilde;o de tr&ecirc;s bin&aacute;rios no entorno do mercado, ou seja, transforma&ccedil;&atilde;o de ruas paralelas em m&atilde;o &uacute;nica e com sentidos de fluxo opostos. Um desses percursos ser&aacute; entre as ruas Dr. Jo&atilde;o Coimbra e Dr. Berardo e outro nas ruas Ernani Braga e Dr. Jos&eacute; Higino. Por fim, ser&aacute; formado um bin&aacute;rio entre as ruas Castro Le&atilde;o e Manuel Bezerra, que contornam o Centro de Forma&ccedil;&atilde;o de Educadores Professor Paulo Freire e a Facipe.&nbsp; 
+
+Al&eacute;m dos bin&aacute;rios, o entorno do Mercado da Madalena ter&aacute; proibi&ccedil;&atilde;o permanente de estacionamento na pista principal da Rua Real da Torre, em frente ao equipamento. Tamb&eacute;m ser&aacute; proibido estacionamento, por tr&aacute;s do mercado, no lado direto da Real da Torre, no sentido Torre/Av.Caxang&aacute;, com exce&ccedil;&atilde;o do trecho compreendido entre as ruas Dr. Jo&atilde;o Coimbra e Dr. Berardo. Neste &uacute;ltimo trecho, a proibi&ccedil;&atilde;o ser&aacute; somente nos hor&aacute;rios: das 6h &agrave;s 20h, nos dias &uacute;teis, e de 6h &agrave;s 14h nos s&aacute;bados. J&aacute; no lado direito da pista local no sentido Caxang&aacute;/Torre, a parada de ve&iacute;culos continua liberada.
+
+Com as mudan&ccedil;as, o ponto de carga e descarga ser&aacute; deslocado para a pista local da Real da Torre, no trecho ao lado do Mercado da Madalena. Ser&aacute; criada ainda uma faixa de pedestres em frente ao equipamento municipal. &ldquo;As interven&ccedil;&otilde;es somam-se ao trabalho de disciplinamento j&aacute; realizado pela administra&ccedil;&atilde;o municipal na Rua Jos&eacute; Os&oacute;rio no &uacute;ltimo m&ecirc;s de setembro. Com isso iremos facilitar ainda mais o fluxo naquela &aacute;rea importante da Zona Oeste&rdquo;, afirma a presidenta da CTTU, Maria de Pomp&eacute;ia. 
+
+&nbsp;Confira o mapa explicativo e os detalhes das mudan&ccedil;as em cada via da &aacute;rea:
+Entorno do mercado da madalena final model (2)
+View more documents from Jamildo Melo.
+
+Rua Dr. Jo&atilde;o Coimbra &ndash; Essa via deixa de ser m&atilde;o dupla e passa a ser sentido &uacute;nico na dire&ccedil;&atilde;o Real da Torre/Caxang&aacute;, no trecho compreendido entre as ruas Ernani Braga e Real da Torre. Haver&aacute; ainda proibi&ccedil;&atilde;o de estacionamento com hor&aacute;rio no lado direito do novo fluxo. A proibi&ccedil;&atilde;o ser&aacute; de 06h &agrave;s 20h nos dias &uacute;teis e de 06h &agrave;s 14h nos s&aacute;bados.
+
+Rua Dr. Berardo &ndash; A via passa a ser m&atilde;o &uacute;nica no sentido oposto da Rua Dr. Jo&atilde;o Coimbra, ou seja, Av. Caxang&aacute;/Real da Torre, no intervalo entre as ruas Ernani Braga e Real da Torre. Tamb&eacute;m ser&aacute; vetado o estacionamento de ve&iacute;culos com hor&aacute;rio (de 6h &agrave;s 20h nos dias &uacute;teis e de 6h &agrave;s 14h nos s&aacute;bados) no lado esquerdo do fluxo.
+
+Rua Ernani Braga &ndash; A Ernani Braga ser&aacute; transformada em sentido &uacute;nico, na dire&ccedil;&atilde;o da Rua Jos&eacute; Os&oacute;rio para a Rua Galv&atilde;o Raposo. A via ter&aacute; estacionamento proibido no lado esquerdo do novo tr&aacute;fego de ve&iacute;culos com hor&aacute;rio (de 6h &agrave;s 20h nos dias &uacute;teis e de 6h &agrave;s 14h nos s&aacute;bados), no trecho entre as ruas Jos&eacute; Os&oacute;rio e Menezes Drumond. J&aacute; no lado direito, a proibi&ccedil;&atilde;o de estacionamento ser&aacute; 24 horas, no trecho compreendido entre a Menezes Drumond e Galv&atilde;o Raposo.
+
+Rua Dr. Jos&eacute; Higino &ndash; Essa via passa a ter o sentido oposto da Rua Ernani Braga, ou seja, o fluxo dos ve&iacute;culos ser&aacute; da Galv&atilde;o Raposo para a Jos&eacute; Os&oacute;rio. J&aacute; o estacionamento da Dr. Jos&eacute; Higino ser&aacute; proibido no lado direito com hor&aacute;rio restrito (de 6h &agrave;s 20h nos dias &uacute;teis e de 6h &agrave;s 14h nos s&aacute;bados) em toda a sua extens&atilde;o, com exce&ccedil;&atilde;o do trecho entre as ruas Galv&atilde;o Raposo e Menezes Drumond, onde est&aacute; localizada a Pra&ccedil;a Professor Calazans. Nessa quadra a proibi&ccedil;&atilde;o ser&aacute; permanente.
+
+Rua Menezes Drumond &ndash; Tamb&eacute;m haver&aacute; um trabalho de tratamento de sinaliza&ccedil;&atilde;o na Rua Menezes Drumond. Ser&aacute; proibido o estacionamento de 06h &agrave;s 20h nos dias &uacute;teis e de 06h &agrave;s 14h nos s&aacute;bados, no lado direito, no sentido Real da Torre/Caxang&aacute;, no trecho entre as ruas Real da Torre e Jos&eacute; Higino. J&aacute; no lado direto, entre a Jos&eacute; Higino e a Ernani Braga, onde est&aacute; situada a pra&ccedil;a, a proibi&ccedil;&atilde;o ser&aacute; 24 horas. Essa via permanece m&atilde;o dupla.&nbsp; 
+
+Rua Castro Le&atilde;o &ndash; Essa rua passar&aacute; a ser m&atilde;o &uacute;nica no sentido Real da Torre/Jos&eacute; Os&oacute;rio e ter&aacute; proibi&ccedil;&atilde;o permanente de estacionamento no lado esquerdo do novo fluxo.
+
+Rua Manuel Bezerra &ndash; A Manuel Bezerra ter&aacute; sentido oposto &agrave; Rua Castro Le&atilde;o, no trecho entre as ruas Reverendo Samuel Falc&atilde;o e Real da Torre. Haver&aacute; ainda proibi&ccedil;&atilde;o de estacionamento no lado direto do novo fluxo.
+
+Rua Reverendo Samuel Falc&atilde;o &ndash; A via ser&aacute; transformada em m&atilde;o &uacute;nica no trecho entre as ruas Castro Le&atilde;o e Manuel Bezerra, no sentido da primeira para a segunda via. Nessa &aacute;rea haver&aacute; proibi&ccedil;&atilde;o de estacionamento no lado direito. Tamb&eacute;m ser&aacute; proibido estacionamento em ambos os lados da Samuel Falc&atilde;o, no intervalo entre as vias Castro Le&atilde;o e Jos&eacute; Os&oacute;rio. 
+
+Rua Pessoa de Melo &ndash; Paralela &agrave; Real da Torre, a via continua sendo m&atilde;o dupla, por&eacute;m ter&aacute; o estacionamento proibido em hor&aacute;rios restritos (7h &agrave;s 20h nos dias &uacute;teis e 7h &agrave;s 13h nos s&aacute;bados) em toda a sua extens&atilde;o, no lado direito, no sentido da Jos&eacute; Bonif&aacute;cio at&eacute; a Jos&eacute; Os&oacute;rio. A exce&ccedil;&atilde;o &eacute; para a quadra onde est&aacute; localizada a Pra&ccedil;a E&ccedil;a de Queiroz, que ter&aacute; proibi&ccedil;&atilde;o 24 horas nos dois lados da Pessoa de Melo. 

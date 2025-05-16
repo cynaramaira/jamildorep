@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Impeachment: após 12 horas, termina fase de depoimentos; Dilma será ouvida na 2ª"
+date: 2016-08-28
+tags: Altas Horas,apostas,Dilma,impeachment,Serasa
+author: None
+---
+Estadão Conteúdo - Após mais de 12 horas de depoimentos nesse sábado (27), foi concluída a fase de oitivas das testemunhas de defesa e de acusação do julgamento do processo de impeachment da presidenta afastada Dilma Rousseff. O último a depor nesta fase foi o professor de direito tributário da Universidade Estadual do Rio de Janeiro (Uerj) Ricardo Lodi Ribeiro, que falou como informante.
+Lodi foi questionado por 13 dos 81 senadores, além do advogado de defesa José Eduardo Cardozo e da acusação Janaina Paschoal. Na avaliação de Lodi, os decretos editados pela presidenta em julho e agosto de 2015 não eram considerados infração até aquela data pelo Tribunal de Contas da União, que só em outubro mudou seu entendimento. “Não entro no mérito dessa mudança ser positiva ou negativa. Naquela momento em que foram editados os decretos, esse entendimento não existia”, disse.
+Ao ser questionado pelo senador Magno Malto (PR-ES), que Dilma teria alterado a meta e “limpado a cena do crime”, Lodi disse que não houve crime então, “não houve limpeza de cena”. O depoimento de Lodi durou cerca de três horas e o presidente do Supremo Tribunal Federal (STF) e dos trabalhos, Ricardo Lewandoswski pediu, no início do depoimento, para que o professor se limitasse a responder às perguntas sobre o aspecto técnico e não se manifestasse politicamente. Hoje também foi ouvido o ex-ministro da Fazenda Nelson Barbosa, que respondeu às perguntas dos senadores por mais de oito horas.
+Sessão convocada
+Ao término dos trabalhos, o Lewandoswski convocou a continuidade da sessão de julgamento do processo de impeachment para segunda-feira (29), quando a presidenta afastada Dilma Rousseff fará sua defesa pessoalmente no plenário do Senado. Dilma terá 30 minutos iniciais, que poderá ser prorrogado por mais 30, e cada senador poderá fazer questionamentos por até cinco minutos, as quais Dilma poderá responder, ou não, e utilizar para isso o tempo que julgar necessário.
+Até o momento já se inscreveram para questionar Dilma 47 dos 81 senadores. A presidenta afastada estará acompanhada de cerca de 30 pessoas, entre ex-ministros, presidentes de partidos aliados, assessores e do ex-presidente Luiz Inácio Lula da Silva.
+Neste domingo, às 11h, os defensores do impeachment vão se reunir no Senado para traçar estratégias sobre os questionamentos que farão a Dilma e os próximos passos do processo. Aliados de Dilma também terão reuniões neste domingo com a presidenta afastada, mas no Palácio do Alvorada, para se preparar para a sessão de segunda-feira.

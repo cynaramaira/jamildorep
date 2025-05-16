@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Humberto Costa volta a dizer que democracia está em risco no governo Jair Bolsonaro"
+date: 2019-05-28
+tags: DEMOCRACIA,esta,governo,Humberto Costa,Jair Bolsonaro,Riscos
+author: None
+---
+Em audiência pública da Comissão da Anistia, o líder do PT no Senado, Humberto Costa (PE), disse que as manifestações pró-governo do último domingo (26) evidenciaram o víeis autoritário e irresponsável da gestão de Jair Bolsonaro.
+Para ele, o governo é uma ameaça permanente à democracia e às garantias individuais previstas na Constituição.
+“Está claro que esse governo é um enorme retrocesso na vida política, econômica e social do nosso país. Ao longo da sua vida pública, Bolsonaro sempre representou um pensamento completamente dessintonizado com a democracia e com o respeito aos direitos humanos. Na verdade, se formos olhar o seu trabalho durante os quase 30 anos como deputado, vamos perceber que ele jamais teve qualquer tipo contribuição importante à vida pública e que sempre passou despercebido, exceto naqueles momentos em que se posicionou contra os interesses do Brasil ao defender ideias pró-ditadura, contra minorias e de desrespeito aos direitos humanos. Seria natural que, quando chegasse ao governo, não trabalhasse e vivesse de promover ataques à Constituição”, afirmou Humberto Costa.
+"O o governo e seus militantes ignoram os problemas urgentes da população para deflagrar uma agenda de perseguições, baseada em teorias conspiratórias. Estamos passando por um processo acelerado que avizinha uma depressão econômica. Mas, quando pensamos no governo, no enfrentamento aos mais graves problemas do Brasil, não há uma palavra sequer que aponte soluções. Quem viu os protestos percebeu que ninguém falou sobre o desemprego, a inflação, contra o aumento das desigualdades. Foi uma ação contra as instituições, contra o Congresso Nacional, contra a Justiça”, afirmou.
+"O desmonte da Comissão da Anistia é mais uma ação cruel do governo e trará impacto àqueles que lutaram em favor da restauração do regime democrático. Acredito que essa é uma agenda pessoal do presidente, que visa prejudicar aqueles que foram massacrados e torturados pelo regime. As indenizações são uma reparação àqueles que se sacrificaram de diversas formas para defender o Brasil e livrar o país da tirania”, defendeu.

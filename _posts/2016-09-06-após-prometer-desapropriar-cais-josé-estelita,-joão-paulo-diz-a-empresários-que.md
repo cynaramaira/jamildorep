@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Após prometer desapropriar Cais José Estelita, João Paulo diz a empresários que fará isso "se for preciso""
+date: 2016-09-06
+tags: apostas,empresários,Estelita,joão d,Louro José,Paulo
+author: None
+---
+Se na sabatina da Rádio Jornal, na semana passada, o ex-prefeito João Paulo (PT), novamente candidato, prometeu desapropriar o terreno do Cais José Estelita, em debate com representantes do setor produtivo e da construção civil, nessa segunda-feira (5), recuou e disse que fará isso "se for preciso". "Nós vamos, sim, ouvir tanto a população quanto o setor produtivo sobre esse assunto. E como eu já havia declarado, se for preciso, nós iremos, sim, desapropriar a área e buscar um entendimento com a sociedade sobre isso. Cabe ao prefeito da cidade o peso da tomada de decisão. O que ele não pode é ser omisso", afirmou João Paulo.
+LEIA TAMBÉM
+» Cais José Estelita é tema a ser debatido no Recife. Saiba o que pensam os candidatos
+“Nós temos a compreensão de que o mundo está mudando muito rapidamente. E que o momento é de procurarmos um ponto de equilíbrio entre os diversos segmentos. É nesse sentido que vemos como muito importante a necessidade de se ter um diálogo com todos os setores. Com o setor produtivo, que gera empregos e é responsável por obras de grande porte na nossa cidade, mas também com os movimentos que tem nos colocado a pensar a cidade sob outros aspectos. A responsabilidade da Prefeitura é de ouvir todos e achar um ponto de equilíbrio em momentos de conflito. Governar é administrar conflitos”, declarou ainda o petista.
+O consórcio formado por quatro empreiteiras – Ara Empreendimentos, GL Empreendimentos, Moura Dubeux Engenharia e Queiroz Galvão – comprou por R$ 55 milhões a área dos antigos armazéns, que pertencia ao espólio da Rede Ferroviária Federal, em leilão realizado em 2008. Depois que a Operação Lance Final, deflagrada pela Polícia Federal em outubro de 2015, apontou fraude na compra do terreno, a Justiça Federal anulou o processo. O Tribunal Regional Federal da 5ª Região (TRF5) suspendeu essa decisão um mês depois. Em junho deste ano, entretanto, o juiz federal titular da 1ª Vara, Roberto Wanderley, reafirmou a sentença, retomando a anulação do leilão.

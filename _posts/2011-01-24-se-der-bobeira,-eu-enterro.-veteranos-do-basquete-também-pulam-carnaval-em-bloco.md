@@ -1,0 +1,36 @@
+---
+layout: post
+title: "Se der bobeira, eu enterro. Veteranos do basquete também pulam carnaval em bloco"
+date: 2011-01-24
+tags: basquete,carnaval
+author: None
+---
+
+&nbsp;
+&nbsp;
+
+Veja a letra do bloco, bastante inspirada.
+SE DER BOBEIRA EU ENTERRO (Fernando Azevedo - PIXOTO )
+QUANDO EU ERA UM PIVETE
+JOGAVA BASQUETE
+E EU ERA UM TERROR
+PEGAVA REBOTE
+MARCAVA CERRADO
+E ERA UM GRANDE ARMADOR
+MAS TUDO ISSO &Eacute; PASSADO
+E COM O JOELHO ESTOURADO
+MINHA BOLA MURCHOU
+MAS AINDA GUARDO MEU PITO
+COM MUITO CUIDADO
+E COM MUITO AMOR
+E SE VOC&Ecirc; ME CHAMAR
+PRA BRINCAR COM SEU ARO
+N&Atilde;O VOU RECUSAR
+EU VOLTO PRA QUADRA, EU FA&Ccedil;O ESTEIRA
+E VOLTO AO PASSADO
+E FIQUE QUIETINHA, QUE A MINHA BOLINHA 
+EU VOLTO A ENCHER
+O REPOUSO EU ENCERRO
+E NEM D&Ecirc; BOBEIRA 
+SE N&Atilde;O EU ENTERRO
+&nbsp; 

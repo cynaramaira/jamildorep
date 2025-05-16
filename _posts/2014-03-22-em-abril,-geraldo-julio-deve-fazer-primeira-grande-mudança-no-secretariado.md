@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Em abril, Geraldo Julio deve fazer primeira grande mudança no secretariado"
+date: 2014-03-22
+tags: Geraldo Julio,Lagoa Grande,Mudanças,primeira etapa
+author: None
+---
+ Geraldo Julio na reunião com o secretariado no início da gestão. Foto: Andréa Rêgo Barros/divulgação/PCR
+O prefeito do Recife, Geraldo Julio (PSB), está prestes a fazer a primeira grande reforma no seu secretariado. Em abril, pelo menos cinco secretários devem deixar os cargos na gestão municipal para se dedicar a campanha, de forma direta e indireta. Embora os nomes ainda não estejam postos oficialmente na mesa, nos bastidores as costuras por apoio correm solta.
+Com reduto eleitoral em Surubim, no Agreste pernambucano, o secretário de Infraestrutura e Serviços Urbanos, Nilton Mota, deve firmar uma "dobradinha" com o secretário das Cidades, Danilo Cabral. O primeiro para estadual e o segundo, federal. No governo desde a primeira gestão do governador Eduardo Campos, Mota esteve à frente da Companhia Estadual de Habitação e Obras (Cehab), em 2011, e conduziu o processo de contratação das moradias temporárias das vítimas das enchentes na Mata Sul do Estado. Antes, foi "secretário-tampão" de Educação do Estado, em 2010.
+Atualmente, ele gerencia a Empresa de Manutenção e Limpeza Urbana do Recife (URB) - responsável por importantes obras de mobilidade, como a Via Mangue - e administra um dos maiores orçamentos da Prefeitura, estimado em R$ 4 bilhões. Por isso, a substituição do secretário será um dos maiores desafios para Geraldo Julio.
+ Marília Arraes, Felipe Carreras e Nilton Mota devem deixar a PCR para lançar candidatura de deputado. Carlos Percol fará campanha de Paulo Câmara. Foto: Andréa Rêgo Barros/PCR
+Outro secretário que deve deixar a gestão municipal para se lançar candidato é Felipe Carreras (PSB), do Turismo e Lazer. Embora ele desconverse sobre a disputa por uma cadeira na Câmara Federal, interlocutores da cúpula do PSB confirmaram que houve sinalização do desejo de disputar a eleição. Casado com uma prima de Eduardo Campos, Fabiana Carreras, Felipe implantou um dos projetos de maior destaque da gestão Geraldo Julio, as ciclofaixas móveis aos domingos e feriados. Um dos nomes preferidos de Eduardo Campos para federal, ele deve herdar parte do espólio da ministra do Tribunal de Contas da União (TCU) Ana Arraes - mãe do governador -, que, em 2010, foi a deputada federal mais votada, com mais de 387 mil votos.
+Segundo estimativas dos socialistas, se repartido,  o total de sufrágios pode eleger até quatro deputados federais, uma vez que os cálculos apontam que na proporcional serão necessários 80 mil para conseguir uma cadeira. No caso, Carreras "herdaria" os votos de Ana Arraes no Grande Recife.
+Neta de Miguel Arraes, a secretária de Juventude e Qualificação Profissional, Marília Arraes, também vai desligar-se da Prefeitura para pavimentar a campanha de deputada federal. Eleita para vereadora em 2012 com 8.481 votos, Marília entrará na divisão do espólio de Ana Arraes.
+Nos bastidores também comenta-se que o secretário-executivo de Direitos dos Animais, Rodrigo Vidal (PDT), está se articulando para entrar na corrida eleitoral, informação confirmada pelo presidente estadual do PDT, José Queiroz, prefeito de Caruaru. Em 2012, Vidal elegeu-se vereador em virtude da bandeira de proteção aos animais, com mais de 5,4 mil votos.
+CAMPANHA – Depois de atuar por seis anos no Governo do Estado, o atual secretário de Imprensa da PCR, jornalista Carlos Percol, está prestes a sair da gestão municipal para coordenar a área de comunicação da campanha de Paulo Câmara para o Governo do Estado.
+Questionado sobre as mudanças no secretariado, o prefeito Geraldo Julio afirmou que não iria adiantar nada sobre o assunto “até que chegue o prazo legal e a gente tenha as definições” disse.
+Por lei, os secretários têm até o dia 5 de abril para se desincompatibilizarem dos cargos para disputar a eleição.

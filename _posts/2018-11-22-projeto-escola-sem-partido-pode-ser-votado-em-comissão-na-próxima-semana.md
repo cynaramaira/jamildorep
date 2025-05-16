@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Projeto Escola Sem Partido pode ser votado em comissão na próxima semana"
+date: 2018-11-22
+tags: aproximação ,comissão mista,escola,Partido Verde,projeto,Semana Santa
+author: None
+---
+Estadão Conteúdo - O projeto de lei Escola Sem Partido (PL 7180/14) pode finalmente ser votado na comissão especial na próxima semana. Mesmo com muito tumulto e bate-boca, o texto parecer do relator, deputado Flavinho (PSC-SP), foi lido na comissão especial nesta quinta-feira, 22, e houve pedido de vista coletivo por duas sessões. Isso significa que, a partir de agora, a comissão pode voltar a se reunir depois de realizadas duas sessões no Plenário da Câmara. O presidente da comissão, o deputado Marcos Rogério (DEM-RO), disse que uma nova data deve ser agendada na terça-feira, 27, e a expectativa é que a reunião seja realizada na quinta-feira, 29.
+Quando isso acontecer, os deputados poderão votar o texto. A matéria do Escola Sem Partido é conclusiva, ou seja, pode ir direto para o Senado. A oposição, no entanto, vai tentar barrar "esse salto" por meio de requerimentos previstos no regimento da Casa.
+Ao total foram seis tentativas de leitura do substitutivo desde quando a matéria ficou pronta no dia 30 de outubro. Duas reuniões não chegaram a serem abertas porque a comissão não atingiu o número de parlamentares presentes necessários antes do início da ordem do dia no plenário da Câmara. Nas demais, a oposição conseguiu obstruir a pauta até o início dos trabalhos no plenário. O projeto é polêmico e tem atraído manifestantes a favor e contra ao projeto.
+Nesta quinta-feira, a reunião já começou sob um clima tenso entre os deputados que defendem o projeto e os que o rejeitam. Parlamentares reclamaram que o presidente do colegiado abriu o painel para registro de presença antes do horário marcado para início da sessão. Depois de um bate-boca, Marcos Rogério aceitou retirar a presença de dois deputados que haviam marcado presença mas já não estavam mais na comissão.
+Outro embate se deu quando o deputado Ivan Valente (PSOL-SP) citou o filósofo de direita Olavo de Carvalho e o deputado Rogério Marinho (PSDB-RN) o provocou dizendo que "viveu para ver" um parlamentar de esquerda elogiar o filósofo. "Eu apenas o citei. Não elogiei. Aliás, ele não é o idiota que vocês são", rebateu Valente. De acordo com ele, Carvalho é contrário ao Escola sem Partido.
+Polêmica
+O chamado Escola Sem Partido prevê a proibição do que chama de "prática de doutrinação política e ideológica" pelos professores, além de vetar atividades e a veiculação de conteúdos que não estejam de acordo com as convicções morais e religiosas dos pais do estudante. Define, ainda, os deveres dos professores, que devem ser exibidos em cartazes afixados nas salas de aula.

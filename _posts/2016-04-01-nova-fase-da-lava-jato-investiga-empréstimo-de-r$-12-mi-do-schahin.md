@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Nova fase da Lava Jato investiga empréstimo de R$ 12 mi do Schahin"
+date: 2016-04-01
+tags: Empréstimo,investigação,Lava Jato,Sinovac
+author: None
+---
+
+Estadão Conteúdo - A força-tarefa da Lava Jato afirmou, em nota, que a Operação Carbono 14, deflagrada nesta sexta-feira, 1, investiga o esquema de lavagem de capitais de cerca de R$ 6 milhões 'provenientes do crime de gestão fraudulenta do Banco Schahin, cujo prejuízo foi posteriormente suportado pela Petrobras'.
+Segundo a Procuradoria da República, durante as investigações da Lava Jato, constatou-se que o pecuarista José Carlos Bumlai, amigo do ex-presidente Luiz Inácio Lula da Silva, contraiu um empréstimo fraudulento junto ao Banco Schahin em outubro de 2004 no montante de R$ 12 milhões.
+"O mútuo, na realidade, tinha por finalidade a "quitação" de dívidas do Partido dos Trabalhadores (PT) e foi pago por intermédio da contratação fraudulenta da Schahin como operadora do navio-sonda Vitória 10.000, pela Petrobras, em 2009, ao custo de US$ 1,6 bilhão. Esses fatos já haviam sido objeto de acusação formal, sendo agora foco de uma nova frente investigatória", sustenta a força-tarefa em nota.
+As medidas estão sendo cumpridas em São Paulo, Carapicuíba, Osasco e Santo André. Segundo a Polícia Federal, os fatos investigados nesta fase apuram crimes de extorsão, falsidade ideológica, fraude, corrupção ativa e passiva e lavagem de dinheiro.
+"A partir de diligências, descobriu-se que, do valor total emprestado de R$ 12 milhões a Bumlai, pelo menos R$ 6 milhões tiveram como destino o empresário do município de Santo André (SP), Ronan Maria Pinto. Como ressaltou a decisão que decretou as medidas cautelares, "a fiar-se no depoimento dos colaboradores e do confesso José Carlos Bumlai, os valores foram pagos a Ronan Maria Pinto por solicitação do Partido dos Trabalhadores". Para fazer os recursos chegarem ao destinatário final, foi arquitetado um esquema de lavagem de capitais, envolvendo Ronan, pessoas ligadas ao Partido dos Trabalhadores e terceiros envolvidos na operacionalização da lavagem do dinheiro proveniente do crime contra o sistema financeiro nacional", aponta a força-tarefa da Lava Jato.
+Segundo a Procuradoria, há evidências que apontam que o PT influiu diretamente junto ao Banco Schahin na liberação do empréstimo fraudulento. Para chegar ao destinatário final Ronan Maria Pinto, os investigados teriam se utilizado de diversos estratagemas para ocultar a proveniência ilícita dos valores e a identidade do destinatário final do dinheiro obtido na instituição financeira.
+"Em suma, há provas que apontam para o fato de que a operacionalização do esquema se deu, inicialmente, por intermédio da transferência dos valores de Bumlai para o Frigorífico Bertin, que, por sua vez, repassou a quantia de aproximadamente R$ 6 milhões a um empresário do Rio de Janeiro envolvido no esquema".
+A força-tarefa sustenta que outras pessoas possivelmente envolvidas na negociação para a concessão do empréstimo fraudulento pelo Banco Schahin também são alvo da operação realizada hoje. Segundo os investigadores, identificou-se que um dos envolvidos recebeu recursos de pessoas e empresas que mantinham contratos com a Petrobras e que já foram condenadas no âmbito da Operação Lava Jato.
+"Esses pagamentos ocorreram ao menos até o ano de 2012. As pessoas cuja prisão foi determinada já tiveram prévio envolvimento com crimes de corrupção", aponta a Procuradoria.
+Cinquenta policiais federais estão cumprindo 12 ordens judiciais, sendo 8 mandados de busca e apreensão, 2 de prisão temporária e 2 de condução coercitiva - quando o investigado é levado para depor e liberado. Os presos serão levados para Curitiba, sede da Lava Jato.
+O nome da operação, Carbono 14, segundo a PF, faz referência a procedimentos 'utilizados pela ciência para a datação de itens e a investigação de fatos antigos'.

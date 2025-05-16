@@ -1,0 +1,43 @@
+---
+layout: post
+title: "João Campos quer reconquistar classe média do Recife com novas obras"
+date: 2023-05-23
+tags: jamildo, João Campos, Recife
+author: Jamildo Melo
+---
+No plano de reelei&ccedil;&atilde;o de Jo&atilde;o Campos, os aliados contam que um dos maiores desafios ser&aacute; reconquistar a classe m&eacute;dia do Recife. O mapa das elei&ccedil;&otilde;es, de fato, mostra que Bolsonaro venceu Lula nas sess&otilde;es eleitorais de Boa Viagem, bairro mais rico da cidade.
+A estrat&eacute;gia tra&ccedil;ada para recuperar a classe m&eacute;dia &eacute; a entrega de obras. O primeiro ato ser&aacute; a conclus&atilde;o da nva orla de Boa Viagem e os seus quiosques. Um segundo projeto j&aacute; em andamento &eacute; a nova Avenida Agamenon Magalh&atilde;es.
+"Vamos acabar com esse ran&ccedil;o, olhando mais para a classe m&eacute;dia. Embora a imagem de Jo&atilde;o Campos esteja muito pr&oacute;xima a Lula, avers&aacute;rio de Bolsonaro, em Boa Viagem, a gente conta que as obras podem fazer a diferen&ccedil;a", afirma um graduado auxiliar do prefeito do PSB.
+Os detalhes do projeto da nova orla 
+O projeto da nova orla do Recife se estende de Set&uacute;bal &agrave; Bras&iacute;lia Teimosa. A expectativa &eacute; que todo o projeto seja conclu&iacute;do em dois anos a partir desse ponto.
+Na C&acirc;mara do Recife, a chefe do Gabinete de Projetos Especiais, Cinthia Mello, respons&aacute;vel pelo desenvolvimento do projeto com equipe multidisciplinar, j&aacute; explicou que a nova roupagem e novo uso vai melhorar quiosques, ciclovia, drenagem, saneamento, cal&ccedil;ad&atilde;o.
+As interven&ccedil;&otilde;es vir&atilde;o desde Set&uacute;bal, passando por Boa Viagem, Pina, Bras&iacute;lia Teimosa at&eacute; o Parque das Esculturas, totalizando uma &aacute;rea de 10,9km em linha reta. Ainda segundo Mello, o projeto foi concebido em cima de 7 pilares: seguran&ccedil;a, social, meio ambiente, sombreamento, equipamentos, mobilidade e cal&ccedil;ad&atilde;o.
+
+			
+		
+			O vereador Paulo Muniz na audi&ecirc;ncia p&uacute;blica na C&acirc;mara Municipal do Recife ao lado da chefe do Gabinete de Projetos Especiais, Cinthia Mello - Divulga&ccedil;&atilde;o
+		
+	&nbsp;
+Na &aacute;rea de seguran&ccedil;a foram apontados os seguintes objetivos: o refor&ccedil;o da ilumina&ccedil;&atilde;o, o est&iacute;mulo &agrave; movimenta&ccedil;&atilde;o noturna na orla, o refor&ccedil;o do videomonitoramento, patrulha cicl&iacute;stica com a Guarda Municipal, instala&ccedil;&atilde;o de 05 pontos fixos para viaturas.
+Em rela&ccedil;&atilde;o ao social, a prioridade da gest&atilde;o Jo&atilde;o Campos &eacute; a de encaminhar as pessoas em situa&ccedil;&atilde;o de rua para abrigos e investir na melhoria do saneamento do local. Do ponto de vista ambiental, a ideia &eacute; a de habilitar a praia urbana do Recife no Programa Bandeira Azul, um pr&ecirc;mio ecol&oacute;gico que analisa crit&eacute;rios de gest&atilde;o ambiental, qualidade da &aacute;gua, turismo e responsabilidade social.
+&ldquo;&Eacute; uma oportunidade de colocar o Recife na rota de turismo sustent&aacute;vel, atrav&eacute;s desse selo de certifica&ccedil;&atilde;o internacional&rdquo;, disse a secretaria do Recife.
+Outro grande fator de interven&ccedil;&atilde;o ser&aacute; direcionado ao resgate do sombreamento. Segundo dados apontados, apenas 49% da orla &eacute; sombreado.
+&ldquo;Existem apenas 582 &aacute;rvores na orla do Recife, e dessas, apenas 3 em Bras&iacute;lia Teimosa. Nosso objetivo &eacute; atingir o n&uacute;mero de 1320 &aacute;rvores ao final da interven&ccedil;&atilde;o. E tamb&eacute;m iremos resgatar a vegeta&ccedil;&atilde;o de restinga, que essa vegeta&ccedil;&atilde;o &eacute; a que segura a areia&rdquo;, explica Cinthia Mello.
+Em rela&ccedil;&atilde;o aos equipamentos, os 60 quiosques da orla j&aacute; foram conclu&iacute;dos, restando a iniciar a obra de 09 unidades em Bras&iacute;lia Teimosa. A ordem de servi&ccedil;o da requalifica&ccedil;&atilde;o dos banheiros j&aacute; foi dada, tendo um total de 11 existentes e 10 a serem constru&iacute;dos.
+Em rela&ccedil;&atilde;o ao projeto dos banheiros, a secret&aacute;ria destacou a preocupa&ccedil;&atilde;o de utilizar materiais antivandalismo e furto, bem como do uso das portas de vidro para dar mais seguran&ccedil;a &agrave;s mulheres. Tamb&eacute;m est&atilde;o previstos 60 chuveir&otilde;es, 13 totens com a tecnologia &ldquo;Refresque-se&rdquo;, 05 fontes de &aacute;gua interativas e diversos pontos instagram&aacute;veis.
+Na &aacute;rea de mobilidade foi contratado um estudo de tr&aacute;fego para viabilizar a mudan&ccedil;a da Avenida Boa Viagem de uma art&eacute;ria principal para uma via de contempla&ccedil;&atilde;o, com fluxo reduzido. Segundo Cinthia Melo ir&aacute; haver uma oxigena&ccedil;&atilde;o da Via Mangue, com abertura de mais acessos.
+&ldquo;A URB vem estudando tr&ecirc;s pontilh&otilde;es na Fernando Sim&otilde;es, justamente para reduzir o tempo de tr&aacute;fego das pessoas no engarrafamento. E quando a gente pega no meio de Boa Viagem para o Pina, vamos abrir um acesso ali na Arthur Muniz no segundo jardim para conseguir dar essa mobilidade &agrave;s pessoas&rdquo;.
+As principais mudan&ccedil;as apontadas no tr&acirc;nsito da Avenida Boa Viagem ser&atilde;o: redu&ccedil;&atilde;o da velocidade para 50km/h, instala&ccedil;&atilde;o de plat&ocirc;s elevados no Parque Dona Lindu e na Pracinha de Boa Viagem, a remodelagem da ciclovia para linha reta eliminando pontos cegos, bem como eleva&ccedil;&atilde;o para diminui&ccedil;&atilde;o do desn&iacute;vel resolvendo o problema dos alagamentos, retirada das vagas de estacionamento do lado do mar.
+A requalifica&ccedil;&atilde;o do cal&ccedil;ad&atilde;o passar&aacute; pela substitui&ccedil;&atilde;o do pavimento desgastado, bem como a melhoria da acessibilidade e a expans&atilde;o da largura m&eacute;dia de passeio para 4,8m.
+&ldquo;Hoje a gente tem um cal&ccedil;ad&atilde;o m&eacute;dio de 2,75m, com o espa&ccedil;o da bicicleta e o espa&ccedil;o do carro. Quando a gente desocupa o espa&ccedil;o do carro, temos esse ganho, para evitar aqueles ziguezagues que n&oacute;s fazemos&rdquo;, completa.
+Esta&ccedil;&otilde;es de contempla&ccedil;&atilde;o
+A nova orla ganhar&aacute; centralidades denominadas de &ldquo;esta&ccedil;&otilde;es&rdquo;, baseadas em modalidades de usos espec&iacute;ficos e em cen&aacute;rios de contempla&ccedil;&atilde;o. proje&ccedil;&otilde;es das esta&ccedil;&otilde;es Aurora, Mulher, Cultural, Acess&iacute;vel, Jardim, Esportes, Alvorada e Porto Terra Nova. Este &uacute;ltimo, localizado no ponto de jun&ccedil;&atilde;o de Bras&iacute;lia Teimosa com o porto do Recife, ser&aacute; o primeiro a ser constru&iacute;do &ndash; a obra deve ser iniciada no segundo semestre.
+Dentre as centralidades, as que sofrer&atilde;o maiores interven&ccedil;&otilde;es ser&atilde;o a do Mercado do Peixe que ter&aacute; a integra&ccedil;&atilde;o da orla de Boa Viagem e Bras&iacute;lia Teimosa para pedestres e ciclistas. Bem como a remodelagem e estabelecimento de polo gastron&ocirc;mico e paisagismo.
+No Segundo Jardim haver&aacute; a uni&atilde;o do jardim com o cal&ccedil;ad&atilde;o, resultando em uma grande amplia&ccedil;&atilde;o do espa&ccedil;o de lazer.
+&ldquo;O tr&acirc;nsito ficar&aacute; como hoje nos dias de domingo funciona. Nesse ganho de espa&ccedil;o traremos gastronomia a beira-mar, um ocean&aacute;rio para falar da fauna e da flora, polos esportivos com a expans&atilde;o da Academia da Cidade, Central de Opera&ccedil;&otilde;es de Vigil&acirc;ncia e de Turismo&rdquo;, informou Cinthia Mello. 
+Nova Agamenon Magalh&atilde;es 
+O blog de Jamildo j&aacute; revelou que Jo&atilde;o Campos (PSB) continuar&aacute; fazendo investimentos na mais importante via urbana do Recife, a Avenida Agamenon Magalh&atilde;es. Recentemente, a Prefeitura abriu uma ciclovia na Avenida, ligando a Zona Norte &agrave; Zona Sul.
+A nova ciclovia foi elogiada, mas tamb&eacute;m criticada, por retirar um espa&ccedil;o das faixas de carros.
+Agora, a Prefeitura abre nova licita&ccedil;&atilde;o para obras na Avenida Agamenon Magalh&atilde;es. A Prefeitura vai investir at&eacute; R$ 12.391.337,95 na via nesta licita&ccedil;&atilde;o.
+O objeto da licita&ccedil;&atilde;o ser&aacute; a "Execu&ccedil;&atilde;o de Requalifica&ccedil;&atilde;o dos Passeios P&uacute;blicos da Avenida Agamenon Magalh&atilde;es na Cidade do Recife/PE".
+A abertura das propostas das empresas interessadas ocorreu em 27 de abril. A licita&ccedil;&atilde;o, na forma de concorr&ecirc;ncia, est&aacute; sendo conduzida pela Secretaria de Infraestrutura do Recife.

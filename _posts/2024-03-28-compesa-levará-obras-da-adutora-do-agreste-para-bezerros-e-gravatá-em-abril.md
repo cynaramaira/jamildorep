@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Compesa levará obras da Adutora do Agreste para Bezerros e Gravatá em abril"
+date: 2024-03-28
+tags: jamildo, recursos hídricos, Compesa, Lula
+author: Jamildo Melo
+---
+Por falar na visita do presidente Lula &agrave;s obras h&iacute;dricas financiadas pelo governo federal em Arcoverde, na semana que vem, para ver a Adutora do Agreste, o presidente da Compesa, Alex Campos, informou que no in&iacute;cio do m&ecirc;s de abril come&ccedil;ar&atilde;o as obras da Adutora do Agreste nas cidades de Bezerros e Gravat&aacute;. Hoje, a carga &eacute; em Caruaru, maior cidade da regi&atilde;o e que sofre com falta de &aacute;gua cr&ocirc;nica.
+Nesta quarta-feira (20), o presidente da estatal inspecionou o trecho da obra da Adutora do Agreste que est&aacute; em execu&ccedil;&atilde;o na &aacute;rea urbana de Caruaru, acompanhado dos diretores da Companhia, Igor Galindo (Regional do Agreste e Matas) e Douglas N&oacute;brega (Empreendimentos e Sustentabilidade). O dirigente inspecionou o trecho onde est&aacute; a frente de trabalho, no cruzamento das ruas Manoel Ten&oacute;rio e Bernardino Francisco Muniz, bairro de Indian&aacute;polis.
+Segundo a estatal, esse trecho compreende um assentamento de 240 metros de tubula&ccedil;&otilde;es de 1.200 mm de di&acirc;metro, de um total de 1.300m de extens&atilde;o, at&eacute; chegar &agrave; Esta&ccedil;&atilde;o de Tratamento de &Aacute;gua (ETA) Salgado, onde ser&atilde;o tratados at&eacute; 600 litros de &aacute;gua por segundo para os caruaruenses.
+O presidente Alex Campos disse ter ficado entusiasmado com a evolu&ccedil;&atilde;o da obra, iniciada neste m&ecirc;s, que est&aacute; adiantada, apesar da complexidade das interven&ccedil;&otilde;es devido ao tipo de solo rochoso em Caruaru. A expectativa dos t&eacute;cnicos &eacute; finalizar a etapa de Caruaru em seis meses.
+&ldquo;Esse trecho deriva do eixo principal da Adutora e &eacute; uma etapa muito importante, uma determina&ccedil;&atilde;o da governadora Raquel Lyra para que a Compesa d&ecirc; funcionalidade plena &agrave; Adutora do Agreste. E n&oacute;s esperamos que ainda este ano a &aacute;gua chegue &agrave; ETA Salgado e possamos ter um amplo aproveitamento das &aacute;guas da Adutora aqui na cidade&rdquo;.

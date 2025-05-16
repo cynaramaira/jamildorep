@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Vereador do Recife sugere 'tocar fogo na Compesa' para cobrar abastecimento"
+date: 2023-03-28
+tags: jamildo, Vereadores do Recife
+author: Jamildo Melo
+---
+O vice-l&iacute;der do governo Jo&atilde;o Campos (PSB) na C&acirc;mara do Recife, vereador Rinaldo Junior (PSB), sugeriu, em reuni&atilde;o ordin&aacute;ria nesta ter&ccedil;a-feira (28), &ldquo;tocar fogo na Compesa&rdquo; como uma forma de protesto aos manifestantes que cobram o abastecimento de &aacute;gua em suas casas.
+A Compesa agora &eacute; de Raquel Lyra, n&atilde;o est&aacute; mais nas m&atilde;os de Paulo C&acirc;mara. Espera-se que a frase tenha sido apenas uma met&aacute;fora.
+O parlamentar, que &eacute; presidente da For&ccedil;a Sindical de Pernambuco, fez a sugest&atilde;o um tanto quanto radical quando citava um protesto realizado nessa segunda-feira (27), na Avenida An&iacute;bal Ben&eacute;volo, no bairro de &Aacute;gua Fria, na Zona Norte do Recife.
+&ldquo;Vou dar uma sugest&atilde;o &agrave;s pessoas que tocaram fogo l&aacute; na (Avenida) An&iacute;bal Ben&eacute;volo no dia de ontem, de forma justa, e eu vou me juntar a voc&ecirc;s, vamos tocar fogo na Compesa. &Eacute; o jeito. Porque todo dia, em todo momento, a gente v&ecirc; uma cr&iacute;tica, a gente v&ecirc; as pessoas passando necessidade e 90% s&atilde;o os menos favorecidos. Porque quem tem condi&ccedil;&atilde;o de comprar um carro-pipa, de ter uma cisterna em casa n&atilde;o paga por esse absurdo. Se voc&ecirc; ligar a televis&atilde;o, qualquer rep&oacute;rter, seja na V&aacute;rzea, no Jord&atilde;o, Casa Amarela, na Torre, &eacute; gente reclamando que est&aacute; passando necessidade por n&atilde;o ter &aacute;gua na sua torneira", disse Rinaldo J&uacute;nior.
+"Ent&atilde;o, senhores, eu quero me somar nesse coro, mas n&atilde;o vou ficar somente no discurso. Vou procurar a dire&ccedil;&atilde;o da Compesa e espero que eles me recebam&rdquo;, completou o vereador socialista.
+Veja a nota do vereador Rinaldo Junior
+"Venho esclarecer aos leitores do Blog de Jamildo de que houve um equ&iacute;voco durante meu discurso desta ter&ccedil;a-feira, dia 28 de mar&ccedil;o, durante sess&atilde;o Ordin&aacute;rio da C&acirc;mara Minicipal do Recife. Nossa fala foi no sentido de expressar que seria melhor "fazer protesto na frente da Compesa" para que o &oacute;rg&atilde;o pudesse enxergar a gravidade da situa&ccedil;&atilde;o da popula&ccedil;&atilde;o, e n&atilde;o quiz, de forma alguma, estimular nada contra a institui&ccedil;&atilde;o ou pr&eacute;dio p&uacute;blico, at&eacute; porque nosso mandato sempre defendeu a ordem, o di&aacute;logo e a democracia, de forma pac&iacute;fica e sem extremismos. Quem conhece e acompanha nosso mandato, sabe. Portanto, pe&ccedil;o desculpas publicamente por n&atilde;o ter me expressado de forma clara, pois jamais ousaria incentivar algo nesse sentido".

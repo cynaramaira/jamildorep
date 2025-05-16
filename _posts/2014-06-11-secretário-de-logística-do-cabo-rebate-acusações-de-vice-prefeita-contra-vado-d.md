@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Secretário de Logística do Cabo rebate acusações de vice-prefeita contra Vado da Farmácia"
+date: 2014-06-11
+tags: Contran,farmácias,inovador,Vicência
+author: None
+---
+Foto: BlogImagem
+Em visita ao Sistema Jornal do Commercio de Comunicação (SJCC) e entrevista à Rádio JC News, o secretário de Logística do Cabo de Santo Agostinho, Paulino Valério, rebateu as acusações da vice-prefeita Edna Gomes (PSD) contra o prefeito da cidade, Vado da Farmácia (PSB). Edna rompeu com o gestor há uma semana e se colocou como oposição. Para o secretário, as acusações são levianas e irão desmoralizar a vice-prefeita.
+Segundo o secretário, a vice-prefeita estava mal assessorada, a ponto de afirmar que cabia a ele, como secretário de Logística, comprar, receber, armazenar e distribuir todos os produtos comprados pela prefeitura. Ele explicou que apenas a Secretaria de Assuntos Jurídicos pode fazer compras, através das comissões de licitação.
+Leia também: No Cabo, Vado da Farmácia vai processar a própria vice
+Para Paulino, o principal equívoco da vice-prefeita foi acusar a prefeitura de gastar R$ 470 mil na compra de grampeadores. O secretário apresentou o processo pregão 048/2013, que mostra que o valor exato é de R$ 460 mil para a compra de 62 itens. O grampeador de mesa é o último item da lista. Foram compradas 150 unidades ao preço de R$ 15 unitários. Ao todo, foi gasto R$ 2.250 com o produto.
+Paulino diz ainda que mesmo que Edna tivesse incluído a compra de grampos na conta, não daria o preço alegado pela vice-prefeita. No mesmo pregão, a prefeitura do Cabo comprou 500 caixas de grampo tamanho 26/6, à R$ 1,89 cada; e 50 caixas de grampo tamanho 23/13, à R$ 2,50 cada. Ao todo, foram gasto R$ 1.070 com grampos.
+Outra acusação da vice-prefeita foi quanto à dispensa de licitação para compra de medicamentos no valor de R$ 10 milhões. De acordo com o secretário, o valor corresponde a um registro de preços; mecanismo que permitiria que a prefeitura adquirisse ou não a lista de produtos. Pouco mais de R$ 2 milhões teriam sido comprados pela prefeitura em medicamentos desta lista em 2013.
+De acordo com Paulino, outros R$ 3,098 milhões estão sendo adquiridos em modelo de dispensa de licitação porque a empresa Disfarma, listada no registro de preço, quis rever o valor e foi descredenciada pela prefeitura. Outras 12 empresas estão irão fornecer os mesmos medicamentos pelo mesmo preço do que consta na lista.
+O secretário também apresentou dados sobre o cofre municipal que apontam que 7,52% dos contratos da prefeitura do Cabo foram feitos através da modalidade de dispensa de licitação, tanto em 2013 quanto em 2014. Paulino explicou que boa parte se deve, por exemplo, a locação de imóveis, cuja oferta é quase exclusiva.
+Além disso, ele apresentou uma tabela que mostra que 22% da receita municipal foi investida em Saúde, quando a exigência mínima constitucional é de 15%. Hoje, a arrecadação da prefeitura do Cabo gira em torno de R$ 30 milhões por mês.
+TABLETS - Outra informação rebatida foi a de que a prefeitura havia comprado 10.800 tablets para distribuir para estudantes da rede municipal mesmo sabendo que eles não iriam funcionar por falta de Internet. Segundo o secretário, a Secretaria de Educação está implantando uma intranet para atender aos equipamentos em todas as escolas, inclusive na Zona Rural. Os aparelhos custaram R$ 7 milhões.
+Paulino afirmou que o processo de aquisição dos tablets foi "muito conturbado" por ter sido questionado judicialmente por uma empresa de obras e serviço de engenharia, que perdeu as ações; sugerindo que havia interesse por trás da ação. "Quero convidar o grupo político do qual ela faz parte para a entrega dos tablets, para ver a felicidade no rosto das crianças", alfinetou ainda.
+FEM - O secretário só evitou comentar as denúncias de desvios de recursos do Fundo Estadual de Apoio aos Municípios (FEM), porque disse não se tratar de tema da sua pasta. Paulino lembrou, porém, que a prestação de contas do Fundo ao Estado ainda será apresentada até o final deste mês.

@@ -1,0 +1,25 @@
+---
+layout: post
+title: ""Em busca de liberdade, delatores constroem versões fantasiosas", diz Dilma"
+date: 2017-05-12
+tags: Dilma,liberdade
+author: None
+---
+Em nota divulgada nesta sexta-feira (12), a ex-presidente Dilma Rousseff criticou o casal de marqueteiros, Mônica Moura e João Santana, que em delação premiada fazem várias citações à petista. Entre elas, está a afirmação de que Dilma e Lula sabiam de caixa 2 e que a ex-presidente teria avisado Santana de sua prisão um dia antes.
+Na nota, Dilma nega qualquer negociação ilegal e afirma que "são mentirosas e descabidas as narrativas dos delatores sobre supostos diálogos acerca dos pagamentos de serviços de marketing".
+João Santana e sua mulher contaram ao Ministério Público Federal (MPF) sobre uma troca de informações com Dilma Rousseff a respeito do avanço da Operação Lava Jato. Os dois detalharam a criação de um e-mail em comum com a petista no qual eram avisados sobre a investigação.
+Mônica disse aos investigadores em sua delação que Dilma ligou para a República Dominicana, onde o casal estava, para avisar João Santana que ele e a mulher seriam presos. A ligação teria sido feita em 21 de fevereiro do ano passado. O casal foi alvo da 23ª fase da Operação Lava Jato, deflagrada no dia seguinte.
+"É fantasiosa a versão de que a presidenta eleita informava delatores sobre o andamento da Lava Jato. Essa tese não tem a menor plausibilidade. Dilma Rousseff jamais recebeu de quem quer que seja dados sigilosos sobre investigações. Todas as informações prestadas pelo Ministério da Justiça ocorreram na forma da lei. Tal suspeita é infundada e leviana", diz a defesa de Dilma.
+Confira a nota lançada pela ex-presidente Dilma:
+Mais uma vez delatores presos, buscando conseguir sua liberdade e a redução de pena, constroem versões falsas e fantasiosas.
+A presidenta eleita Dilma Rousseff nunca negociou doações eleitorais ou ordenou quaisquer pagamentos ilegais a prestadores de serviços em suas campanhas, ou fora delas. Suas determinações sempre foram claras para que a lei seja sempre rigorosamente respeitada. Todos aqueles que trabalharam, ou conviveram com ela, sabem disso.
+São mentirosas e descabidas as narrativas dos delatores sobre supostos diálogos acerca dos pagamentos de serviços de marketing. Dilma Rousseff jamais conversou com João Santana ou Monica Moura a respeito de caixa dois ou pagamentos no exterior. Tampouco tratou com quaisquer doadores ou prestadores de serviços de suas campanhas sobre tal assunto.
+É fantasiosa a versão de que a presidenta eleita informava delatores sobre o andamento da Lava Jato. Essa tese não tem a menor plausibilidade. Dilma Rousseff jamais recebeu de quem quer que seja dados sigilosos sobre investigações. Todas as informações prestadas pelo Ministério da Justiça ocorreram na forma da lei. Tal suspeita é infundada e leviana.
+Causa ainda mais espanto a versão de que por meio de uma suposta “mensagem enigmática” (estranhamente copiada em um computador pessoal), conforme a fantasia dos delatores, a presidenta tivesse tentado “avisá-los” de uma possível prisão. Tal versão é patética. Naquela ocasião, já era notório, a partir de informações divulgadas pela imprensa, que isso poderia ocorrer a qualquer momento.
+Mais inverossímil ainda é a afirmação de que Dilma Rousseff teria recomendado que os delatores ficassem no exterior, uma vez que todos sabem que mandados de prisão expedidos no Brasil podem rapidamente ser cumpridos em países estrangeiros.
+É risível imaginar que a presidenta da República recebeu informações de forma privilegiada e ilegal ao longo da Lava Jato. Isso seria presumir que a Polícia Federal, o Ministério Público ou o próprio Judiciário, por serem os detentores e guardiões dessas informações, teriam descumprido seus deveres legais.
+O governo Dilma Rousseff sempre foi acusado, por diferentes segmentos políticos, de deixar as investigações prosseguirem de forma autônoma, “descontroladas”, não buscando interferir ou obter previamente informações a respeito. E, espantosamente, as acusações agora vão em sentido contrário. É preciso lembrar as declarações do senador Romero Jucá, de que era preciso tirar a presidenta para “estancar a sangria”, “num amplo acordo com Supremo”, “com tudo”.
+No TSE, foi possível comprovar, nas alegações finais entregues no início desta semana, que tanto João Santana quanto Monica Moura prestaram falso testemunho perante a Justiça. A defesa já pediu investigação e a suspensão dos efeitos da delação premiada, tendo em vista que ambos faltaram com a verdade. As provas estão contidas nos autos do processo no TSE.
+Dilma Rousseff acredita que, ao final de mais uma etapa desse processo político, como já provado anteriormente em relação a outras mentiras em delações premiadas, a verdade virá à tona e será restabelecida na Justiça.
+ASSESSORIA DE IMPRENSA
+DILMA ROUSSEFF

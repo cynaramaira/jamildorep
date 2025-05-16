@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Amupe cobra ao Banco do Brasil e a Caixa soluções para filas em agentes pagadores"
+date: 2020-04-30
+tags: Agentes,AMUPE,banco,brasil,Caixa,cobra,filas,Soluções Urbanas
+author: None
+---
+O prefeito de Afogados da Ingazeira, José Patriota, vem conversando nos últimos dias com as superintendências da Caixa Econômica Federal e Banco do Brasil a respeito de soluções urgentes para diminuir os transtornos causados pela aglomeração e filas na agência da caixa, lotérica e agentes pagadores em Afogados da Ingazeira.
+Em situação normal já seria complicado uma vez que esta semana a Prefeitura está realizando o pagamento dos seus servidores, além do calendário tradicional de pagamento do bolsa-família.
+Com a liberação da primeira parcela do auxílio emergencial, a situação tornou-se bastante complicada tendo em vista a necessidade da adoção das medidas de distanciamento social.
+“Além de todos esses problemas, identificamos desabastecimento de numerário nas lotéricas e agências pagadoras. E não só em Tabira, mas também em muitas cidades da Paraíba próximas a nossa região. O Banco do Brasil não vem fazendo esse abastecimento de forma a atender às necessidades da população de cada cidade, o que tem feito que nos últimos dias, pessoas oriundas de Tabira, Jurú, Princesa, Imaculada e Água Branca tenham acorrido para Afogados em busca de atendimento,” informou Patriota. Nessas cidades não há agência da caixa, apenas lotéricas. A agência da caixa na Paraíba, mais próxima, fica em Patos. Portanto, para eles, é mais rápido e próximo vir para Caixa de Afogados.
+Patriota, enquanto Presidente da AMUPE tem bom trânsito e diálogo com as superintendências em questão. Se as lotéricas passarem a ser abastecidas com numerário suficiente, a população dessas cidades não vai mais precisar vir para Afogados. “Estou conversando também com os amigos Prefeitos das cidades Paraibanas, o Ministério Público também está ajudando nessa busca de soluções, para que possamos reduzir o impacto e os problemas provocados por essas grandes aglomerações,” avaliou Patriota.
+A estimativa de despesa logística de um carro-forte gira em torno de 20 mil Reais, o que faz com que, para diminuir gastos, haja uma diminuição da quantidade de carros-fortes necessária para abastecer as lotéricas, deixando-as, em muitos casos, sem condições de pagar o auxílio-emergencial adequadamente.

@@ -1,0 +1,34 @@
+---
+layout: post
+title: "Em nota, Sinpol diz que governo ‘mente’ e Aureo Cisneiros será demitido por ação sindical"
+date: 2018-11-15
+tags: ação,governo,Nota,Serasa,sindicalização,sinpol
+author: None
+---
+Nesta quarta-feira, o presidente do Sinpol, Auréo Cisneiros, candidato a deputado estadual pelo PSOL nas últimas eleições, anunciou que foi notificado pela Corregedoria da SDS para apresentação de defesa no prazo de dez dias em um processo disciplinar que pode culminar em sua demissão, sob a alegação de recorrentes transgressões disciplinares0.
+“Essa perseguição é uma vergonha. Um verdadeiro absurdo. O que mais me revolta é que todos os membros da Comissão indicaram pela demissão”, reclamou.
+“Todos os processos administrativos são em decorrência da atividade sindical. Nenhum dos PAD’s instaurados foi por cometer crimes ou infrações administrativas. Pelo contrário, todos foram para melhorar as condições de trabalho e salários dos policiais Civis, inclusive dos membros desta Comissão”, afirmou.
+A SDS rebateu, com uma nota oficial, no mesmo dia. Veja os esclarecimentos da Corregedoria Geral da SDS, abaixo.
+“A Corregedoria Geral da SDS esclarece que o Comissário Especial de Polícia Áureo Cisneiros Luna Filho não foi excluído da Polícia Civil de Pernambuco. Ele responde atualmente a quatro Procedimentos Administrativos Disciplinares (PADs), sendo um deles por contumácia, ou seja, quando o servidor transgride as normas disciplinares de forma repetida. O servidor em questão já foi penalizado em 6 PADs no âmbito da corregedoria. Na fase atual do PAD questionado, o policial foi citado para apresentar, em um prazo de dez dias, sua defesa”.
+“A Corregedoria da SDS respeita o livre exercício de manifestação, e reafirma que o amplo direito de defesa é garantido em todos os processos disciplinares. É importante esclarecer que esses processos, conduzidos de forma técnica, investigam a atuação de servidores enquanto policiais, sem qualquer relação com atividade sindical. Não há, no trabalho da Corregedoria, qualquer juízo de valor, apenas o cumprimento da legislação e regimentos das corporações”, informou a SDS, por meio de nota oficial.
+Depois do comunicado da SDS, quem vem a público é o Sinpol, rebatendo o governo do Estado.
+Veja a nota oficial da entidade, abaixo
+“SINPOL DESMENTE GOVERNO DO ESTADO SOBRE OS MOTIVOS DA IMINENTE DEMISSÃO DE SEU PRESIDENTE”
+Foi com surpresa e indignação que o Sindicato dos Policiais Civis de Pernambuco (Sinpol-PE) recebeu a notícia de que o Governo do Estado deu um consistente passo para consolidar a demissão do presidente da entidade, Áureo Cisneiros. Através de uma notificação, o governo informou que o processo que averiguava uma suposta contumácia (práticas reiteradas de faltas funcionais) foi finalizado, tendo a Comissão processante entendido por sua DEMISSÃO, faltando apenas a assinatura do governador.
+É importante frisar que o vice-presidente do Sinpol, Rafael Cavalcanti, também está respondendo a um processo de contumácia pelos mesmos fatos. Ao todo são mais de 40 processos administrativos instaurados contra a diretoria do Sinpol. Isso evidencia uma perseguição sistemática à entidade que representa os Policiais Civis de Pernambuco.
+
+Com essa atitude o Governo está descumprindo acordo firmado com o Sinpol em 2016, quando os Policiais decidiram encerrar uma greve a partir do compromisso assumido pelo próprio governo, entre eles o de anistiar todos os processos administrativos relativos à atividade sindical que envolvessem a diretoria e sua categoria.
+O pedido de demissão se ampara no conceito de contumácia, que pune o servidor pela repetição de infrações no exercício da função policial. A Corregedoria deveria servir apenas para apurar as condutas dos servidores enquanto policiais. Áureo e Rafael estão afastados, por Ato do Próprio Estado, dessas funções, estando exclusivamente dedicados a atividade sindical como representantes dos trabalhadores policiais civis. Como se não fosse suficiente, o Governo vem a público, através de uma nota, mentir descaradamente ao povo pernambucano, afirmando que os processos que sustentam a contumácia são em decorrência de faltas no cumprimento de seus respectivos deveres policiais.
+São 25 processos administrativos ajuizados contra Áureo e Rafael, TODOS em decorrência de estrita atividade sindical em defesa dos interesses dos policiais civis e da sociedade pernambucana, vítimas do descontrole da violência. Todo esse absurdo configura um flagrante atentado a liberdade sindical e ao espírito republicano que espera-se de nossos governantes. O uso político de instrumentos regulatórios, como a Corregedoria da SDS, é característica de regimes de excessão, que cremos e esperamos não ser o caso de Pernambuco.
+
+Diferente do Governo, que tenta confundir o povo através de falácias, expomos a seguir todos os processos que fundamentaram o pedido de demissão, bem como a Proposta do Acordo no qual o Governo se compromete a arquivar todos os Processos Administrativos supracitados, além do Diário Oficial onde consta a dispensa de Áureo e sua diretoria para exercício da atividade sindical.
+PAD n° 10.101.1003.00044/2015.1.1
+ Atuação sindical, reivindicando melhores condições para os policiais que atuam nas operações de repressão qualificada (ORQ's), como: pagamento antecipado de diárias, colete e munição atualizados, intervalo de descanso antes e depois de realização das referidas ORQ's.
+PAD n° 10.101.1022.00025/2016.1.1 
+ Atuação sindical, quando Áureo , nos dias 03 e 04 de março de 2015 adentrou no IML Recife para verificar as condições estruturais, a partir de denúncias recebidas que Policiais perderam a visão e contraíram doenças infectocontagiosas. A Corregedoria alegou invasão do IML e que Áureo veiculou imagens e fotografias através da imprensa local.
+PAD n° 10.101.1022.00019/2016.1.1
+ Atuação sindical, onde Áureo e João Rafael adentraram nas dependências do IML Recife em 06/07/2015 para verificar denúncia de usurpação de função pública, onde pessoas não policiais civis estavam realizando exames de corpo de delito e outras perícias. A Corregedoria alegou que os mesmos invadiram o IML, causando tumulto e paralisação das atividades.
+PAD n° 10.101.1022.00020/2016.1.1
+ Atuação sindical, onde Áureo realizou protesto em frente à sede da FIEPE, cobrou explicações sobre denúncias de corrupção e superfaturamento envolvendo a construção da Arena Pernambuco. Na época a Polícia Federal deflagrou a Operação Fair Play para apurar as denúncias.
+PAD n° 10.101.1022.00016/2016.1.1
+ Atuação sindical, onde os Imputados estiveram em em 26/05/2015 para verificar as condições precárias de trabalho apresentadas pelo IML/SVO (Serviço de Verificação de Óbitos) de Caruaru/PE, onde denúncias apontavam para problemas de usurpações de função e de higiene que comprometiam a saúde de policiais e da população em geral.

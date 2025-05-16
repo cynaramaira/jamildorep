@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Juíza cassa mandato de Romero Albuquerque e o deixa inelegível por oito anos"
+date: 2017-06-22
+tags: Inelegível,juíza Selma,oito anos,Romero Ferro
+author: None
+---
+Em ação movida pelo suplente Wilton Brito (PP), o vereador Romero Albuquerque, do mesmo partido, pode perder o mandato e ainda ficar inelegível por oito anos. A juíza da 1ª Zona Eleitoral, Maria Thereza Paes Sá Machado, acatou o pedido e condenou nesta quinta-feira (22) o parlamentar por abuso de poder econômico. No processo, o Ministério Público Eleitoral ainda o acusou de distribuir panfletos apoiando candidatos distintos à eleição majoritária - Geraldo Julio (PSB) e Daniel Coelho (PSDB). Albuquerque vai recorrer da decisão e, enquanto aguarda a conclusão do processo, permanece no cargo.
+O vereador foi condenado por haver conteúdo patrocinado em quatro perfis com o seu nome no Facebook e no Instagram - romeroalbuquerque 11000, Romero Albuquerque, Romero Albuquerque Defensor e Romero Albuquerquell. Na ação, Albuquerque afirmou que as páginas não eram suas. A juíza afirmou na sentença, porém, que informações prestadas pelas redes sociais informam que os administradores têm ligação com o parlamentar e dois deles estão trabalhando no seu gabinete na Câmara de Vereadores.
+"Da documentação enviada pelo Facebook, ainda é possível inferir que a própria página 'oficial' administrada diretamente pelo investigado também foi responsável por anúncios patrocinados no período de 18/08/16 a 21/08/16", diz ainda a magistrada na sentença. Para ela, não seria crível que tantos perfis tivessem sido criados e fossem administrados sem o conhecimento do parlamentar e seu consentimento.
+LEIA TAMBÉM
+» Após ameaçar pedir saída de Geraldo Julio, Romero Albuquerque afaga prefeito
+» Ex-candidatos do Vem Pra Rua e do PSOL se unem contra Romero Albuquerque, que rebate
+» Após acusações, PP sai em defesa de Romero Albuquerque
+» Proibição de tração animal no Recife deve ser regulamentada em julho
+A juíza argumenta ainda que, das 27 representações movidas contra o vereador por propaganda irregular, 16 foram confirmadas pelo Tribunal Regional Eleitoral de Pernambuco (TRE-PE) e em seis o Tribunal Superior Eleitoral (TSE) acolheu a decisão da primeira instância.
+O processo julgado desta vez foi a Ação de Investigação Judicial Eleitoral (Aije) de número 1442, apresentada por Wilton Brito e pelo PRTB. Albuquerque recebeu 5,613 nas últimas eleições, apenas 22 a mais que os 5,591 de Wilton Brito, que foi vereador na legislatura anterior.
+"Não se pode deixar de reconhecer como revestida de manifesta gravidade a conduta do candidato que utiliza de ferramenta paga disponível no Facebook e no Instagram com o fim específico de impulsionar a propaganda eleitoral na internet, alcançando um número significativo de eleitores que, normalmente, não receberiam tais mensagens", considerou a juíza. "Ora, a utilização desse método de aumento de exposição em rede social, mais do que configurar uma modalidade de propaganda eleitoral vedada, vai de encontro ao fim maior da legislação eleitoral, que é o de assegurar a igualdade de condições entre os candidatos e a lisura das eleições."
+Defesa
+Em nota, Romero Albuquerque disse que não foi notificado. "Recebo com surpresa a notícia do julgamento dessas ações e surpresa maior de tomar conhecimento pela imprensa, quando o site da Justiça Eleitoral sequer tenha publicado quaisquer decisão a respeito do assunto", disse. "Assim que tiver um posicionamento oficial irei fazer os esclarecimentos que julgar necessários, com a plena convicção da reforma da decisão nas instâncias recursais superiores em termos dos apontamentos do Ministério Público de Pernambuco (MPPE), aos quais tenho combatido com incessante atividade parlamentar, irrestrito cumprimento das promessas de campanha e independência em termos das convicções e princípios que defendo", acrescentou.
+O vereador vai recorrer da decisão. "Enveredarei todos os esforços para demonstrar não ter praticado qualquer conduta que macule a minha votação e mais ainda, demonstrar que minhas ações sociais e capacidade de interlocução nas redes sociais jamais precisaram de propaganda paga", afirmou na nota. "Em seis meses, conseguimos apresentar o maior número de projetos de lei na Câmara Municipal do Recife, manter uma interlocução de independência com a Prefeitura, fiscalizando e cobrando os programas afetos às bandeiras que já defendo desde jovem, como a Regulamentação da Tração Animal, a implantação da Central Animal de Pernambuco, o Samu Animal, Solicita Recife e após várias conversas com o prefeito conseguimos a inauguração do Hospital Veterinário do Recife, entre outros projetos."
+Leia a sentença contra Romero Albuquerque
+ 
+ Juíza cassa mandato de Romero Albuquerque o deixa inelegível por oito anos  from Portal NE10

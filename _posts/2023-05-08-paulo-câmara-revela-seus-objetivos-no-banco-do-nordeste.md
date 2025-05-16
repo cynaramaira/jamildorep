@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Paulo Câmara revela seus objetivos no Banco do Nordeste"
+date: 2023-05-08
+tags: jamildo, Paulo Câmara
+author: Jamildo Melo
+---
+Sem alarde, o ex-governador Paulo C&acirc;mara revelou ao jornal cearense "O Povo" seus objetivos a frente do Banco do Nordeste, estatal federal na qual foi indicado presidente por Lula (PT).
+"O Nordeste tem a matriz energ&eacute;tica mais sustent&aacute;vel do pa&iacute;s, um mercado consumidor de 57 milh&otilde;es de habitantes, sendo a regi&atilde;o brasileira mais pr&oacute;xima dos mercados europeu e norte-americano. O BNB ser&aacute; um catalizador dessas aptid&otilde;es, que incluem infraestrutura portu&aacute;ria e aeroportu&aacute;ria, al&eacute;m de um potencial consider&aacute;vel na ind&uacute;stria e no agroneg&oacute;cio", revelou Paulo C&acirc;mara.
+Paulo levou para sua equipe o ex-secret&aacute;rio da Casa Civil de Pernambuco, Jos&eacute; Neto, tamb&eacute;m auditor do TCE.
+"Meu objetivo &eacute; ampliar ainda mais a atua&ccedil;&atilde;o da institui&ccedil;&atilde;o na promo&ccedil;&atilde;o do desenvolvimento sustent&aacute;vel do Nordeste", revelou o ex-governador.
+O ex-governador se desfiliou do PSB, no in&iacute;cio do ano e antes de ser nomeado para o banco.
+Agora est&aacute; sem partido, entrando na estatal pela cota pessoal do presidente Lula (PT).
+Apesar da desfilia&ccedil;&atilde;o, os deputados estaduais do PSB continuam defendendo o legado de Paulo C&acirc;mara na Assembleia, com bastante for&ccedil;a e entusiasmo.
+LEIA O TEXTO DE PAULO C&Acirc;MARA SOBRE O FUTURO DO BNB
+Desafios e perspectivas para o desenvolvimento do Nordeste
+Assumir a presid&ecirc;ncia do Banco do Nordeste do Brasil (BNB) &eacute; um grande desafio e uma grande honra para mim. Como nordestino nascido em Pernambuco, filho de cearense e ex-governador do meu estado, conhe&ccedil;o de perto a import&acirc;ncia dessa institui&ccedil;&atilde;o para a nossa regi&atilde;o.
+O BNB &eacute; o principal vetor do desenvolvimento do Nordeste, atuando em todos os setores da economia. Nos &uacute;ltimos anos, a institui&ccedil;&atilde;o tem se destacado por suas a&ccedil;&otilde;es de fomento ao empreendedorismo individual, por meio dos programas de microcr&eacute;dito urbano e rural, respectivamente, Crediamigo e Agroamigo, e do cr&eacute;dito para microempresas, segmentos com alta capacidade de gera&ccedil;&atilde;o de emprego e renda.
+Meu objetivo &eacute; consolidar esses avan&ccedil;os e ampliar ainda mais a atua&ccedil;&atilde;o da institui&ccedil;&atilde;o na promo&ccedil;&atilde;o do desenvolvimento sustent&aacute;vel do Nordeste. Temos o compromisso de levar acesso ao cr&eacute;dito e aos servi&ccedil;os banc&aacute;rios a todas as camadas da popula&ccedil;&atilde;o nordestina, incluindo os setores mais vulner&aacute;veis.
+Vamos trabalhar, entretanto, em diversas frentes, como o fortalecimento de cadeias produtivas; o apoio a iniciativas voltadas &agrave; infraestrutura econ&ocirc;mica e social da regi&atilde;o; e o est&iacute;mulo &agrave; inova&ccedil;&atilde;o e&agrave; tecnologia.
+Ressalto que o Nordeste tem a matriz energ&eacute;tica mais sustent&aacute;vel do pa&iacute;s, um mercado consumidor de 57 milh&otilde;es de habitantes, sendo a regi&atilde;o brasileira mais pr&oacute;xima dos mercados europeu e norte-americano. O BNB ser&aacute; um catalizador dessas aptid&otilde;es, que incluem infraestrutura portu&aacute;ria e aeroportu&aacute;ria, al&eacute;m de um potencial consider&aacute;vel na ind&uacute;stria e no agroneg&oacute;cio.
+Otimizar processos e oferecer servi&ccedil;os ainda mais eficientes, al&eacute;m de manter um olhar diferenciado para investimentos sustent&aacute;veis e empreendedorismo ser&aacute; uma das marcas de nossa gest&atilde;o. Todos os meus esfor&ccedil;os ser&atilde;o, portanto, para que o Banco evolua ainda mais em governan&ccedil;a e efici&ecirc;ncia operacional, sem perder de vista sua miss&atilde;o de promover o desenvolvimento sustent&aacute;vel da Regi&atilde;o.
+Por fim, gostaria de ressaltar que estou ciente dos desafios que enfrentaremos no caminho. No entanto, confiante de que, com trabalho duro, muita responsabilidade, dedica&ccedil;&atilde;o e coopera&ccedil;&atilde;o, poderemos superar esses obst&aacute;culos e alcan&ccedil;ar grandes resultados em benef&iacute;cio de todos os estados da &aacute;rea de atua&ccedil;&atilde;o do Banco.

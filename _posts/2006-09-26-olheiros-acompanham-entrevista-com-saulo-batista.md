@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Olheiros acompanham entrevista com Saulo Batista"
+date: 2006-09-26
+tags: Batista Lima,entrevista
+author: None
+---
+Por Sérgio Montenegro FilhoRepórter especial do JCA entrevista concedida por Saulo Batista ontem foi confusa e tumultuada, e contou com a “participação??? de pessoas que se disseram jornalistas, mas não se identificaram nem informaram os ve?culos de comunicação para os quais supostamente trabalhavam. Outras pessoas presentes se denominaram apenas como “eleitores interessados no caso???.Durante a entrevista, porém, um dos presentes, que se identificou como Éden Wiedmann, sócio da empresa WS Consultoria, disse ter ido ao local para cobrar um preju?zo de R$ 14 mil, segundo ele, promovido por Saulo Batista há três anos. Ele explicou que a sua empresa e uma outra - a Liz Eventos - teriam sido contratadas pelo ex-militante estudantil para organizar o Competur, um congresso de universitários, segundo afirmara Batista, de n?vel internacional. “Na época, ele (Saulo) se apresentou como braço direito do senador Sérgio Guerra, mas não era. E o Competur era um evento falso, mas nós não sab?amos e produzimos todo o material gráfico, estandes e até iniciamos as inscrições dos participantes. Mas as universidades envolvidas desconfiaram, checaram e notaram que a história era falsa. A?, ele sumiu???, disse Wiedmann, que informou trabalhar para a campanha de Luiz Vidal, candidato a governador pelo PSDC, e em campanhas no Estado de Alagoas. 
+“É inadmiss?vel chamar esse trambiqueiro de empresário. Ou ele faz isso de olho na grana ou quer provocar inferno pol?tico???, acrescentou, informando ter gravado um depoimento para o guia eleitoral de Eduardo Campos, com a permissão de Vidal. Só não soube informar quando irá ao ar. Batista negou as acusações e desafiou o consultor a prová-las na Justiça.
+Leia mais aqui (assinantes JC e UOL). 

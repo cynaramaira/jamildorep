@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Elias Gomes dispensa licitação e vai pagar R$ 690 mil para que a Fundação Getúlio Vargas faça plano de cargos e salários do município"
+date: 2009-10-22
+tags: Ciro Gomes,dispensa licitação,facada,Fundação Renova,município,Plano,Salários
+author: None
+---
+Est&aacute; no Di&aacute;rio Oficial do dia 15 de outubro. E inquietando funcion&aacute;rios da prefeitura.
+&ldquo;A implanta&ccedil;&atilde;o de plano de cargos &eacute; um ato que denotaria compromisso com o desenvolvimento dos servidores.Por&eacute;m, a forma como est&aacute; sendo implementado e o custo &eacute; que est&atilde;o fora da realidade. A FGV n&atilde;o &eacute; detentora de nenhuma qualifica&ccedil;&atilde;o que a habilite a fornecer este servi&ccedil;o sem o devido processo licitat&oacute;rio. Muito pelo contr&aacute;rio, ela &eacute; apenas mais uma institui&ccedil;&atilde;o dentre v&aacute;rias que estariam aptas a fornecer este servi&ccedil;o e, com certeza, a um pre&ccedil;o beeeem menor. Assim, a FGV est&aacute; para Elias Gomes de Jaboat&atilde;o o que Sandy e Jr. esteve para Jo&atilde;o Paulo em Recife&rdquo;, afirma um funcion&aacute;rio, sob reserva.
+No di&aacute;rio oficial do munic&iacute;pio do dia 15 de outubro do presente ano, na &uacute;ltima p&aacute;gina na &uacute;ltima &quot;not&iacute;cia&quot; consta a contrata&ccedil;&atilde;o da FGV pelo valor de R$ 690.000,00 (seiscentos e noventa mil reais), para elaborar e implantar o plano de cargos, dentro de seis meses.
+A quest&atilde;o vem se arrastando desde a gest&atilde;o de Fernando Rodovalho. Curiosamente, no di&aacute;rio oficial do munic&iacute;pio, datado de 06 a 12 de outubro de 2007, consta o resultado de uma outra licita&ccedil;&atilde;o que contrata a empresa de consultoria Baker Tilly (www.bakertilly.com.br), para elaborar o plano pelo valor de R$ 48.000,00, em um prazo de 6 meses para tal. O prazo n&atilde;o foi cumprido e o plano n&atilde;o foi implantado por causa do per&iacute;odo eleitoral.
+O plano foi reapresentado pelo sindicato dos servidores &agrave; atual gest&atilde;o que ap&oacute;s diversas reuni&otilde;es resolveu submeter a uma entidade &quot;competente&quot; para analis&aacute;-lo e dar um parecer. 

@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Mulheres denunciam esquema de prostituição dentro de penitenciária de Petrolina: “Tem preso que leva até três”"
+date: 2015-11-25
+tags: esquema criminoso,levantamento,mulheres,Petrolina,preso,skate
+author: None
+---
+ Foto: Divulgação
+Do Blog do Carlos Britto
+Quem vê os muros intransponíveis da Penitenciária Dr. Edvaldo Gomes, em Petrolina, nem imagina que o lugar onde os presos deveriam cumprir pena pelos crimes, na verdade vem sendo palco de orgias regadas a prostitutas que chegam a passar dias dentro da unidade prisional.
+A denúncia é das esposas dos detentos, as quais dizem não aguentar mais a “humilhação” de serem substituídas pelas prostitutas durante as visitas íntimas. Elas também querem saber como os maridos conseguem contratar as prostitutas fora do presídio.
+Vivendo a triste rotina de visitas prisionais há quatro anos, a comunitária Carolaine Magalhães conta que as prostitutas entram tranquilamente na penitenciária e algumas chegam a ficar dias “faturando” dentro do ambiente onde, pela regra, apenas as pessoas da família estariam autorizadas a entrar.
+A situação é tão crítica que, segundo relatos das esposas, alguns presos chegam a levar três prostitutas de uma só vez para dentro de sua cela. “Lá a coisa é um terror. É orgia. Todo mundo sabe a bagunça que é. Tem preso com dinheiro que chega a levar três prostitutas de vez para a cela. E elas [prostitutas] ainda saem contando vantagem, dizendo quanto faturaram com os maridos, que elas chamam de mercadoria”, conta uma das esposas.
+Prostituição e violência
+As mulhere contam que o fato não acontece apenas nos dias destinados às visitas íntimas. Algumas prostitutas chegam a passar muito mais tempo dentro da penitenciária. “Há alguns dias eu fiquei sabendo que uma delas [prostituta] ficou foi mais de três dias lá dentro. E foi bem no meio da semana, quando ninguém tem direito a visitar preso nenhum”, disse a esposa.
+Para Patrícia dos Santos – que também é esposa de um detento – o caso precisa ser investigado para que as mulheres dos presos possam ter o mínimo de dignidade no momento de visitar seus maridos. “O que a gente quer saber é como é que uma prostituta bota o nome e entra no lugar da mulher do preso. Porque eles [agentes] não respeitam a gente, que muitas vezes vem de longe com sacolas pesadas com comida, filhos e tudo mais e não tem respeito. Aí a mulher vem para fazer a visita e quando chega, já tem outra. Como é que pode uma coisa assim?”, questiona.
+Um fato ainda mais intrigante da denúncia é que as prostitutas que mantêm relações sexuais com os detentos chegam a ameaçar e até agredir as esposas, quando não recebem o valor acertado pelo programa.
+“Elas [prostitutas] saem, tiram onda da cara da gente e ainda espancam e ameaçam as esposas do lado de fora, quando os homens não pagam. Eu mesma já vi mulher lá sendo espancada pelas prostitutas”, diz Carolaine.
+Controle ineficiente
+Incomodadas com a situação, as mulheres dos detentos cobram da direção do presídio o porquê de as prostitutas terem acesso livre. “Eu só sei que elas chegam na fila, mostram um papel para os agentes e entram. Já denunciaram isso ao diretor e ele disse que ia investigar, mas até agora está tudo do mesmo jeito”, afirma Carolaine.
+As mulheres dos detentos dizem ainda que as prostitutas estariam tendo acesso ao cadastro de visitantes e assim conseguem uma suposta autorização para entrar no lugar das esposas. “Um dia desses uma colega minha foi para uma visita íntima ao marido e quando apresentou a ficha dela de cadastro, o agente disse que ele já estava com a esposa na visita. Quer dizer, a mulher vem de longe e quando chega é substituída pela prostituta”, relata.
+O diretor da unidade, Alessandro Barbosa, explicou ao Blog que cada detento tem direito a cinco visitas semanais, além da visita íntima que é feita aos sábados. Para ter acesso ao pátio de visitas, os familiares precisam constar em um cadastro, que é feito pela administração do presídio mediante apresentação de documentos que comprovem o parentesco com o detento. As visitas acontecem de 8h às 16h.
+Sobre as denúncias, a Secretaria de Ressocialização do Estado (SERES) enviou uma nota ao Blog na qual informou que “as denúncias serão apuradas pela Gerência de Inteligência e Segurança Orgânica do município (Giso) e, se necessário, serão tomadas as devidas providências”. A Penitenciária Dr. Edvaldo Gomes possui 417 celas e atualmente está com 1.341 detentos.

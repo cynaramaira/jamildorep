@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Conselho de Biologia comemora suspensão do projeto do Arco Metropolitano "
+date: 2021-11-20
+tags: arco metropolitano
+author: JAMILDO MELO
+---
+O Conselho Regional de Biologia da 5&ordf; Regi&atilde;o (CRBio-05) comemorou a anula&ccedil;&atilde;o da licita&ccedil;&atilde;o do Arco Metropolitano, pelo Estado, na semana passada.
+"Alertamos a sociedade sobre os potenciais impactos ambientais que poderiam resultar da constru&ccedil;&atilde;o do Arco Vi&aacute;rio Metropolitano se adotado um tra&ccedil;ado cortando um dos remanescentes florestais mais importantes do estado de Pernambuco. Esse remanescente se encontra na APA Aldeia Beberibe, sendo esta Unidade de Conserva&ccedil;&atilde;o essencial para manuten&ccedil;&atilde;o de mananciais h&iacute;dricos do Estado e para manuten&ccedil;&atilde;o da sua biodiversidade. A APA Aldeia Beberibe e os fragmentos de Mata Atl&acirc;ntica no seu entorno comportam esp&eacute;cies nativas, muitas delas amea&ccedil;adas de extin&ccedil;&atilde;o".
+O debate na forma de &ldquo;live&rdquo; transmitida pelo canal do Youtube do CRBio-05 no dia 27 de julho de 2021 teve como tema central &ldquo;Prevenir ou compensar? Arco vi&aacute;rio metropolitano, biodiversidade e economia de Pernambuco&rdquo;. Durante mais de duas horas, bi&oacute;logos do estado e representantes da Ag&ecirc;ncia Estadual do Meio Ambiente, da Secretaria de Meio Ambiente e Sustentabilidade, e da Secretaria de Infraestrutura e Recursos H&iacute;dricos do Estado de Pernambuco discutiram sobre os pr&oacute;s e contras da constru&ccedil;&atilde;o do arco.
+&ldquo;Essa produtiva discuss&atilde;o trouxe a perspectiva do impacto ambiental e da necessidade de revis&atilde;o do tra&ccedil;ado proposto pelo documento licitat&oacute;rio para constru&ccedil;&atilde;o do Arco Vi&aacute;rio Metropolitano em Pernambuco. Foi argumentado que o tra&ccedil;ado deveria contornar o fragmento da APA Aldeia Beberibe e outros fragmentos nas proximidades com potencial de conex&atilde;o por corredores ecol&oacute;gicos. Por exemplo, como &eacute; o caso da Mata dos Macacos em Igarassu que comporta uma popula&ccedil;&atilde;o de macacos que j&aacute; chegou a ser uma das 25 esp&eacute;cies de primatas mais amea&ccedil;adas do planeta, o macaco-prego-galego, Sapajus flavius&rdquo;, declarou a professora Bruna Bezerra, do Departamento de Zoologia da Universidade Federal de Pernambuco (UFPE).
+
+  
+  Tra&ccedil;ado do Arco Metropolitano previsto no edital da AD Diper - Divulga&ccedil;&atilde;o
+
+Em 12 de novembro de 2021, a anula&ccedil;&atilde;o do Processo n&deg; 060/CPL/2021, Modalidade: Procedimento de Licita&ccedil;&atilde;o n&deg; 008/2021, foi publicada no Di&aacute;rio Oficial de Pernambuco.
+&ldquo;Essa anula&ccedil;&atilde;o do processo licitat&oacute;rio para constru&ccedil;&atilde;o do Arco mostrou o compromisso do Estado com o Meio Ambiente, colocando Pernambuco em uma posi&ccedil;&atilde;o de destaque no cen&aacute;rio de conserva&ccedil;&atilde;o de sua biodiversidade. A disponibilidade e abertura dos representantes do Estado para discuss&atilde;o foram muito importantes. O CRBio-05 espera poder continuar discutindo rotas alternativas para o arco vi&aacute;rio metropolitano e outros empreendimentos em &aacute;reas naturais de Pernambuco, sempre buscando balancear sustentabilidade, desenvolvimento econ&ocirc;mico, biodiversidade e meio ambiente&rdquo;, comentou a conselheira secret&aacute;ria do CRBio-05, Rachel Lyra.

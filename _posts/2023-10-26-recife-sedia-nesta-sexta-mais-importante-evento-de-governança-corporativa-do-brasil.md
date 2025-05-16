@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Recife sedia nesta sexta mais importante evento de governança corporativa do Brasil"
+date: 2023-10-26
+tags: jamildo, governança corporativa
+author: Jamildo Melo
+---
+O Instituto Brasileiro de Governan&ccedil;a Corporativa (IBGC) far&aacute; na capital pernambucana, nesta sexta, no dia 27 de outubro de 2023, &agrave;s 9h, o lan&ccedil;amento da 6&ordf; edi&ccedil;&atilde;o do C&oacute;digo das Melhores Pr&aacute;ticas de Governan&ccedil;a Corporativa. O evento ser&aacute; realizado no Hotel Luzeiros, no bairro do Pina.
+Como think tank da governan&ccedil;a corporativa, o evento contar&aacute; com a presen&ccedil;a de Adriano Marcelo Baptista, gerente executivo da Moura Dubeux; Cristiana Pereira, s&oacute;cia da ACE Governance, conselheira, investidora-anjo, mentora; Gabriela Baumgart, presidente do conselho de administra&ccedil;&atilde;o do IBGC e Leonardo Pereira, vice-presidente do conselho de administra&ccedil;&atilde;o do IBGC
+O C&oacute;digo das Melhores Pr&aacute;ticas de Governan&ccedil;a Corporativa do IBGC &eacute; uma das mais importantes refer&ecirc;ncias sobre o tema no pa&iacute;s, trazendo defini&ccedil;&otilde;es, princ&iacute;pios e recomenda&ccedil;&otilde;es aplic&aacute;veis a uma ampla gama de organiza&ccedil;&otilde;es.
+Para atualizar o documento em rela&ccedil;&atilde;o &agrave;s recentes tend&ecirc;ncias em governan&ccedil;a corporativa e a um panorama de r&aacute;pidas transforma&ccedil;&otilde;es na sociedade e no ambiente de neg&oacute;cios, o documento passou por um extenso processo de revis&atilde;o que agora resulta em uma nova edi&ccedil;&atilde;o.
+Import&acirc;ncia da governan&ccedil;a corporativa 
+A governan&ccedil;a corporativa &eacute; um conjunto de princ&iacute;pios, leis, regras e pr&aacute;ticas que orientam a gest&atilde;o de uma empresa. Ela tem como objetivo assegurar que a empresa seja administrada de forma transparente, &eacute;tica e respons&aacute;vel, visando o interesse de todos os seus stakeholders (seus acionistas, funcion&aacute;rios, clientes, fornecedores e sociedade como um todo).
+A governan&ccedil;a corporativa &eacute; importante para as empresas por diversos motivos.
+Aumento da transpar&ecirc;ncia e da confian&ccedil;a: Uma empresa com uma boa governan&ccedil;a corporativa &eacute; mais transparente e confi&aacute;vel. Isso atrai investidores, clientes e parceiros, o que pode contribuir para o crescimento da empresa.
+Redu&ccedil;&atilde;o de riscos: A governan&ccedil;a corporativa ajuda a reduzir os riscos de fraudes, corrup&ccedil;&atilde;o e outros problemas que podem prejudicar a empresa.
+Melhoria da efici&ecirc;ncia e da produtividade: Uma empresa com uma boa governan&ccedil;a corporativa &eacute; mais eficiente e produtiva. Isso ocorre porque as decis&otilde;es s&atilde;o tomadas de forma mais transparente e respons&aacute;vel, o que pode levar a melhores resultados.
+Promo&ccedil;&atilde;o do desenvolvimento sustent&aacute;vel: A governan&ccedil;a corporativa pode contribuir para o desenvolvimento sustent&aacute;vel da empresa, por meio da ado&ccedil;&atilde;o de pr&aacute;ticas que respeitem o meio ambiente e os direitos humanos.
+No Brasil, a governan&ccedil;a corporativa &eacute; regulamentada pela Lei das Sociedades An&ocirc;nimas (LSA), que estabelece princ&iacute;pios e regras b&aacute;sicas para a administra&ccedil;&atilde;o de empresas abertas. Al&eacute;m disso, existem diversos c&oacute;digos de boas pr&aacute;ticas de governan&ccedil;a corporativa, como o C&oacute;digo Brasileiro de Governan&ccedil;a Corporativa (CBGC), que fornece orienta&ccedil;&otilde;es mais detalhadas sobre como implementar pr&aacute;ticas de governan&ccedil;a corporativa eficazes.
+A ado&ccedil;&atilde;o de boas pr&aacute;ticas de governan&ccedil;a corporativa &eacute; essencial para as empresas que desejam ser bem-sucedidas no longo prazo. Elas contribuem para a cria&ccedil;&atilde;o de um ambiente de neg&oacute;cios mais saud&aacute;vel e competitivo, o que pode levar ao crescimento e ao desenvolvimento das empresas. Simples assim.

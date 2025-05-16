@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Criação de Conselho Municipal de Políticas para População LGBT será discutida na Câmara"
+date: 2014-02-10
+tags: Câmara,Guarda Municipal,lgbt,população,recriação,Serasa
+author: None
+---
+ Foto: reprodução internet
+Na próxima quarta-feira (12), o vereador Jayme Asfora promove audiência pública para debater o projeto de lei do Executivo nº 60/2013  – encaminhado à Câmara do Recife no final de 2013 – que cria o Conselho Municipal de Políticas Públicas para população de Lésbicas, Gays, Bissexuais, Travestis e Transexuais (LGBT). A audiência tem início às 10h no Plenarinho da Casa e tem por objetivo não só discutir o projeto, como levantar possíveis propostas que o aprimorem.
+Para o vereador, a Prefeitura realiza uma ação fundamental na busca pela igualdade de direitos ao encaminhar Projeto de Lei com o intuito de criar o Conselho Municipal LGBT. Entre as atribuições previstas estão a de propor, deliberar e monitorar a implementação de políticas públicas de interesse da população LGBT e apresentar às secretarias do Município, projetos voltados ao desenvolvimento de ações intersetoriais que contribuam para a efetiva integração social, econômica, cultural e política da população LGBT. “O que o município está fazendo é estabelecer uma política pública para o atendimento à população LGBT que transpasse e envolva todos os órgãos da gestão, sempre com o objetivo de garantir a esses cidadãos o acesso total a seus direitos”.
+“É importante ressaltar que, ao mesmo tempo em que garantimos grandes avanços no reconhecimentos dos direitos desse segmento, o preconceito parece  não retroceder. Por isso, é preciso contarmos com órgãos que atuem especificamente com esse público, pois, muitas vezes, o constrangimento é um impeditivo da denúncia. O Conselho, instituído com esse fim, será um caminho importante para o combate à discriminação”, analisa o vereador. 
+Foram convidados, para participar da audiência, representantes do poder público, como a Secretaria de Desenvolvimento Social e Direitos Humanos e a Gerência de Livre Orientação Sexual – ambos da Prefeitura do Recife -, o Centro Estadual de Combate à Homofobia – do Governo do Estado -; bem como entidades que atuam na área da defesa dos direitos da população LGBT como a ONG Leões do Norte, o Instituto Boa Vista e a OAB-PE. 

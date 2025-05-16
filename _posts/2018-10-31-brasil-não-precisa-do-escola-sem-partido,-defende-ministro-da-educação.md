@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Brasil não precisa do Escola sem Partido, defende ministro da Educação"
+date: 2018-10-31
+tags: brasil,Educação,escola,Ministro,Naomi Campbell,Partido Verde
+author: None
+---
+Agência Brasil - O país já tem canais de denúncia e não precisa de uma lei como a do Escola sem Partido, afirmou o ministro da Educação, Rossieli Soares. Em entrevista à Agência Brasil, Soares defendeu que estudantes e famílias procurem primeiro a escola e, se necessário, as secretarias de Educação, caso haja problemas na sala de aula.
+“Acho que não pode ter na escola partidarização. Acho que a escola ou universidade não pode ser partidarizada, mas não precisamos ter uma lei para isso. Já é proibido utilizar estruturas públicas, por exemplo, para propaganda política. A discussão da liberdade de cátedra do professor tem que continuar existindo, respeitando as regras que temos. Já existe uma série de leis [sobre isso]”, disse.
+Nesta quarta-feira (31), comissão especial da Câmara dos Deputados deverá votar o parecer do Projeto de Lei 7.180/2014, o Escola sem Partido. Caso seja aprovada na Câmara, a matéria seguirá para análise do Senado Federal. O projeto é uma das bandeiras do presidente eleito Jair Bolsonaro (PSL) para a educação.
+Após a eleição de Bolsonaro, baseando-se nas ideias do projeto, a deputada eleita estadual de Santa Catarina Ana Caroline Campagnolo (PSL) chegou a recomendar que estudantes gravassem aulas e fizessem denúncias sobre professores que manifestassem opiniões políticas contrárias a Bolsonaro. O Ministério Público de Santa Catarina (MPSC) entrou nessa terça-feira (30) com ação na Justiça contra a deputada estadual.
+“Entendo que, se existe qualquer fato que incomode, seja ideologia partidária que porventura o professor exponha, seja de direita, seja de esquerda, tanto faz, ou qualquer problema que ocorra na escola, é muito importante que a família e o estudante procurem a própria escola primeiro”, disse Rossieli Soares.
+Para o ministro, caso o problema não seja resolvido, as secretarias municipais ou estaduais devem ser acionadas. “É legítimo que, se houver algum caso que a secretaria não consiga resolver, o estudante e família possam procurar outras autoridades. Mas é necessário que se possa respeitar e observar os canais dentro do meio educacional”.
+Escola sem Partido
+Projetos de lei com conteúdos semelhantes tramitam tanto na Câmara dos Deputados quanto no Senado. A proposta é incluir entre os princípios do ensino o respeito às convicções do aluno, de seus pais ou responsáveis, dando precedência aos valores de ordem familiar sobre a educação escolar nos aspectos relacionados à educação moral, sexual e religiosa.
+Os projetos são polêmicos. Por um lado, os defensores dizem que professores e autores de materiais didáticos vêm se utilizando de suas aulas e de suas obras para tentar obter a adesão dos estudantes a determinadas correntes políticas e ideológicas.
+Já os críticos dizem que as leis atuais já impedem qualquer tipo de abuso por parte dos professores e que um projeto como o Escola sem Partido vai gerar insegurança nas salas de aulas e perseguição aos docentes. Especialistas apontam que, em várias experiências semelhantes ocorridas nos Estados Unidos, a neutralidade exigida aos professores não foi traduzida em uma neutralidade no ensino em si, mas os estudantes com opiniões mais fortes prevaleciam com relação à opinião dos mais fracos, não eliminando a doutrinação.

@@ -1,0 +1,52 @@
+---
+layout: post
+title: "Curso sobre a revolução socialista na UFSC não foi bancado com dinheiro público"
+date: 2019-12-11
+tags: cursos,dinheiro,Naomi Campbell
+author: None
+---
+Do Projeto Comprova
+Falso
+
+	O evento de um dia ocorreu em um prédio abandonado da universidade, que tem sido utilizado por estudantes para atividades organizadas por eles.
+
+É falso que a Universidade Federal de Santa Catarina (UFSC) tenha feito, no último sábado (30), um "curso preparatório para a revolução socialista" ou que impostos estejam sendo usados para "treinar revolucionários comunistas".
+O evento chamado "Programa para a revolução socialista nos dias de hoje", promovido pelo Partido da Causa Operária (PCO) de Santa Catarina, cujo logo aparece no rodapé do cartaz de divulgação, não contou com a participação institucional da universidade, embora tenha ocorrido no Centro de Convivência da UFSC.
+O espaço utilizado para o evento é, de acordo com a UFSC, um prédio que está abandonado por falta de recursos para reforma, mas que foi ocupado por estudantes. Por isso, não é necessária a autorização da universidade para a realização de eventos neste local. O Comprova já fez outra verificação envolvendo o mesmo Centro de Convivência da UFSC.
+Além disso, a proposta do evento não era preparar para uma "revolução socialista", segundo explicou ao Comprova um dos organizadores. De acordo com Roberto Araújo, militante do partido no estado e um dos organizadores do encontro, o evento visava discutir, com a mediação de um palestrante, um texto de aproximadamente 200 páginas, escrito pelo revolucionário bolchevique Leon Trótski, em 1938, sobre a criação da IV Internacional Comunista.
+Em 29 de novembro, um dia depois de o cartaz do evento sobre Tróstki ser compartilhado no Twitter pela conta @LivreUFF, aconteceu, também na UFSC, o 1º Congresso Conservador – Liberdade e Democracia, organizado pelo grupo Coalizão Conservadora. O evento teve a participação de Olavo de Carvalho por videoconferência.
+Falso, para o Comprova, é o conteúdo inventado ou que tenha sofrido edições para mudar o seu significado original e divulgado de modo deliberado para espalhar uma mentira.
+Como verificamos
+Para essa verificação, o Comprova entrou em contato com a organização do evento, por meio dos telefones disponíveis no cartaz de divulgação, e conversou com o militante do PCO-SC Roberto Araújo.
+Também entramos em contato com a assessoria de imprensa da UFSC e com o chefe de gabinete da reitoria, professor Aureo Moraes.
+Além disso, procuramos o PCO, que respondeu ao Comprova com um texto opinativo no Jornal da Causa Operária. Também acessamos sua página no Facebook e ouvimos o autor do tuíte, o perfil do Twitter @LivreUff (UFF Livre Campos dos Goytacazes).
+O cartaz é real?
+Sim. O cartaz que foi compartilhado pelo menos 3,3 mil vezes num tuíte do perfil @LivreUff é real e anunciava um evento previsto para acontecer no último sábado, dia 30 de novembro, no Auditório Ovelha do Centro de Convivência da Universidade Federal de Santa Catarina (UFSC).
+Do que se tratou o evento? A ideia foi fomentar uma revolução socialista?
+De acordo com Roberto Araújo, militante do PCO em Santa Catarina e um dos responsáveis pela organização, o evento era uma aula sobre Leon Trótski e sobre o programa da IV Internacional Comunista.
+“É uma aula sobre o Trótski, sobre o programa da IV Internacional, e não tem treino para comunista nem para socialista. É um dia, vai ser uma aula sobre um texto que tem menos de 200 páginas, que é um programa que foi escrito por Trótski em 1938”, disse Roberto. Ainda segundo ele, sete pessoas participaram do curso.
+O chefe de gabinete da Reitoria da UFSC, professor Aureo Moraes, disse que o evento era dedicado à “leitura de textos sobre Marx” e que não vê nenhuma irregularidade nisso. “É comum que os alunos se reúnam para debater temas dos mais polêmicos e mais controversos. É uma leitura de textos, é um exercício da essência do que somos”, declarou.
+O professor também afirmou que não potencializa o evento como se a universidade estivesse “formando um núcleo de comunismo”.
+“Do nosso ponto de vista, não há nenhuma irregularidade (no evento), mas estamos vivendo um momento de intolerância — e não quero dizer que a intolerância venha apenas de um ou de outro lado —, e essas coisas têm ganhado mais destaque”, pontuou.
+A UFSC esteve envolvida no evento?
+A organização do encontro negou que a universidade tivesse qualquer envolvimento. “A universidade não participa em nada [na organização do evento], ela tem função de servir à comunidade. É um evento de um partido, mas qualquer outra instituição tem o direito de pedir e usar o espaço”, disse Roberto Araújo.
+Questionada pelo Comprova, a assessoria de imprensa da universidade informou que, para uso das dependências da universidade, é preciso que um professor ou funcionário esteja presente. Isso, no entanto, não se aplica ao Centro de Convivência porque ele funciona em um prédio que está abandonado pela instituição e ocupado por estudantes.
+“Esse é um espaço utilizado pelos estudantes, onde fica a sede do Diretório Central dos Estudantes (DCE), então não é um espaço que precisa de autorização ou que alguém da comunidade tenha que estar presente. Foi um evento autônomo, isso é muito comum. Não é um evento institucional, é um evento que ocorre na universidade, nesses espaços de uso coletivo”, afirmou o professor Aureo Moraes.
+Houve dinheiro público envolvido na organização do evento? Há envolvimento do PCO?
+Na página oficial do PCO de Santa Catarina no Facebook não há um cartaz de divulgação do evento de sábado na UFSC, mas há uma fotografia postada no dia 18 de novembro informando que, no dia 10, “o Partido da Causa Operária, realizou o curso ‘O programa para revolução socialista nos dias de hoje’ na cidade de Sombrio-SC. Os cursos vão ocorrer até o início de dezembro em todo o estado”.
+Um evento criado pela página convida para o curso em Florianópolis, no dia 30 de novembro. O evento se chama “Curso de formação teórica marxista – O programa para a revolução socialista dos dias de hoje – O programa de transição da IV Internacional”. Logo abaixo, aparecem as logomarcas do PCO, do Acampamento de Férias, Universidade de Férias (da Fundação João Jorge Costa Pimenta), da Aliança da Juventude Revolucionária (AJR) – todas ligadas ao partido.
+Consultado pelo Comprova, o militante Roberto Araújo informou que não houve custos para a realização do evento por parte da universidade, que apenas cedeu o espaço, e nem para o partido, já que o palestrante convidado é integrante do PCO. Segundo Roberto, o partido recebe doações de simpatizantes, que custearam o material de divulgação.
+Assim como outros 13 partidos, o PCO está desde 1º de fevereiro impossibilitado de receber recursos do Fundo Partidário pois não alcançou a cláusula de barreira estabelecida para as eleições de 2018.
+O que diz o autor do post
+Procurado, o grupo "UFF Livre Campos de Goytacazes" afirmou que conhece o funcionamento interno de partidos revolucionários de esquerda e alegou que a palavra dessas organizações não pode ser tomada literalmente. Para o grupo, a leitura do texto de um revolucionário não pode ser tomada fora de contexto. "Imagine que fosse um grupo fascista lendo Mussolini. Um partido comunista está discutindo Trotski com qual intenção? Puramente acadêmica?", afirmaram em resposta.
+Sobre a afirmação de que há recursos públicos, o argumento do grupo fluminense é que se o espaço é público, indiretamente há uso. "Se o evento acontece num prédio deles que é custeado com dinheiro público, é implícito que, se ocorre ali, há anuência ou concordância", afirmou a página da UFF Livre Campos de Goytacazes em resposta ao Comprova.
+Contexto
+No ano passado, operações da Justiça eleitoral buscaram coibir atividades políticas nas universidades públicas do país. Para especialistas, a ação atacava a liberdade de expressão nas instituições. Entre as ações, houve uma ordem para que fosse retirada da frente da Faculdade de Direito da Universidade Federal Fluminense (UFF), a faixa com os dizeres "Direito UFF Antifascista".
+Leon Trótski, revolucionário bolchevique e um dos líderes da revolução de 1917 que foi tema do curso promovido pelo PCO no último sábado (30), também já foi assunto na atual política brasileira depois que foi comparado, em maio deste ano, a Olavo de Carvalho.
+A comparação foi feita pelo ex-comandante do Exército Brasileiro general Eduardo Villas Bôas, ao dizer que Olavo era um "Trótski de direita" por não compreender que "substituindo uma ideologia pela outra não contribui para a elaboração de uma base de pensamento que promova soluções completas para os problemas brasileiros".
+Esta reportagem da Folha de S. Paulo, parceira do Comprova, traçou um rápido perfil de Trótski à época da comparação.
+Trótski criou e comandou o Exército Vermelho, uma das organizações que teve papel fundamental na consolidação da União Soviética e, em 1938, fundou a IV Internacional Comunista — que é mencionada no cartaz do evento.
+A IV Internacional foi uma organização comunista fundada por Trótski como alternativa à III Internacional Stalinista. A fundação se deu 11 anos após ele ser julgado por traição e ser expulso do Partido Comunista por seu rival, Josef Stálin, que sucedeu Vladimir Lênin no comando da União Soviética e nele permaneceu até sua morte, em 1953.
+Para Trótski, a III Internacional seria incapaz de levar os trabalhadores ao poder político porque estava demasiadamente concentrada no stalinismo. O regime comandado por Stálin era totalitário e representava uma mudança radical no desenho do Estado soviético. Trótski foi assassinado em 1940, durante o exílio no México, pelo espião espanhol Ramón Mercader, a mando de Stálin. Ele foi morto com um golpe de picareta na cabeça.
+Repercussão nas redes
+A postagem verificada pelo Comprova foi feita no dia 28 de novembro no Twitter pelo perfil @LivreUff – UFF Livre Campos dos Goytacazes – que se autointitula “um movimento estudantil criado por alunos conservadores que combatem e denunciam o esquerdismo nas Universidade Públicas” -, e recebeu 3,3 mil curtidas, além de ter sido retuitada 1,5 mil vezes até a tarde desta terça-feira (3).

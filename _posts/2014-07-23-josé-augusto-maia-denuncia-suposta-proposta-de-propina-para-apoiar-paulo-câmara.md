@@ -1,0 +1,14 @@
+---
+layout: post
+title: "José Augusto Maia denuncia suposta proposta de propina para apoiar Paulo Câmara"
+date: 2014-07-23
+tags: Augusto Aras,denúncia,Louro José,Paulo Câmara,propina,proposta,rodrigo maia
+author: None
+---
+Paulo Câmara, Raul Henry e o presidente do PROS em Pernambuco, Gilson Lima. Foto: BlogImagem
+Em entrevista ao jornal Folha de S. Paulo, o deputado federal José Augusto Maia (PROS) denunciou que teria recebido uma proposta de propina para apoiar o ex-secretário da Fazenda Paulo Câmara (PSB) ao Governo de Pernambuco. Maia é aliado do senador Armando Monteiro Neto (PTB), principal adversário de Câmara no Estado, e foi destituído do comando do PROS estadual no dia em que o partido anunciou o apoio do PSB e que ele diz ter recebido a proposta de propina. De acordo com informações publicadas pelo jornal, o suposto valor girava em torno de R$ 6 milhões.
+Segundo o jornal paulista, Maia teria recebido a proposta tanto do presidente nacional do PROS, Eurípedes Jr., quanto do deputado federal Eduardo da Fonte, presidente do PP em Pernambuco e líder da bancada PP-PROS na Câmara Federal. O nome do prefeito do Recife, Geraldo Julio (PSB), também foi citado como a pessoa capaz de resolver o problema da candidatura de Maia. Geraldo é um dos coordenadores da campanha de Câmara.
+O encontro que garantiu o apoio do PROS ao PSB no Estado ocorreu no dia 12 de junho, no Hotel Atlante Plaza, em Boa Viagem. Participaram Eurípedes e os deputados federais Givaldo Carimbão (AL), Salvador Zimbaldi (SP), Ronaldo Fonseca (DF), Márcio Junqueira (RR) eMajor Fábio (PB). O mesmo grupo nomeou Gilson Lima para comandar o partido em Pernambuco.
+Para a Folha de S. Paulo, Maia contou que resolveu revelar o caso depois de ter a candidatura à reeleição rejeitada pelo partido. O deputado, que pertencia ao PTB, só se filiou ao PROS com a garantia de que o partido iria apoiar a candidatura de Armando. Na manhã do dia 12, enquanto o PSB já havia convocado uma coletiva para marcar o apoio da legenda, Maia disse desconhecer a aliança, em contato com o Blog.
+RESPOSTA - O Blog de Jamildo tentou contato com José Augusto Maia e com Eduardo da Fonte, mas não conseguiu ser atendido. A assessoria da campanha de Paulo Câmara informou que divulgará uma nota sobre o caso. Já a Prefeitura do Recife disse que o prefeito não está envolvido com a negociação com o PROS e que Maia não confirmou encontro com o socialista na matéria.
+Ao jornal paulista, todos os envolvidos negaram a história do deputado. Eduardo da Fonte tratou a denúncia como absurdo e disse ser fruto do "delírio do delírio". Gilson Lima afirmou que Maia está ressentido e cobrou que ele prove o que disse. Já Eurípedes disse que o deputado escondeu do partido uma prestação de contas rejeitadas da época em que era prefeito de Santa Cruz do Capibaribe, no Agreste.

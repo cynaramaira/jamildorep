@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Sindicato pede na Alepe ‘democratização do MPPE’"
+date: 2018-06-26
+tags: alepe,sindicato
+author: None
+---
+Nesta terça-feira, no Plenarinho I da Assembleia Legislativa de Pernambuco (Alepe), teve lugar uma reunião pública durante a sessão da Comissão de Constituição, Legislação e Justiça para debaer a questão da 'democratização' do Ministério Público de Pernambuco.
+A discussão é em torno do projeto de lei nº 1.984/2018, apresentado à Assembleia Legislativa de Pernambuco (Alepe), no último dia 6, pelo procurador geral de justiça, Francisco Dirceu Barros, após sessão do Colégio de Procuradores, que o rejeitou quase à unanimidade, com trinta e seis votos contra 1.
+O projeto trata da ampliação da participação dos promotores de justiça nos espaços institucionais do MPPE tais como Ouvidoria Geral, Corregedoria Geral, SubProcuradorias e Conselho Superior do Ministério Público de Pernambuco. Para o procurador geral, o projeto é a denominação de uma “democracia plena” no MPPE.
+O Sindicato dos Servidores do Ministério Público de Pernambuco (Sindsemp/PE) questiona a posição por entender que não há qualquer previsão de participação dos servidores efetivos nas instâncias eleitorais e/ou deliberativas da instituição.
+De acordo com o presidente do Sindsemp/PE, Fernando Ribamar, o momento é oportuno para a construção de um debate sobre a 'democratização' no Ministério Público.
+"É um pleito histórico da categoria, Pernambuco é pioneiro há, pelo menos 17 anos, com as PECs 23/2001, 28/2001 e 29/2002, que previam o direito dos servidores votarem nas eleições para a escolha do PGJ com a constitucionalidade admitida de forma unânime. No mesmo sentido, tramita no congresso nacional a PEC 147/2015, construída por entidades que formam a Federação Nacional dos Servidores dos Ministérios Públicos Estaduais (Fenamp)", disse Ribamar.
+O Sindsemp/pE está atuando através da visita ao gabinete de diversos parlamentares em busca da participação da categoria no que diz respeito ao processo legislativo.
+Para Ribamar, o debate interno no MPPE não pode excluir a categoria do processo já que, atualmente, não há direitos a assento e voz nas reuniões dos órgãos colegiados.
+“Estamos completando 30 anos da chamada “Constituição Cidadã” e defendemos a pertinência e oportunidade do debate da democratização do MP para que haja um aperfeiçoamento que garanta o cumprimento da missão institucional. É preciso compreender que os tempos são outros e por isso é preciso trazer novas práticas e paradigmas que venham ampliar o controle social e a participação de todos os integrantes na definição dos rumos”, diz Ribamar.
+Na reunião pública, o Sindicato dos Servidores do Ministério Público de Pernambuco (Sindsemp/PE) defendeu as três emendas protocoladas por meio dos mandatos da deputada, Teresa Leitão, e do deputado, Edilson Silva.
+A primeira visa garantir o direito a representante dos servidores ter assento e voz nas reuniões do Colégio de Procuradores e seu Órgão Especial; a segunda objetiva a participação dos servidores efetivos na eleição do Procurador Geral de Justiça; e a terceira modifica os requisitos exigidos para o acesso ao cargo máximo da Ouvidoria Geral, passando o mesmo a puder ser ocupado por procuradores e promotores de justiça, como também por servidores ou cidadãos de conduta ilibada e em pleno gozo dos seus direitos políticos.

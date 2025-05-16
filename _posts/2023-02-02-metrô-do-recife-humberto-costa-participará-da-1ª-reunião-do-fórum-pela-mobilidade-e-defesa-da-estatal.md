@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Metrô do Recife: Humberto Costa participará da 1ª reunião do fórum pela mobilidade e defesa da estatal"
+date: 2023-02-02
+tags: jamildo, Metrô do Recife, Humberto Costa
+author: Jamildo Melo
+---
+O Sindicato dos Metrovi&aacute;rios de Pernambuco (Sindmetro-PE) e o Conselho Regional de Engenharia e Agronomia de Pernambuco (CREA-PE) realiza&ccedil;&atilde;o nesta sexta-feira (3), &agrave;s 10h, no Audit&oacute;rio do CREA, a primeira reuni&atilde;o do f&oacute;rum em defesa do Metr&ocirc; do Recife. O evento contar&aacute; com a presen&ccedil;a do senador Humberto Costa, representando o Governo Lula.
+Al&eacute;m do senador, est&atilde;o sendo convidados v&aacute;rios prefeitos e vereadores da Regi&atilde;o Metropolitana do Recife: Recife, Cabo de Santo Agostinho, Jaboat&atilde;o dos Guararapes e Camaragibe. Al&eacute;m de representantes de entidades, centrais sindicais e os reitores Pedro Rubens Ferreira Oliveira (Unicap) e Alfredo Gomes (UFPE).
+No ano passado, no m&ecirc;s de maio, o ent&atilde;o governador Paulo C&acirc;mara, afirmou que tinha como objetivo ver o metr&ocirc; funcionando bem e n&atilde;o aceitaria a degrada&ccedil;&atilde;o do sistema feita pelo Governo Federal.
+"N&atilde;o temos interesse em administrar o metr&ocirc;. Estou preocupado com o transporte metropolitano p&uacute;blico e de qualidade, sei a import&acirc;ncia do metr&ocirc;, e at&eacute; o &uacute;ltimo dia do governo, n&atilde;o vamos assinar nada&rdquo;, chegou a admitir, em uma reuni&atilde;o no Campo das Princesas.
+"Nesta primeira reuni&atilde;o de trabalho no ano, ser&atilde;o debatidas as primeiras a&ccedil;&otilde;es do f&oacute;rum, dando continuidade &agrave; nossa luta, de forma articulada, para buscar caminhos no sentido de resolver os problemas do transporte p&uacute;blico de massas, que &eacute; um problema metropolitano e coletivo", diz o sindicato.
+"Atualmente, o Metr&ocirc; do Recife sofre de um sucateamento jamais visto. A falta de investimentos e de verbas de custeio tornou a opera&ccedil;&atilde;o arriscada e falha, causando grandes preju&iacute;zos &agrave; mobilidade urbana, atrapalhando a vida dos milhares de trabalhadores e trabalhadoras que dependem do transporte para se locomover", completa.
+O Sindmetro-PE teve uma s&eacute;rie de reuni&otilde;es e conversas com integrantes do novo Governo Federal, em busca de uma reestrutura&ccedil;&atilde;o no sistema com a vinda das verbas de investimentos e de custeio. Eles defendem que as verbas s&atilde;o necess&aacute;rias para que o Metr&ocirc; volte a atender de maneira mais eficiente toda &agrave; popula&ccedil;&atilde;o.

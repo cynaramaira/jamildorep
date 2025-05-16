@@ -1,0 +1,18 @@
+---
+layout: post
+title: "'Nenhuma polícia do mundo pode garantir segurança absoluta', diz SDS"
+date: 2024-04-04
+tags: jamildo, insegurança, sds, raquel lyra
+author: Jamildo Melo
+---
+Em coletiva de imprensa, a Secretaria de Defesa Social (SDS) garantiu a seguran&ccedil;a na realiza&ccedil;&atilde;o da partida entre o Sport e o Cear&aacute; pelas quartas de final da Copa do Nordeste, no pr&oacute;ximo dia 10 de abril, na Arena de Pernambuco.
+"Como acontece em todos os jogos, a presen&ccedil;a das for&ccedil;as de Seguran&ccedil;a do Estado no confronto entre as duas equipes seguir&aacute; um planejamento operacional detalhado, com base na an&aacute;lise de risco, emprego de efetivo dentro e fora da Arena e escolta das delega&ccedil;&otilde;es no per&iacute;metro do est&aacute;dio. A Seguran&ccedil;a P&uacute;blica est&aacute; pronta para atuar com ou sem a presen&ccedil;a dos torcedores de ambos os times", prometeu a SDS.
+LEIA TAMB&Eacute;M:&nbsp;Governadora Raquel Lyra e SDS explicam documento da PM e garantem seguran&ccedil;a em Sport x Cear&aacute;
+No evento, o secret&aacute;rio Alessandro Carvalho comentou o documento enviado pela Pol&iacute;cia Militar, em resposta ao of&iacute;cio recebido do Superior Tribunal de Justi&ccedil;a Desportiva (STJD), que intimou a operativa da SDS a se manifestar, num prazo de 24 horas, quanto &agrave; viabilidade da &ldquo;ABSOLUTA SEGURAN&Ccedil;A&rdquo; na realiza&ccedil;&atilde;o da partida.
+Ou, alternativamente, sobre a possibilidade de jogar com port&otilde;es fechados ou em outra localidade.
+
+O of&iacute;cio foi encaminhado &agrave; PM ap&oacute;s a Federa&ccedil;&atilde;o Cearense de Futebol (FCF) solicitar ao STJD a realiza&ccedil;&atilde;o da partida fora de Pernambuco, para que fossem evitados novos epis&oacute;dios de agress&atilde;o, a exemplo do que ocorreu &agrave; delega&ccedil;&atilde;o do Fortaleza, na madrugada do dia 22 de fevereiro.
+&ldquo;Recebemos uma consulta t&eacute;cnica onde o STJD nos questionou se garantir&iacute;amos a &ldquo;ABSOLUTA SEGURAN&Ccedil;A&rdquo; da partida, em letras de caixa alta. Entendemos que a palavra &ldquo;absoluta&rdquo;, nesse caso, se caracteriza como um cen&aacute;rio de completa aus&ecirc;ncia de amea&ccedil;as de risco, como se as for&ccedil;as de Seguran&ccedil;a pudessem garantir completamente que nenhum incidente ou agress&atilde;o possa ocorrer, seja no deslocamento para o est&aacute;dio, durante ou ap&oacute;s a partida. Isso, nenhuma pol&iacute;cia do mundo pode garantir", afirmou.
+"H&aacute; vari&aacute;veis que podemos controlar, outras que est&atilde;o fora do nosso dom&iacute;nio. O que garantimos &eacute; que vamos continuar atuando para prevenir ou mitigar infra&ccedil;&otilde;es de qualquer natureza criminosa, com pris&otilde;es em flagrante ou a instaura&ccedil;&atilde;o de inqu&eacute;rito&rdquo;, esclareceu o gestor da pasta de Defesa Social.
+Ainda de acordo com Alessandro Carvalho, o papel da SDS e operativas no que se refere ao quesito futebol &eacute; o planejamento operacional para a seguran&ccedil;a dos jogadores e dos verdadeiros torcedores.
+&ldquo;Garantimos a realiza&ccedil;&atilde;o da partida com seguran&ccedil;a para ambas torcidas. Por&eacute;m, a decis&atilde;o se ser&aacute; torcida &uacute;nica, port&otilde;es fechados ou em outro estado n&atilde;o cabe &agrave; SDS, e sim ao STJD e &agrave; Confedera&ccedil;&atilde;o Brasileira de Futebol (CBF), que s&atilde;o respons&aacute;veis pela organiza&ccedil;&atilde;o do evento&rdquo;, disse.

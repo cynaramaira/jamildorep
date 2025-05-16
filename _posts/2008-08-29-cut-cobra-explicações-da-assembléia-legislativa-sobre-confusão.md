@@ -1,0 +1,12 @@
+---
+layout: post
+title: "CUT cobra explicações da Assembléia Legislativa sobre confusão"
+date: 2008-08-29
+tags: Assembleia Legislativa,cobra,confusão
+author: None
+---
+Diante das cenas de trucul&ecirc;ncia e agress&otilde;es verificadas, ontem pela manh&atilde; (28), no Plenarinho da Assembl&eacute;ia Legislativa (Alepe) &ndash;anexo &ndash; 6&deg; andar &ndash; por PMs contra sindicalistas que acompanhavam a vota&ccedil;&atilde;o do Projeto de Lei que cria as funda&ccedil;&otilde;es estatais, a Central &Ugrave;nica dos Trabalhadores de Pernambuco (CUT-PE) solicitou no final da tarde desta quinta-feira (28) uma audi&ecirc;ncia ao presidente da Alepe, deputado Guilherme Uchoa, com objetivo de cobrar provid&ecirc;ncias &agrave; Casa de Joaquim Nabuco.
+&Eacute; lament&aacute;vel o que ocorreu contra sindicalistas/trabalhadores que estiveram presentes no plenarinho do sexto andar (pr&eacute;dio anexo). Alguns foram agarrados e agredidos diante os parlamentares e profissionais de Imprensa, sem qualquer justificativa.
+A CUT repudia, tamb&eacute;m, insinua&ccedil;&otilde;es e afirma&ccedil;&otilde;es feitas em alguns ve&iacute;culos de comunica&ccedil;&atilde;o sobre a participa&ccedil;&atilde;o direta de sindicalistas, no tumulto de ontem, na Alepe, e de que houve insultos contra o governador Eduardo Campos e os deputados estaduais presentes &agrave; vota&ccedil;&atilde;o do projeto de lei que cria a Funda&ccedil;&atilde;o Estatal de Direito Privado. A vers&atilde;o atribu&iacute;da aos cutistas n&atilde;o corresponde a verdade.
+Reafirmamos nossa postura contra este projeto: para n&oacute;s, &eacute; fundamental instrumentalizar o Estado, com as devidas condi&ccedil;&otilde;es de efici&ecirc;ncia operacional, para que este continue a ser o ator central no desenvolvimento social e econ&ocirc;mico do pa&iacute;s.
+Para isto, &eacute; necess&aacute;rio valorizar o servi&ccedil;o p&uacute;blico e os trabalhadores e trabalhadoras que a&iacute; atuam. Criar &quot;novas figuras jur&iacute;dicas&quot; com o objetivo principal de precarizar o trabalho - traduzida na perda da estabilidade do emprego - n&atilde;o &eacute; compat&iacute;vel com o real desenvolvimento que todos pretendemos. 

@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Eleitor sem sintonia com a disputa local "
+date: 2006-09-17
+tags: Eleitor,sintonia
+author: None
+---
+Por Cláudia VasconcelosRepórter de Pol?tica do JC &nbsp;No mar de parabólicas das cidades do interior, a briga quente pela sucessão estadual tem ares de maré baixa. A duas semanas de uma eleição em que se insinua a possibilidade de segundo turno, os candidatos Mendonça Filho (PFL), Humberto Costa (PT) e Eduardo Campos (PSB) são praticamente desconhecidos em boa parte dos munic?pios pequenos, fora da Região Metropolitana do Recife. No lugar deles, os personagens principais dos guias eleitorais vêm do Sul, Sudeste e outros Estados nordestinos, pelas antenas, transformando Zona da Mata, Agreste e Sertão em celeiro de indecisos para a disputa local. A julgar pelos cartazes colados nas portas das casas e muros pintados, o viajante que percorre as BRs e PEs do interior poderia imaginar que o bate-papo de vizinhos nas cidades pequenas incorporou o clima eleitoral. Numa conversa com moradores, porém, a dedução cai por terra. Sem a força do guia estadual na televisão, a única certeza dos eleitores é de que terão de comparecer às urnas no dia 1º de outubro. A dona de casa Maria Madalena Monteiro, 64 anos, moradora de um engenho de Xexéu, Zona da Mata Sul, sequer possui uma TV em casa. O rádio, sintonizado na maioria das vezes em emissoras do Estado vizinho de Alagoas, também não ajuda na decisão.Leia mais aqui (assinantes JC e UOL). 

@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Temer oferece articulação política, mas PSDB recusa"
+date: 2016-12-03
+tags: Michel Temer,Política,PSDB
+author: None
+---
+Estadão Conteúdo - Com o governo acuado por uma sucessão de crises políticas e pressionado pelo cenário de retração na economia, o presidente Michel Temer tenta repactuar sua gestão dando mais espaço para o PSDB. Temer ofereceu à legenda tucana a articulação política, mas a pasta da Secretaria do Governo - vaga desde a saída de Geddel Vieira Lima - foi recusada. A intenção do PSDB é ter influência na área econômica, considerada determinante para o sucesso da gestão.
+O posto que era ocupado por Geddel é considerado pelo PSDB como uma fonte de desgaste, que não atende a expectativa do partido, o principal aliado do governo do peemedebista no Congresso. A demanda dos tucanos é ter protagonismo na formulação da política econômica comandada pelo ministro da Fazenda, Henrique Meirelles Líderes do PSDB garantem que a sigla não age para desestabilizar o titular da Fazenda.
+Mas, segundo o Estado apurou, entre as possibilidades apresentadas a Temer está a de um quadro do PSDB assumir o Ministério do Planejamento numa futura reforma ministerial, que aconteceria no início do próximo ano. Atualmente, a pasta é comandada por Dyogo de Oliveira, que não pertence a nenhum partido político e deve ser oficializado no cargo após ficar por seis meses como interino.
+A medida a ser divulgada nos próximos dias é uma forma de Temer respaldar a atual equipe liderada por Meirelles, que passou a ser alvo de críticas após os indicadores mostrarem que a atividade econômica continua em queda.
+Conforme dados do Instituto Brasileiro de Geografia e Estatística (IBGE), no terceiro trimestre deste ano o Produto Interno Bruto (PIB) recuou 0,8% em relação ao trimestre anterior É a sétima retração seguida nessa base de comparação - a mais longa de toda a série histórica do indicador, que teve início em 1996.
+A efetivação de Oliveira, contudo, não é garantia de permanência para o próximo ano. O Planejamento já esteve na mira do PSDB. Logo após Temer assumir interinamente a Presidência, em maio, um dos nomes cogitados para ocupar o Planejamento foi o da economista Ana Carla Abrão Costa, atual secretária de Fazenda do Estado de Goiás, comandado por Marconi Perillo (PSDB).
+Antes de assumir a cadeira estadual, Costa ocupou uma das diretorias do Itaú Unibanco. A secretária também é casada com o economista Pérsio Arida, um dos idealizadores do Plano Real.
+Jogo duplo
+Em caráter reservado, aliados de Temer dizem ter receio de que o PSDB rompa com o Planalto em 2017 caso a economia permaneça estagnada e a popularidade do presidente muito baixa - o que poderia comprometer o projeto do partido em 2018, ano da sucessão presidencial.
+No governo, são recorrentes as reclamações de que os tucanos estariam enviando sinais trocados. De um lado fazem juras de lealdade, mas de outro criticam a condução da economia.
+Dois exemplos desse "jogo duplo" envolvem o ex-presidente Fernando Henrique Cardoso. O primeiro foi uma frase dele comparando o governo Temer a uma "pinguela". A declaração irritou auxiliares do presidente.
+Também incomodou o que foi considerado um "balão de ensaio", lançado por um aliado de FHC, Xico Graziano - que defendeu uma possível candidatura dele à Presidência num eventual colégio eleitoral em caso de cassação da chapa Dilma-Temer pelo Tribunal Superior Eleitoral (TSE). A ação foi proposta pelo PSDB.
+Plano A
+Nas conversas recentes com Temer, a cúpula do PSDB garantiu lealdade até o fim do mandato, em 2018, mas cobrou dele um discurso mais claro na área social. A avaliação dos tucanos é que a retórica oficial não pode ser apenas baseada no ajuste fiscal.
+"Não existe alternativa para o PSDB a não ser o governo dar certo. Não há aposta em plano B. Vamos ajudar o presidente Michel até o final a fazer essa travessia", disse ao Estado o senador Aécio Neves, presidente nacional do PSDB.
+O dirigente tucano nega que a sigla ambicione novos cargos no Executivo, mas o assunto já é tratado abertamente no Congresso. [...]"Vai chegar um momento que o governo terá mais gente do PSDB. Não estou convencido que seja agora", afirmou o deputado Jutahy Junior (PSDB-BA).
+Questionado sobre a ideia de repactuar o espaço dos tucanos no governo, Fernando Henrique disse que o partido é responsável pela gestão. "Acho que o PSDB, tendo tomado a posição que tomou em relação ao impeachment, é responsável (pela gestão Temer também). (O partido) Deve fazer o máximo de esforço para que o governo dê certo. Agora, é preciso que o governo queira dar certo e se organize." (Colaborou Gabriel Manzano Filho)

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Carlos Veras critica privatização do Aeroporto do Recife"
+date: 2019-03-17
+tags: aeroporto,Carlos Veras,crítica,privatização,Recife
+author: None
+---
+Privatização do Aeroporto do Recife: um mau negócio
+Por Carlos Veras, deputado federal pelo PT de Pernambuco
+O governo Bolsonaro mais uma vez coloca o Brasil a perder com sua política a serviço das grandes corporações nacionais e internacionais. A mais recente delas é a privatização dos aeroportos brasileiros. Ironicamente, a venda do bloco Nordeste foi feita para a estatal espanhola Aena.
+O mais curioso é o que justificaria a privatização das empresas públicas nesta gestão é a suposta ineficiência e o prejuízo causado por elas aos cofres públicos.
+Contudo, não é o caso do Aeroporto Internacional do Recife/Gilberto Freyre, que é superavitário em R$ 130 milhões e o mais movimentado do Norte e Nordeste, com capacidade para 16 milhões de passageiras e passageiros ao ano e um dos dez melhores do mundo em serviços e segurança operacional. Isto é, uma empresa brasileira eficiente vai deixar gerar frutos para a nação brasileira e passará a fazê-lo para o governo espanhol.
+A decisão irresponsável do governo Bolsonaro contraria os estudos de viabilidade do negócio, ignora a posição do povo pernambucano ao qual não foi feita nenhuma consulta, bem como negligencia a visão do governo de Pernambuco sobre o seu então patrimônio, alvo de muitos investimentos e fonte de trabalho e renda para o Estado.
+Além do Estado de Pernambuco perder receitas advindas do Aeroporto de Recife e de dezenas de empresas que giram em torno dele para investir em políticas públicas de saúde, educação, infraestrutura etc., a medida ameaça o trabalho e a renda de milhares de trabalhadoras e trabalhadores do setor privado e de servidoras e servidores públicos federais inseguros sobre sua sobrevivência e seu futuro profissional. E mais: a privatização aumenta a carga de impostos para a empresa e o custo para as companhias e quem paga essa conta é a população por meio do aumento de preço das passagens aéreas e taxas de serviço.
+Some-se tudo isso ao prejuízo da operação de privatização, com investimento insuficiente para a sustentabilidade do terminal recifense, que receberá o valor previsto de apenas R$ 865,2 milhões ao longo dos 30 anos de concessão. Esse montante sequer resolve o principal problema, que é a construção de uma segunda pista, cuja capacidade de receber novos voos se esgotará em, no máximo, 15 anos.
+O caso do Aeroporto do Recife é emblemático do modelo de privatização adotado pelo governo Bolsonaro: vender setores estratégicos do patrimônio físico e científico brasileiro ao capital nacional e internacional, sem levar em conta o interesse público e colocando em risco a autonomia econômica e a segurança nacional.
+É necessário que a população brasileira compreenda que as privatizações das empresas públicas impactam diretamente em suas vidas, seja no valor e no acesso aos bens e serviços, seja na garantia de empregos dignos, seja para o usufruto de políticas públicas fundamentais à vida. Por tudo isso, precisamos ocupar as ruas, os fóruns de debates dos poderes de Estado e as redes sociais, fortalecendo assim a luta em defesa das empresas estatais porque se é público é para servir a todas e todas.

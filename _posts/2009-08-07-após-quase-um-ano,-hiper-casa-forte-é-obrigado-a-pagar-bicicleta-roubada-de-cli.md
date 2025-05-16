@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Após quase um ano, Hiper Casa Forte é obrigado a pagar bicicleta roubada de cliente da loja"
+date: 2009-08-07
+tags: apostas,Bicicleta,casa,Forte Orange
+author: None
+---
+Jamildo,
+Gostaria mais uma vez de seu apoio no sentido de divulgar o desfecho do caso enviado ao BLOG DO JAMILDO em 04 de dezembro de 2008.
+Confome prometido, acionei o grupo Bompre&ccedil;o - Wall Mart judicialmente em 17/12/2008 via Juizado Virtual, onde fora marcada audi&ecirc;ncia para o dia 15/07/2009.
+Saliento que tal juizado &eacute; virtual e todo o tr&acirc;mite deveria ser mais c&eacute;lere.
+Pois bem, no referido dia da audi&ecirc;ncia, ap&oacute;s cerca de uma hora de atraso, foram iniciados os procedimentos, resultando poucos dias depois numa senten&ccedil;a parcialmente favor&aacute;vel. Relembrando apenas que nos dias que se sucederam ao furto fiz v&aacute;rias &quot;visitas&quot; nas favelas de &quot;Santa Luzia&quot; e da &quot;Ilha&quot;, nas proximidades da Igreja da Torre e do Shopping Plaza, respectivamente, no intuito de localizar a bicicleta, bem como fui por v&aacute;rios s&aacute;bados e domingos, nas feiras de &quot;troca&quot; do Cordeiro e nas proximidades do GOE-PC.
+Todas as visitas n&atilde;o obtiveram sucesso. Al&eacute;m do que, o uso da bicicleta era uma recomenda&ccedil;&atilde;o m&eacute;dica em raz&atilde;o do meu estado de sa&uacute;de (joelho lesionado e taxas sangu&iacute;neas fora do padr&atilde;o). Mediante tais fatos, foi pedido uma indeniza&ccedil;&atilde;o por danos morais e a repara&ccedil;&atilde;o do dano material (outra bicicleta ou o valor de uma no Brasil, que na &eacute;poca custava em torno de 2,3mil reais).
+Em sua senten&ccedil;a, o juiz, leigo, concedeu apenas a repara&ccedil;&atilde;o do dano material e com o valor da nota fiscal, adquirida no exterior quando residia nas proximidades. Ou seja, presumiram que ainda moro na divisa do Rio Grande do Sul com o Uruguai e tenho f&aacute;cil acesso &agrave; loja que vende tais modelos. &Eacute; de espantar ainda as considera&ccedil;&otilde;es de &quot;V. Exa.&quot;: &quot;Quanto ao pedido de indeniza&ccedil;&atilde;o por danos morais, entendo por tamb&eacute;m rejeit&aacute;-lo, visto que, nada obstante o fato ocorrido e os contra-tempos deles advindos, n&atilde;o vislumbro que somente por conta disso tenha o demandante experimentado qualquer abalo moral de monta a quaisquer dos direitos da personalidade protegidos por lei e que justifique o pagamento de uma repara&ccedil;&atilde;o pecuni&aacute;ria, nada mais passando o epis&oacute;dio de, nada mais, que, sen&atilde;o, simples aborrecimento do cotidiano de quem vive e convive com a crescente onda de viol&ecirc;ncia das grandes cidades.&quot; (grifo nosso)
+Pelo que &quot;V. Exa.&quot; relata na senten&ccedil;a, cidad&atilde;os que vivem em grandes cidades onde h&aacute; viol&ecirc;ncia crescente, devem se acostumar com tais fatos. Isto nada mais &eacute; do que a banaliza&ccedil;&atilde;o da viol&ecirc;ncia que apresenta como consequ&ecirc;ncia um ciclo de in&eacute;rcia, iniciado com posturas como esta do nosso Judici&aacute;rio, que se perpetua com a in&eacute;rcia de uma empresa multinacional que se mostra incapaz de cuidar dos bens de seus clientes. Saliente-se ainda que &quot;V.Exa.&quot; reconhece o dano moral no momento em que ratifica na senten&ccedil;a os &quot;contra-tempos&quot; advindos do fato, no entanto, o renega mediante, talvez, os costumes violentos das grandes cidades.
+O objetivo de tal relato, al&eacute;m de alertar mais uma vez aos cidad&atilde;os que possam frequentar tais ambientes, &eacute; demonstrar uma insatisfa&ccedil;&atilde;o e, mais uma dentre tantas, decep&ccedil;&atilde;o com o Judici&aacute;rio brasileiro, quando este tem a oportunidade de corrigir condutas que afetam a vida da sociedade e n&atilde;o as aplica. A justi&ccedil;a teve a oportunidade de inviabilizar a in&eacute;rcia e o descaso do Hiper de Casa Forte com os usu&aacute;rios de bicicletas aplicando uma senten&ccedil;a r&iacute;gida e no amparo legal.
+E a&iacute; fa&ccedil;o as perguntas: Ser&aacute; que, ap&oacute;s esta senten&ccedil;a, o Hiper efetuar&aacute; compras de mais c&acirc;meras de
+vigil&acirc;ncia&#63;
+Ser&aacute; que o Hiper ir&aacute; implementar um biciclet&aacute;rio como o do Shopping Center Recife onde os usu&aacute;rios recebem um ticket para acess&aacute;-lo&#63; Ser&aacute; que em um outro furto, o Hiper ir&aacute; negociar diretamente com o cidad&atilde;o lesado antes mesmo deste anunciar que ir&aacute; acionar a justi&ccedil;a&#63; Eu as respondo: procure a &quot;Justi&ccedil;a&quot; e at&eacute; o pr&oacute;ximo caso.
+Abra&ccedil;o.
+
+Andr&eacute; Lu&iacute;s
+
+Policial Federal vai fazer feira no Hiper Casa Forte e fica sem sua bicicleta&nbsp; 

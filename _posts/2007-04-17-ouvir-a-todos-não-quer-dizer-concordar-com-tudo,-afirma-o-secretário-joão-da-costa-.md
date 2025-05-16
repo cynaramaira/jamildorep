@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Ouvir a todos não quer dizer concordar com tudo, afirma o secretário João da Costa "
+date: 2007-04-17
+tags: estudo,gal costa,joão d,métodos contraceptivos,Naomi Campbell
+author: None
+---
+Em longa entrevista à JC/ CBN nesta terça (17), o secretário de Planejamento Participativo do Recife, João da Costa (PT), falou sobre a polêmica do Parque Dona Lindu, em Boa Viagem, que coloca moradores de um lado e prefeitura do outro. Leia os principais trechos.
+Quem decide
+\"No orçamento participativo, trabalhamos com a concepção de cogestão. Ouvimos a população. Mas o governo também tem suas opiniões e, no final, cabe a ele decidir, porque foi eleito pra isso. Pra governar. Não estamos abdicando de governar a cidade. Agora, governamos ouvindo a opinião das pessoas. Às vezes, constrói-se consenço e muitas vezes, não. A Associação Amigos de Boa Viagem foi ouvida, inclusive vários dos equipamentos que estão hoje na proposta inicial foi a partir das sugestão dos moradores, como pista de skate, quadra, centro de convivência de isodos, playground para crianças, destinação de área verde&nbsp;e uma pista de coopper. Agora, você ouvir não quer dizer que vai concordar com tudo o que é escutado, né?\"
+Verde x concreto
+\"O que está projetado é um centro cultural e de lazer, com um teatro, que não é apenas para show, e uma alameda onde você terá restaurantes e cafés integrados ao parque. Inclusive, a área construída não é a maior que está proposta. Ela deve ficar em torno de, no máximo, 40%, podendo ficar até um pouco menor com os ajustes que estão sendo feitos.\"
+Grandes eventos 
+\"Lá não é somente um espaço para ter shows de 20 mil pesoas. Ele tem um pátio amplo que, quando for necessário para uma atividade maior, você usa. Hoje, em Boa Viagem, você tem dezenas de eventos que são feito na avenida, com milhares de pessoas. Parte desses eventos pode ter um espaço adequado, com infraestrutura que não degrade a área ambiental da praia, que não seja no meio da rua como é hoje. Mas isso em eventos especiais. A arena é um espaço público, não tem como pagar ingresso. O que vai ter lá é um teatro pra 500 lugares, um centro de exposições, uma alameda e um pátio que pode haver um show quando for necessário. É um pátio, uma praça como o Marco Zero. Não vai ter show lá toda semana.\"
+Mudança de local
+\"Encaro toda proposta feita pelos técnicos e arquitestos com bom senso e respeito. Agora, porque não em Boa Viagem? Boa viagem hoje concentra 75% do comércio do Recife, a população que tem a maior renda per capita do Nordeste, e é uma área carente de espços culturais, de lazer e de parques como a gente tá propondo. Hoje, temos um terreno que tá na nossa mão a custo zero. Por que vamos agora propor uma outra alternativa com custo bem mais alto ou um terreno que não tem nem destinação ainda? (Ele se refere às propostas apresentadas à prefeitura para a transferência do projeto de Niemeyer para o Cais José Estelita ou Vila naval). Nós conquistamos um espaço que a Aeronáutica queria repassar por R$ 80 milhões. E&nbsp; a custo zero.\"
+Bairro misto
+\"Boa Viagem não é mais um bairro apenas residencial. É também residencial, mas tem&nbsp; uso misto. Todos os empresariais hoje se localizam em Boa Viagem. Todos os sereviços modernos. Quem quer investir em serviços hoje coloca em Boa Viagem. Por quê? Porque os bairros de Boa Viagem, Setúbal, Pina, Imbiribeira concentram hoje o dinamismo econômico da cidade do Recife. E é também um bairro residencial que prevê no parque espaço de lazer, de cultura, de contemplação.\" 
+Resistências superadas
+\"Toda mobilização da sociedade, toda divergência, a gente tem de encarar com naturalidade. Quando a gente fez a retirada do transporte clandestino, fizemos uma pesquisa: 70% da população da cidade era contra tirar. E hoje ninguém diz que a gente fez a coisa errada. Quando a gente fez a inversão de trânsito da Conselheiro Aguiar, quase 100% dos comerciantes eram contrários e, com estudos, nós provamos que ali era necessário. Hoje, ninguém questiona. Podemos errar também. Mas tudo que a gente tem feito tem dado mais certo do que errado. Então, eu acho que isso tem de ser levado em conta também. Se há uma posição da população e uma posição de técnicos, nós também temos uma posição de técnicos baseada em estudos. Oscar Niemeyer é um grande arquiteto e um grande técnico, né?\" 
+Prazo limite
+\"É a entrega do projeto final pelo escritório de Niemeyer, que nós esperamos ter em 60 dias.\" 

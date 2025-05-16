@@ -1,0 +1,15 @@
+---
+layout: post
+title: "TCE condena ex-prefeito de Arcoverde e escritório de advocacia em 468 mil reais"
+date: 2019-09-11
+tags: Arcoverde,cereais,Condenação,prefeito
+author: None
+---
+Do site oficial do TCE
+Uma auditoria especial realizada pelo Tribunal de Contas do Estado (TCE) na Prefeitura de Arcoverde identificou uma série de irregularidades na gestão do ex-prefeito Zeca Cavalcanti (PTB), relativas ao ano de 2009, entre elas a contratação, sem o devido processo licitatório, do escritório de advocacia Bernardo Vidal e Associados para a recuperação de créditos previdenciários.
+Seguindo parecer do Ministério Público de Contas (MPCO), o voto do relator, conselheiro substituto Ricardo Rios, foi pela irregularidade da contratação e pela imputação de um débito ao ex-prefeito (também ex-deputado federal) no valor de R$ 468.484,89, solidariamente com o ex-secretário de Finanças, Geovane Freitas Leite e a empresa Bernardo Vidal Consultoria Ltda.
+Feita a análise dos argumentos oferecidos pela equipe técnica do TCE e pela defesa dos interessados, o MPCO opinou pelo afastamento de duas irregularidades e pela manutenção de outras, dentre elas, cálculo incorreto dos valores a compensar, compensação indevida do FAT (Seguro de Acidente de Trabalho), não comprovação de retificação da GFIP (Guia de Recolhimento do FGTS e de Informações à Previdência Social) e pagamento indevido de honorários advocatícios.
+De acordo com os autos do processo, em 2009, o então secretário Eduardo Geovane enviou oficio ao prefeito dando conta da existência de créditos junto ao INSS que teriam sido recolhidos indevidamente. Esses créditos diziam respeito a salários e subsídios pagos a agentes políticos, contribuições pagas sobre parcelas de natureza indenizatória (férias, licenças, auxílio-doença, etc). No mesmo dia, segundo os autos, o então prefeito autorizou a contratação, com inexigibilidade, do escritório de advocacia Bernardo Vidal, com “cláusula de êxito”, ou seja, 20% do valor dos créditos recuperados.
+Na análise da documentação da Prefeitura, segundo o TCE, ficou comprovado que a gestão pagou indevidamente R$ 1.518.245,91 (contribuições de agentes políticos), R$ 3.067.006,21 (verbas de natureza indenizatória) e R$ 49.587.47 (pagamento a maior de riscos de acidentes do trabalho e de seguro de acidentes do trabalho). No período compreendido entre dezembro de 2009 a janeiro de 2011, foram compensados créditos da ordem de 1.234.718,92 e pagos ao escritório a título de honorários R$ 246.864,45.
+Em seu voto, o conselheiro relator afirma que o Município de Arcoverde procedeu à compensação de supostos créditos previdenciários junto à Receita Federal do Brasil sem a devida comprovação de pagamentos das contribuições que lhe serviram de base, salientando também que as compensações feitas não foram homologadas por quem de direito e que foi “indevido” o pagamento feito pela Prefeitura ao escritório Bernardo Vidal Associados.
+O relator deixou de aplicar multa ao ex-prefeito em face da preclusão do prazo previsto da Lei Orgânica da TCE para a aplicação desse tipo de penalidade. Os interessados ainda podem recorrer da decisão.

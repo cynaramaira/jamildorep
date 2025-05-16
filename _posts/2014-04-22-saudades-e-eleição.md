@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Saudades e eleição"
+date: 2014-04-22
+tags: eleição
+author: None
+---
+Por Adriano Oliveira
+Três variáveis tradicionais contidas na pesquisa eleitoral orientam as interpretações de diversos atores políticos: 1) Intenção de voto; 2) Avaliação da administração; 3) Nível de conhecimento. No momento, uma variável encanta tais atores: Desejo de mudança. As três variáveis tradicionais são importantes quando consideradas conjuntamente. A variável “desejo de mudança” não consegue, até o instante, revelar o estado de ânimo dos eleitores. Considero-a ilustrativa.
+Consta na primeira pesquisa do Instituto de Pesquisa Mauricio de Nassau (IPMN) realizada em abril deste ano uma variável importante para antever o comportamento do eleitorado pernambucano, qual seja: a Saudade. Esta variável foi incluída no questionário por influência da Antropologia das Emoções e de Roberto DaMatta.
+Indivíduos sentem saudades daquilo que já conviveram. Saudades de alguma coisa sugerem que os indivíduos têm memória positiva de algo. Neste caso, eleitores têm boas lembranças, e, portanto, sentem saudades do passado e estão atentos ou preocupados com o que virá no futuro. A hipótese que tenho é que eleitores sentem saudades de governos e por isto tendem a votar na reeleição do atual governante ou no candidato apoiado por ele.
+Eduardo Campos não poderá mais ser candidato ao Governo de Pernambuco. Ele deixará saudades ou nenhuma saudade? 42% dos eleitores afirmaram que ele deixará saudades. 26% responderam que ele não deixará nenhuma saudade – IPMN, 04/2014. Tais dados sugerem que o candidato Paulo Câmara, o qual é apoiado pelo governador Eduardo Campos, tende a crescer eleitoralmente – Possibilidade.
+A possibilidade apresentada surge em razão da seguinte hipótese: as ações do governo Eduardo Campos deixarão saudades, já que 57% dos eleitores aprovam (ótimo/bom) a sua gestão.
+Dois pontos importantes: na capital pernambucana, 41% dos eleitores afirmaram que Eduardo Campos deixará saudades. Em Recife, Paulo Câmara obtém 23% de intenções de voto. Na região do Sertão, 51% dos eleitores afirmaram que desejam votar em Armando Monteiro. Nesta região, 28% dos eleitores frisaram que o governador Eduardo Campos deixará saudades. Portanto, neste instante, a variável “saudade” contribui para explicar o desempenho dos candidatos ao governo de Pernambuco. Ressalto que a saudade do eleitor para com alguém pode ser desconstruída ou consolidada.
+Ao considerar o todo da pesquisa do IPMN, constato que parte do eleitorado pernambucano deseja a continuidade. Mas isto não significa, neste instante, que os eleitores tendem a votar majoritariamente no candidato da situação. Pesquisas servem para construir estratégias eleitorais. Pesquisas servem para iluminar caminhos.
+Quem é Adriano Oliveira? Doutor em Ciência Política. 39 anos. Professor da Universidade Federal de Pernambuco (UFPE). Sócio da Contexto Estratégia. Conselho consultivo do Instituto de Pesquisa Maurício de Nassau. Autor de variados artigos e livros sobre o comportamento do eleitor brasileiro. Dentre os quais: Eleições e pesquisas eleitorais - Desvendando a Caixa-Preta, Editora Juruá, 2012.

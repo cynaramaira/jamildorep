@@ -1,0 +1,38 @@
+---
+layout: post
+title: "Mesmo fechada, Odete gravou CD do Forrozão Chacal com participação da atriz Viviane Araújo"
+date: 2007-05-29
+tags: atriz, notícia, conteúdo
+author: jamildo
+---
+Na tarde desta ter&ccedil;a-feira, o secret&aacute;rio de Planejamento de Jaboat&atilde;o dos Guararapes, Edson Matos, visitou a reda&ccedil;&atilde;o do Jornal do Commercio para explicar ao Blog de Jamildo a interdi&ccedil;&atilde;o do restaurante Veneza, na tarde de segunda-feira. O aviso de que o espa&ccedil;o havia sido interditado foi comunicado pelo pr&oacute;prio advogado da empres&aacute;ria da noite, Rafael Caetano, na manh&atilde; desta ter&ccedil;a-feira.
+
+Na visita, o secret&aacute;rio Edson Matos mostrou fotos do que seria a casa interditada, com lacre e tudo na porta.
+
+Mesmo &lsquo;fechada&rsquo;, a casa fez sua despedida em alto estilo, a julgar pelas fotos e informa&ccedil;&otilde;es publicadas pelo Portal Terra.
+
+Segundo o Terra, o grupo Forroz&atilde;o Chacal, sucesso no norte e no nordeste do Pa&iacute;s, gravou na noite desta segunda-feira o clipe da m&uacute;sica Rei do Cabar&eacute; no bordel Maison DOdete, em Recife, com participa&ccedil;&atilde;o da modelo e atriz Viviane Ara&uacute;jo, que vive uma dan&ccedil;arina de cabar&eacute;.
+
+Pelo visto, s&oacute; n&atilde;o convidaram o secret&aacute;rio de Planejamento, o mesmo que assinou o alvar&aacute; de funcionamento para a casa, ainda em 2005.
+
+Viviane Ara&uacute;jo vai alavancar o Forroz&atilde;o Chacal no eixo Rio-SP
+
+Segundo o portal, Viviane chegou &agrave; Maison DOdete em uma limusine preta. No clipe, a modelo usa dois figurinos provocantes: um vestido decotado que deixa &agrave; mostra suas pernas e um biqu&iacute;ni tomara-que-caia, incrementado com um colar dourado e pulseira de brilhantes.
+
+"Sou a dan&ccedil;arina principal que chega a um cabar&eacute; com o  ei do lugar. Mas &eacute; tudo comportadinho", disse a modelo aos risos, enquanto terminava a maquiagem e escolhia o figurino da grava&ccedil;&atilde;o.
+
+Viviane se arrumou em um camarim separado das figurantes do clipe, no andar superior da casa, e s&oacute; desceu para a grava&ccedil;&atilde;o na hora de sua participa&ccedil;&atilde;o. "Sempre gostei de forr&oacute;, tenho at&eacute; alguns amigos que tocam e ouvem bastante", contou Viviane.
+
+Fora do set de filmagens, convidados se aglomeravam para ver a modelo e tirar fotografias. Entre uma tomada e outra, enquanto os cen&aacute;rios eram preparados, Viviane atendia aos f&atilde;s que queriam uma foto de recorda&ccedil;&atilde;o.
+
+"Estou muito empolgada e acho que o resultado vai ficar bem legal", completou a modelo, que repetiu os passos da coreografia dan&ccedil;ada pelos integrantes do Forroz&atilde;o Chacal durante a grava&ccedil;&atilde;o.
+
+A banda
+
+Com quatro anos de hist&oacute;ria, o grupo j&aacute; conquistou o disco de ouro (100 mil c&oacute;pias) de seu &uacute;ltimo disco, A Fera do Forr&oacute;, que traz a faixa que virou clipe e foi transformado em um DVD ao vivo, com participa&ccedil;&atilde;o do grupo Molejo.
+
+O Forroz&atilde;o Chacal surgiu em Natal e &eacute; formado por Jana&iacute;na, Willey e Leozinho, que canta o Rei do Cabar&eacute;. "Queremos fazer clipes de todas as m&uacute;sicas do disco", disse Leozinho. "A participa&ccedil;&atilde;o da Viviane no clipe vai dar um belo empurr&atilde;o no grupo", garante a vocalista Jana&iacute;na.
+
+A faixa Rei do Cabar&eacute; traz uma letra "sacana", que conta as aventuras de um homem que chega a uma boate e enumera os lugares que costuma freq&uuml;entar no nordeste do Pa&iacute;s, inclusive a Maison DOdete, lugar onde o v&iacute;deo foi gravado.
+
+Leia a mat&eacute;ria original aqui.

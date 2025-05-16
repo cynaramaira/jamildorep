@@ -1,0 +1,37 @@
+---
+layout: post
+title: "Sem concorrência à direita, Bolsonaro segue recuperando eleitores de 2018, diz Ipespe"
+date: 2022-04-22
+tags: jamildo, Bolsonaro
+author: JAMILDO MELO
+---
+O soci&oacute;logo Ant&ocirc;nio Lavareda, do Ipespe, destaca os principais pontos da mais nova rodada de pesquisas de inten&ccedil;&atilde;o de voto nacional. De acordo com o especialista, a inten&ccedil;&atilde;o de voto espont&acirc;nea mostra o avan&ccedil;o da polariza&ccedil;&atilde;o. Entre os eleitores que j&aacute; mencionam candidatos nesta quest&atilde;o, Lula (PT) chega a 38% e Bolsonaro a 28%.
+A soma dos outros nomes citados &eacute; de apenas 8% (Ciro, 4%; Moro, 1%; Doria, 1%; Tebet, 1%; Janones, 1%). "Ou seja, os dois l&iacute;deres, juntos, concentram quase 90% do total de cita&ccedil;&otilde;es. Lula cresceu dois pontos e Bolsonaro um, em rela&ccedil;&atilde;o a uma quinzena atr&aacute;s. Moro vai saindo do radar do eleitor e os demais se mantiveram com os mesmos n&uacute;meros", afirmou.
+Ainda de acordo com Lavareda, a sa&iacute;da de Moro e os trope&ccedil;os da&nbsp;&nbsp;&ldquo;Terceira via&rdquo; devolveram a Bolsonaro eleitores antipetistas que buscavam alternativas.
+
+    
+            Pesquisa para presidente: no 2º turno, diferença de Lula para Bolsonaro cai para 9 pontos
+            Pesquisa eleitoral Sensus/IstoÉ mostra possível vitória de Lula no primeiro turno
+            No Brasil, existem mais pessoas de direita, esquerda ou de centro? Pesquisa responde
+            Pesquisa eleitoral: diferença entre Lula e Bolsonaro no 2º turno cai para 9%
+        
+
+Na pergunta estimulada, o presidente, que ganhou quatro pontos logo ap&oacute;s a sa&iacute;da de Moro do Podemos, cresce mais um e marca 31%. No campo oposto, Lula, depois de estacionado h&aacute; dois meses tamb&eacute;m avan&ccedil;a um ponto e atinge 45%. V&ecirc;m a seguir: Ciro, com 8%, oscilando um ponto para baixo; Doria, mantendo seus 3%; Simone Tebet, que continua com 2%; Janones sobe um ponto e vai a 2%. Felipe D&rsquo;&Aacute;vila, Vera e Eymael n&atilde;o pontuaram nessa rodada.
+"Enquanto a briga no interior do PSDB assume contorno autof&aacute;gico, amea&ccedil;ando jogar fora o diferencial de ter sido o &uacute;nico partido a realizar uma &ldquo;prim&aacute;ria&rdquo;, os diret&oacute;rios regionais do Uni&atilde;o Brasil e do MDB hesitam a se alinharem com candidatos(as) com percentuais demasiadamente modestos. E, assim, por ora, vai restando Ciro Gomes como &uacute;nica possibilidade de uma eventual triangula&ccedil;&atilde;o do formato da disputa. Por&eacute;m, ele esbarra &agrave; esquerda no voto consolidado de Lula, refor&ccedil;ado pela elevada expectativa de sucesso do petista (58% acreditam que Lula ser&aacute; vitorioso, 31% apontam Bolsonaro e s&oacute; 2% apostam em Ciro)", observa.
+Aprova&ccedil;&atilde;o geral de Bolsonaro oscila um ponto e chega a 34%.&nbsp;
+De acordo com a pesquisa do Ipespe, a desaprova&ccedil;&atilde;o faz movimento sim&eacute;trico e recua de 63% para 62%. O mesmo ocorre com a avalia&ccedil;&atilde;o negativa (R/P) que declina de 54% para 52%.
+"Como prov&aacute;vel efeito da polariza&ccedil;&atilde;o precoce da disputa, acentua-se a aproxima&ccedil;&atilde;o entre avalia&ccedil;&atilde;o de governo e inten&ccedil;&otilde;es de voto. Essas duas vari&aacute;veis v&atilde;o se &ldquo;misturando&rdquo;. A primeira deixando de ser, como at&eacute; ent&atilde;o, um fator &ldquo;causal&rdquo;, explicativo da segunda. E para muitos eleitores entrevistados ocorrendo at&eacute; o inverso, por conta do &ldquo;vi&eacute;s de consist&ecirc;ncia&rdquo; diante de um question&aacute;rio que se inicia pelas perguntas eleitorais. Isso costuma ocorrer na fase final das campanhas. N&atilde;o t&atilde;o cedo como nessa elei&ccedil;&atilde;o", diz Lavareda.
+O percentual dos que classificam o Governo como &ldquo;&Oacute;timo ou Bom&rdquo; (30%) fica um ponto abaixo da inten&ccedil;&atilde;o de voto estimulada de Bolsonaro no primeiro turno. E o n&uacute;mero dos que declaram &ldquo;Aprovar&rdquo; seu desempenho geral (34%) &eacute; id&ecirc;ntico ao das suas inten&ccedil;&otilde;es de voto no segundo turno.
+"Ou seja, temos um Governo e seu candidato firmemente ancorados em cerca de um ter&ccedil;o do eleitorado. O que &eacute; suficiente como barreira de entrada quase intranspon&iacute;vel para algu&eacute;m da &ldquo;terceira via&rdquo; ingressar em campo, mas ainda pouco para virar o jogo contra o desafiante que lidera a partida".
+Outros fatores positivos para Bolsonaro
+Economia no rumo certo sobe dois pontos e vai a A 31%. J&aacute; a opini&atilde;o de que est&aacute; no rumo errado csiu um ponto, para&nbsp;62%.
+"Nessa dimens&atilde;o (economia) o sentimento que em geral conta mais -no Brasil ou em outros pa&iacute;ses- &eacute; relativo &agrave; infla&ccedil;&atilde;o. A soma dos que dizem que nos &uacute;ltimos meses os pre&ccedil;os &ldquo;aumentaram&rdquo; ou &ldquo;aumentaram muito&rdquo; &eacute; de 95%, ou seja, a quase totalidade da amostra, mas recuou bastante a expectativa de aumento nos pr&oacute;ximos meses. Em mar&ccedil;o, quando do super aumento dos combust&iacute;veis, 79% manifestaram seu pessimismo. N&uacute;mero que caiu dessa feita para 63%, o mesmo registrado em fevereiro".
+AN&Uacute;NCIO DO &ldquo;FIM&rdquo; DA PANDEMIA E CARNAVAL FORA DE &Eacute;POCA FAZEM DESPENCAR O MEDO DA COVID
+De acordo com os dados da pesquisa, em um m&ecirc;s, subiu de 48% para 59% o contingente dos que disem n&atilde;o estar com medo do coronav&iacute;rus.
+Os que ainda est&atilde;o &ldquo;com muito medo&rdquo; s&atilde;o 11% (h&aacute; um m&ecirc;s, 15%). E aqueles que referem estar &ldquo;com um pouco de medo&rdquo; sa&iacute;ram de 36% para 29%. Na esteira disso tudo, e ajudada pela dist&acirc;ncia em rela&ccedil;&atilde;o ao notici&aacute;rio da CPI, melhora a avalia&ccedil;&atilde;o do desempenho espec&iacute;fico do Governo nesse front. O &ldquo;&Oacute;timo/Bom&rdquo; sobe de 28% para 30%; e o &ldquo;Ruim/P&eacute;ssimo&rdquo; recua de 54% para 51%.
+Rejei&ccedil;&atilde;o e segundo turno
+De acordo com a pesquisa, Lula e Bolsonaro oscilam positivamente.
+Lula foi de 53% a 54%, e Bolsonaro de 33% a 34%. No caso do atual presidente, &eacute; a primeira vez que alcan&ccedil;a esse patamar nas pesquisas do IPESPE este ano. "&Eacute; um sinal do progresso no esfor&ccedil;o da campanha de reconectar-se com seus eleitores da disputa passada, e que agora se v&ecirc; beneficiado pela aus&ecirc;ncia de desafiantes expressivos no seu campo ideol&oacute;gico. Vale lembrar que esses 34% no segundo turno - sobre o total do eleitorado - correspondem exatamente ao percentual que Bolsonaro obteve no primeiro turno de 2018".
+Placar de rejei&ccedil;&atilde;o e segundo turno
+"Aqui, Bolsonaro, est&aacute;vel, segue &agrave; frente. N&atilde;o votariam nele atualmente 61%; seguido por Doria, cuja rejei&ccedil;&atilde;o voltou a cair dois pontos, para 55%; Ciro, com 44%, oscilou um ponto acima; Lula, 42%, perdeu um ponto; Janones permaneceu em 36%; Tebet recua um, para 34%; e Felipe D&rsquo;&Aacute;vila manteve os 34% da rodada anterior. A diferen&ccedil;a de rejei&ccedil;&atilde;o Bolsonaro-Lula, de 19 pontos, &eacute; praticamente a mesma do cen&aacute;rio de segundo turno entre os dois", afirma.
+&nbsp;

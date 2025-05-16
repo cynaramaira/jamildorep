@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Teresa Leitão critica Raquel Lyra no Senado. 'Não paga o piso dos professores'"
+date: 2023-10-17
+tags: jamildo, Teresa Leitão, Educação
+author: Jamildo Melo
+---
+A senadora Teresa Leit&atilde;o cobrou o cumprimento do piso salarial dos professores durante discurso no Senado Federal em homenagem ao Dia do Professor. Ela tamb&eacute;m anunciou a realiza&ccedil;&atilde;o da Confer&ecirc;ncia Nacional de Educa&ccedil;&atilde;o (Conae) Extraordin&aacute;ria, que dever&aacute; fazer uma atualiza&ccedil;&atilde;o do Plano Nacional de Educa&ccedil;&atilde;o.
+A senadora Teresa Leit&atilde;o (PT-PE) usou o plen&aacute;rio do Senado Federal nesta ter&ccedil;a-feira (17) para homenagear o Dia do Professor. Durante o discurso, ela destacou a necessidade de valoriza&ccedil;&atilde;o profissional da categoria e cobrou o cumprimento do piso salarial dos professores.
+"A governadora do meu estado, por exemplo, n&atilde;o o cumpre; e, como ela, centenas de prefeitos e prefeitas, e outros governadores. Isso nos levou a fazer uma den&uacute;ncia ao MEC e h&aacute; no MEC um GT analisando essa quest&atilde;o do piso, porque uma lei n&atilde;o pode ser desconsiderada nessa medida", afirmou.
+Teresa Leit&atilde;o, que &eacute; professora aposentada e sindicalista, disse que o momento &eacute; de celebrar conquistas, enaltecer educadores, mas tamb&eacute;m de refor&ccedil;ar a atua&ccedil;&atilde;o por valoriza&ccedil;&atilde;o de todos os profissionais da educa&ccedil;&atilde;o.
+"Posso testemunhar que nossas lutas, ao longo de toda a nossa hist&oacute;ria, refor&ccedil;am sempre uma concep&ccedil;&atilde;o de valoriza&ccedil;&atilde;o dos profissionais da educa&ccedil;&atilde;o que deve considerar a articula&ccedil;&atilde;o entre a forma&ccedil;&atilde;o inicial e continuada, a estrutura&ccedil;&atilde;o de boas carreiras com remunera&ccedil;&atilde;o condigna, sa&uacute;de, condi&ccedil;&otilde;es de trabalho, participa&ccedil;&atilde;o democr&aacute;tica e atratividade", lembrou.
+A senadora tamb&eacute;m anunciou a realiza&ccedil;&atilde;o da Confer&ecirc;ncia Nacional de Educa&ccedil;&atilde;o (Conae) Extraordin&aacute;ria, que dever&aacute; fazer uma atualiza&ccedil;&atilde;o do Plano Nacional de Educa&ccedil;&atilde;o. O novo Plano Nacional ter&aacute; vig&ecirc;ncia de 10 anos.
+"Para a valoriza&ccedil;&atilde;o de professoras e professores, que &eacute; um dever legal e um compromisso pol&iacute;tico que nosso pa&iacute;s deve promover, &eacute; preciso cumprir a Meta 17 deste Plano Nacional de Educa&ccedil;&atilde;o, que estabelece a necessidade de equiparar o rendimento m&eacute;dio dos docentes ao dos demais profissionais com escolaridade equivalente, o que deveria ter sido cumprido em 2021", afirmou.

@@ -1,0 +1,28 @@
+---
+layout: post
+title: "Moro pede que empresários deem oportunidade de trabalho a presos"
+date: 2019-05-06
+tags: empresários,moro,presos,trabalho
+author: None
+---
+Agência Brasil - O ministro da Justiça e Segurança Pública, Sergio Moro, defendeu, nesta segunda-feira (6), que as empresas brasileiras contratem pessoas que cumprem pena ou que deixaram o sistema prisional. Para o ministro, é importante que os empresários ofereçam oportunidades aos presos que buscam se reinserir na sociedade por meio do trabalho e do estudo.
+"Temos que acreditar na ressocialização do preso. Este é um objetivo importante. Nunca podemos perder a fé e a esperança de que as pessoas podem se redimir. E uma das melhores maneiras é dar uma oportunidade para estas pessoas”, disse o ministro durante a cerimônia de entrega do Selo Resgata a 198 empresas de 15 estados. Juntas, estas empresas contratam 5.603 pessoas. No primeiro ciclo de certificação das companhias, em 2017/2018, 112 instituições receberam o selo. A maioria delas, órgãos públicos. A expectativa do ministério é ampliar este número para mil empresas em 2020 e atrair mais empresas privadas.
+Lançado pelo Ministério da Justiça e Segurança Pública no fim de 2017, o selo é uma estratégia federal de estímulo às empresas públicas e privadas, bem como a órgãos públicos e empreendimentos de economia solidária, para que contratem pessoas privadas de liberdade que estejam cumprindo penas alternativas ou que já tenham deixado o sistema prisional.
+LEIA TAMBÉM
+» Moro diz que é prematuro falar sobre isenção a quem atirar em invasor de terra
+» Relator deve sugerir que Coaf permaneça no Ministério da Justiça
+» Moro volta a defender que Coaf fique com Ministério da Justiça
+» Bolsonaro indica que Coaf fica com Moro
+» Bolsonaro contraria Moro e negocia tirar Coaf do Ministério da Justiça
+A contratação dos presos é feita por meio de convênios que as empresas habilitadas a apoiar o trabalho de ressocialização assinam com os governos dos estados onde atuam. A certificação da habilitação é a obtenção do próprio Selo Resgata. Para obtê-lo, a empresa tem que contar com entre 1% e 3% de presos no total de mão de obra contratada, mediante o que, recebem algumas vantagens, como redução das despesas trabalhistas.
+Presente à cerimônia de habilitação de mais 198 empresas, o diretor-geral do Departamento Penitenciário Nacional (Depen), Fabiano Bordignon, lembrou que a Lei de Execução Penal prevê que os presos trabalhem, não podendo, em nenhuma circunstância, receber menos que 75% do salário-mínimo (R$ 998), não tendo algumas das garantias trabalhistas. Deste valor, um percentual pode ser descontado a título de custeio das unidades prisionais, como já acontece em Santa Catarina, apontado como um estado-modelo.
+Para Bordignon, o maior benefício para os presos é a possibilidade de reduzir sua pena, já que, a cada três dias de trabalho, um dia é abatido da sentença a cumprir. “A Lei de Execução Penal diz que o preso condenado é obrigado a trabalhar. Claro que tratamos isto como um direito, já que a maioria dos detentos do Brasil quer trabalhar. A dificuldade é que dar trabalho para os presos dá trabalho. Então, precisamos criar estruturas nas unidades prisionais para que elas recebam parte deste trabalho”, comentou o diretor do Depen, admitindo que um dos desafios à iniciativa é o convencimento de mais empresas privadas.
+“Temos que romper um certo preconceito. Também precisamos classificar melhor os presos para que as empresas saibam que podem recebê-los. A Lei de Execução Penal prevê as Comissões Técnicas de Classificação para fazer isso, mas, hoje, com as estruturas prisionais, a deficiência de servidores e de sistemas informatizados, isso é uma dificuldade”, pontuou o diretor-geral do Depen.
+» Bolsonaro nega que Moro escolherá próximo procurador da República
+» Líder do PT diz que redução da pena de Lula mostra ‘abusos’ de Moro e TRF-4
+» Presidente da OAB em Pernambuco critica trecho do projeto anticrime de Moro
+» Banco de DNA ficará completo até final do governo, diz Moro
+» Para Moro, caso dos 80 tiros no Rio sai de excludente de ilicitude
+Microempresário do ramo da construção civil, José Geraldo Rosa Júnior era o responsável por um dos estabelecimentos que receberam o selo. Embora esteja afastado da direção da empresa, ele compareceu à cerimônia e garantiu que repetiria a experiência encerrada em 2018.
+“Para nós, empresários, é uma maravilha; uma vantagem”, disse Júnior, revelando à Agência Brasil que os custos com a contratação de um apenado podem chegar a ser 65% inferiores aos de outro trabalhador. O que lhe permitiu, inclusive, vencer licitações para fornecer serviço a órgãos públicos. “Eu fiz um teste com alguns reeducandos e consegui êxito porque o meu valor [do serviço] era menor porque minha mão de obra era mais barata”, acrescentou o microempresário que chegou a ter sete apenados entre seus funcionários.
+“Nunca tive problemas. Até porque, quando você dá uma oportunidade para eles, eles te vêm como um amigo e dão o seu melhor. Eles costumavam chegar antes do horário e, geralmente, eram os últimos a sair”, comentou o microempresário, explicando que o contrato que assinou com a Fundação de Amparo ao Trabalhador Preso (Funap), do Distrito Federal, previa que, caso houvesse algum problema, a entidade prestaria todo o auxílio necessário – o que nunca foi necessário.

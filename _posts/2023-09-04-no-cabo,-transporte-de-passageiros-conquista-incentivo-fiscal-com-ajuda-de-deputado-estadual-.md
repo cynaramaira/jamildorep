@@ -1,0 +1,12 @@
+---
+layout: post
+title: "No Cabo, transporte de passageiros conquista incentivo fiscal com ajuda de deputado estadual "
+date: 2023-09-04
+tags: jamildo, transporte
+author: Jamildo Melo
+---
+Empresas de transporte p&uacute;blico municipal de passageiros no Cabo de Santo Agostinho celebram uma conquista significativa: a redu&ccedil;&atilde;o do Imposto sobre Circula&ccedil;&atilde;o de Mercadorias e Servi&ccedil;os (ICMS) sobre o diesel em 46,88% por litro de combust&iacute;vel, proporcionando um importante incentivo fiscal. Essa vit&oacute;ria &eacute; resultado do Decreto n&deg; 54.799 de 2023, voltado para o benef&iacute;cio dos munic&iacute;pios da regi&atilde;o metropolitana, garantindo uma cota destinada &agrave;s empresas que operam o transporte municipal de passageiros em todo o estado.
+O setor de transporte p&uacute;blico do Cabo de Santo Agostinho disse que essa medida representa um marco hist&oacute;rico, alcan&ccedil;ado ap&oacute;s uma batalha que se desenrolou ao longo de sete anos e contou com o apoio da atual administra&ccedil;&atilde;o do prefeito Keko do Armaz&eacute;m, com destaque para a ajuda do deputado estadual Jeferson Tim&oacute;teo.
+&ldquo;Esta vit&oacute;ria n&atilde;o &eacute; apenas um al&iacute;vio para as empresas de transporte p&uacute;blico municipal, mas tamb&eacute;m um passo significativo em dire&ccedil;&atilde;o a uma mobilidade mais eficaz e acess&iacute;vel para todos. Hoje, estamos garantindo n&atilde;o apenas a sustentabilidade das opera&ccedil;&otilde;es dessas empresas, mas tamb&eacute;m a manuten&ccedil;&atilde;o de quem depende diariamente desses servi&ccedil;os&rdquo;, disse o deputado.
+A decis&atilde;o foi oficialmente anunciada atrav&eacute;s de uma portaria do Di&aacute;rio Oficial do Estado, com data de 28 de agosto, assinada pelo secret&aacute;rio da fazenda, Wilson Jos&eacute; de Paula, e entrou em vigor a partir do primeiro de setembro deste ano.
+O evento que celebrou esse benef&iacute;cio ocorreu em junho, durante uma reuni&atilde;o na Secretaria Estadual da Fazenda, na qual estiveram presentes representantes das treze empresas do Cabo de Santo Agostinho habilitadas a usufruir da redu&ccedil;&atilde;o de ICMS. Entre as empresas beneficiadas, destacam-se S&atilde;o Judas Tadeu, Maria das Merc&ecirc;s, Das Praias, AVS e San Remo.

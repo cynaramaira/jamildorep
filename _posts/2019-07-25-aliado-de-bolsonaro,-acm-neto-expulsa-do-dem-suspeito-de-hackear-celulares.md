@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Aliado de Bolsonaro, ACM Neto expulsa do DEM suspeito de hackear celulares"
+date: 2019-07-25
+tags: ACM Neto,Bolsonaro
+author: None
+---
+Da Agência Brasil
+O diretório nacional do DEM decidiu expulsar Walter Delgatti Neto do partido. Suspeito de invadir telefones celulares, incluindo os aparelhos de autoridades públicas como o ministro da Justiça e Segurança Pública, Sergio Moro, Neto foi detido em caráter temporário nesta terça-feira (23), no âmbito da Operação Spoofing, da Polícia Federal (PF).
+Em nota divulgada nesta quinta-feira (25), o DEM informou que a expulsão sumária foi determinada pelo presidente nacional da legenda, Antonio Carlos Magalhães Neto, prefeito de Salvador (BA). A investigação policial está em curso e tanto Walter, quanto os outros três suspeitos detidos na mesma operação são tratados com suspeitos. Ainda assim, para ACM Neto, está claro que Walter descumpriu dever éticos previstos no estatuto do partido.
+Admitindo a tese de que o filiado está “envolvido com o ataque hacker a celulares de autoridades”, o partido defende que a Justiça esclareça os fatos “e que os envolvidos no processo criminoso sejam punidos de forma efetiva e com todo o rigor”.
+Walter era filiado ao diretório de Araraquara, cidade do interior de São Paulo onde reside. Segundo o DEM, ele não tem participação ativa no cotidiano partidário e a legenda não pode se responsabilizar pelas atitudes de seus milhares de filiados. “Condenamos, de maneira veemente e dura, o cometimento de qualquer ato de irregularidade por quem quer que seja – filiado ao DEM ou outras legendas”, acrescenta o diretório nacional na nota assinada por ACM Neto.
+Nesta quinta-feira (25), o Ministério da Justiça e Segurança Pública informou que a Polícia Federal (PF) verificou que aparelhos celulares usados pelo presidente da República, Jair Bolsonaro (PSL), também foi alvo da ação do grupo que, de acordo com a PF, pode ter invadido ao menos mil linhas telefônicas.
+Além de Walter, estão detidos, em Brasília, Danilo Cristiano Marques; Gustavo Henrique Elias Santos e sua companheira, Suelen Priscila de Oliveira. Nessa quarta-feira (24), o advogado do casal Gustavo e Suelen, Ariovaldo Moreira, revelou a jornalistas que seu cliente confirmou que, há alguns meses, Walter lhe enviou, pelas redes sociais, imagens de uma suposta mensagem enviada pelo então juiz federal Sergio Moro a outras autoridades públicas.
+“Segundo Gustavo, Walter mostrou a ele algumas interceptações de uma autoridade há algum tempo. Essa autoridade era o hoje ministro da Justiça e Segurança Pública, Sergio Moro, mas Gustavo negou qualquer envolvimento com a interceptação dessas mensagens. E, inclusive, chegou a alertar Walter que aquilo lhe causaria problemas”, disse o advogado, acrescentando que Gustavo não denunciou Walter pela relação de amizade que mantinham, embora já não se encontrassem há algum tempo.

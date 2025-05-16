@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Entenda como são feitas as pesquisas de intenção de voto"
+date: 2014-10-03
+tags: pesquisas,são
+author: None
+---
+Da redação com agências
+Divulgadas durante períodos eleitorais em todo o mundo, as pesquisas de intenção de voto costumam incendiar campanhas e influenciar eleitores.
+O fato mais recente que demonstra o caráter polêmico dos levantamentos trata da última pesquisa do Instituto Maurício de Nassau (IPMN/JC), divulgada nessa quinta-feira (2). A consulta está sendo alvo de questionamentos pelo candidato ao Senado João Paulo (PT) por causa do resultado. Ele aparece atrás nas intenções de voto, enquanto outros institutos de pesquisas apontam o petista à frente do adversário Fernando Bezerra Coelho (FBC).
+&gt;&gt; TRE dá a João Paulo acesso aos dados da pesquisa da Nassau
+&gt;&gt;TRE responde pedido de João Paulo para impugnar pesquisa da Nassau nesta sexta
+&gt;&gt; Na pesquisa IPMN/JC, Fernando Bezerra aparece com 35% das intenções de voto e João Paulo tem 29%
+Feitas por institutos de pesquisas de opinião pública a pedido de veículos de comunicação ou entidades representativas (como as confederações nacionais da Indústria e de Transportes), as pesquisas no Brasil precisam ser registradas na Justiça Eleitoral antes de serem divulgadas.
+Mas como são feitas as pesquisas de intenção de voto nas eleições? Geralmente, envolvem entrevistas a algumas centenas de pessoas. O número varia de acordo com o instituto e com o cliente que encomendou o trabalho.
+A pesquisa IPMN/JC divulgada no dia 2 de outubro, por exemplo, ouviu 2.480 eleitores. Já a Ibope encomendada pela TV Globo, divulgada um dia antes envolveu 2 mil eleitores. A Datafolha de 2 de outubro, por sua vez, entrevistou 1.264 mil pessoas.
+Os números podem parecer pequenos, diante do universo eleitoral de Pernambuco de quase 6 milhões de pessoas, mas os institutos de pesquisa garantem que são suficientes para representar os eleitores do Estado e retratar, considerando-se as margens de erros e os intervalos de confiança, as intenções de voto dos brasileiros.
+O segredo, explicam os institutos, está na escolha dessa amostra, que não tem nada de aleatória. Trata-se de um trabalho estatístico que busca dividir o eleitorado de acordo com critérios como sexo, idade, escolaridade, ocupação e espaço geográfico. O pressuposto é que eleitores com características semelhantes tendem a ter a mesma preferência política.
+"Se a sua amostra é bem calculada e os indivíduos são capazes de constituir uma miniatura do conjunto da sociedade, a tendência é que o comportamento desses indivíduos se reproduza para o conjunto. Existe uma analogia que se faz que é o exame de sangue. Você não precisa tirar todo o sangue do indivíduo para saber quais as características. Você tira só alguns mililitros", explica o diretor do Vox Populi, João Francisco Meira.
+O Vox Populi, por exemplo, divide sua amostra em cinco estratos: idade, sexo, escolaridade, renda e ocupação. Já o Ibope divide em apenas quatro: idade, sexo, escolaridade e ramo de atividade.
+A partir de informações da Justiça Eleitoral e de pesquisas do Instituto Brasileiro de Geografia e Estatística (IBGE), como o Censo e a Pesquisa Nacional por Amostra de Domicílios (Pnad), é possível conhecer o perfil do eleitor em cada cidade e estado.
+Então, de acordo com o tamanho da população, do número de homens e mulheres, das principais ocupações e do grau de escolaridade daquele local, o instituto divide a amostra geograficamente. Por exemplo, se um determinado local for predominantemente agrícola, a amostra daquela região terá mais empregados da agricultura do que da indústria ou de serviços. Se no local, o perfil da população é de escolaridade mais baixa, a amostra terá mais entrevistados nessa faixa de escolaridade. E assim sucessivamente.
+Definida a amostra, o próximo passo é preparar o questionário e abordar os entrevistados. As pesquisas são feitas nos domicílios ou na própria rua, desde que a pessoa more na zona previamente estabelecida para o trabalho.
+“Nas eleições, temos que ter o cuidado de fazer a pergunta de forma totalmente isenta. A pessoa começa fazendo a pergunta [para que seja respondida] de forma espontânea. Daí a gente apresenta um disco [uma figura em forma de círculo] com os nomes dos candidatos, de modo que não prioriza nenhum dos candidatos. O entrevistador entrega para a pessoa, que lê os nomes e diz em quem vai votar. O entrevistador não faz nenhuma leitura dos nomes”, explica o diretor de Opinião Pública, Política e Comunicação do Ibope, Hélio Gastaldi.
+Como qualquer trabalho estatístico, as pesquisas de intenção de voto estão sujeitas a margens de erro. Nas pesquisas de intenção de voto para governo e Senado, em geral, a margem de  erro é dois pontos percentuais para mais ou para menos. Isso significa que se um candidato tem 35% das intenções de voto na pesquisa, ele tem, na prática, algo entre 33% e 37%.

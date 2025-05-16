@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Isaltino rebate Armando e diz que posições do senador podem contribuir com violência"
+date: 2017-08-24
+tags: Armando Monteiro,senadores
+author: None
+---
+O líder da bancada governista na Assembleia Legislativa de Pernambuco (Alepe), Isaltino Nascimento, divulgou nota rebatendo o senador Armando Monteiro Neto (PTB) pela crítica feita a Paulo Câmara (PSB) nesta quinta-feira (24). O petebista afirmou que há um "desgoverno" na segurança.
+Para o socialista, as posições de Armando no Congresso podem não contribuir com o combate à violência. "O senador deveria analisar que a contribuição que tem dado para o programa de desnacionalização do Brasil, para a quebradeira do modelo previdenciário, a privatização desenfreada e irresponsável, a retirada de direitos dos brasileiros podem, certamente, não contribuir para a melhoria dos índices da violência em Pernambuco", disse em nota.
+Isaltino ainda acusou o senador de dar opiniões por interesse. "É papel da oposição a crítica e a cobrança, como também é a proposição de alternativas para resolver os problemas denunciados", afirmou. "Mas o discurso do senador não surpreende, e chega até ser incoerente, uma vez que vem defendendo ultimamente tudo o que está sendo proposto pelo Governo Federal em matéria de corte de direitos. As suas opiniões mudam ao vento de suas conveniências e interesses, sem militar por suas convicções."
+O aliado de Paulo Câmara enfatizou que Armando foi derrotado pelo socialista nas últimas eleições. "O povo pernambucano já fez seu julgamento e reprovou o senador em dois momentos políticos recentes. Certamente, no devido tempo, haverá de continuar reprovando sua prática situacionista."
+Isaltino defendeu que o governo tem tentado combater os altos índices de violência no Estado. Ignorando que Pernambuco chegou a 3.323 crimes contra a vida em 2017, afirmou que este ano foram mais de 13 mil pessoas detidas, 1.355 deles suspeitos de homicídios. "No momento de crise, arrocho fiscal e econômico, muitos estados estão em piores condições que a nossa e não conseguem sequer honrar folha de pagamento", minimizou. "O Governador Paulo Câmara tem se mostrado incansável na busca por mais proteção e firmeza ao conduzir os problemas nessa área."

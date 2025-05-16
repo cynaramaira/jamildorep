@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Após protestos, Câmara retira da pauta projeto de lei que anistiaria caixa 2"
+date: 2016-09-20
+tags: apostas,Caixa,Câmara,projeto,Protestos
+author: None
+---
+Da ABr - Depois de uma hora de interrupção, a sessão da Câmara dos Deputados para negociar a votação do projeto de lei (PL) 1210/2007, que trata sobre as pesquisas eleitorais, a propaganda eleitoral e o financiamento de campanha, entre outros, foi retomada com polêmica em torno da votação da proposta. Isso porque, o projeto, que visava também criminalizar a prática de caixa 2, estava se transformando em uma anistia a quem incorreu na prática.
+A iniciativa foi vista como uma manobra. Diante dos protestos e dos apelos, o deputado Beto Mansur (PRB-SP), que presidia os trabalhos, cedeu e retirou de ofício o projeto, que poderá voltar à pauta da Casa em outra oportunidade. Ele anunciou que haviam dois requerimentos sobre a mesa: uma para retirada de pauta e o outro para votação nominal do projeto.
+Deputados contrários ao projeto criticaram a iniciativa de Mansur e insisitiram que a votação fosse nominal para constar no painel a posição de cada parlamentar sobre anistia. “Queremos a votação nominal para que fique no painel quem quer anistiar o caixa 2. Querem jogar daqui para a frente [a criminalização] e esquecer o passado”, disse o líder do PSOL, Ivan Valente (SP).
+A votação do projeto foi questionada desde o início da sessão que aprovou a Medida Provisória 734/16, que destinou apoio financeiro de R$ 2,9 bilhões para auxiliar nas despesas com segurança pública do estado do Rio de Janeiro em decorrência da realização dos Jogos Olímpicos e Paralímpicos Rio 2016.
+Desde o início da ordem do dia, deputados do PSOL, PDT, PSB, Rede e PT reclamaram da inclusão do projeto na pauta com o argumento de que ele tinha recebido emendas que acabam dando anistia para a prática de caixa 2.
+Os parlamentares avaliaram que a manobra seria conseguida a partir da aprovação de uma emenda tornando crime a prática. “Não quero impedir outros assuntos de serem analisados na sessão, mas quero atrapalhar essa história de anistia de caixa 2, que é crime”, criticou o deputado Miro Teixeira (Rede-RJ). “Não é toleravel propor uma medida como essa sem nenhuma discussão. Isso é desrespeitar os deputados”.
+O entendimento é que, se houver a criminalização do caixa 2, a partir de então a lei não poderá retroagir em desfavor do acusado. Desta forma, todas as práticas adotadas antes da lei entrar em vigor são automaticamente anistiadas. “Corre um boato de que uma emenda aglutinativa está sendo preparada para permitir a anistia de caixa 2”, disse o líder da Rede, Alessandro Molon (RJ).
+Questionamentos
+Os protestos fizeram com que Mansur suspendesse os trabalhos para tentar um acordo que viabilizasse a votação, mas sem êxito. Retomados os trabalhos, os questionamentos em torno da legalidade da votação aumentaram.
+Teixeira apresentou uma questão de ordem argumentando que o texto, de 2007, não poderia ser votado, uma vez que já havia sido rejeitado. Mansur argumentou que a rejeição recaía sobre duas emendas e que a sua intenção era votar o texto original. Ele também reafirmou que a nova votação abriria a possibilidade de serem apresentadas emendas.
+Molon, seguido de outros parlamentares alertaram sobre a existência de decisão da Casa proibindo a retomada da discussão e apresentação de emendas a matérias em fase de votação. “Essa sessão não vai terminar bem”, disse Molon.
+Diante da insistência de Mansur em votar a matéria, deputados gritavam que a votação seria um “golpe”. “Isto aqui é golpe, a Casa não pode passar por isso”, criticou Teixeira. Mansur ainda argumentou, antes de retirar o projeto da pauta e encerrar os trabalhos. “Fui escolhido para presidir essa sessão. Quero informar que eu não sou o autor desse projeto, eu retirei de ofício”, disse.

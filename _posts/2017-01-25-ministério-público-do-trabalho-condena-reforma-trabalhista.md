@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Ministério Público do Trabalho condena reforma trabalhista"
+date: 2017-01-25
+tags: Condenação,ministério,reformas,regras trabalhistas,trabalho
+author: None
+---
+Estudo realizado pelo Ministério Público do Trabalho (MPT), divulgado nessa terça-feira (24), aponta que as mudanças na legislação trabalhista propostas pelo Governo Federal são inconstitucionais.
+ As alterações contrariam a Constituição Federal e as convenções internacionais firmadas pelo Brasil, geram insegurança jurídica, têm impacto negativo na geração de empregos e fragilizam o mercado interno.
+O levantamento alerta ainda para consequências nocivas das medidas, como a possibilidade de contratação sem concurso público, a maior permissividade a casos de corrupção e a falta de responsabilização das empresas em caso de acidentes de trabalho, por exemplo.
+O documento reúne quatro Notas Técnicas, assinadas por 12 Procuradores do Trabalho, em que são analisadas de forma detalhada as propostas contidas no Projeto de Lei 6787/2016 (PL 6787/2016); Projeto de Lei do Senado 218/2016 (PLS 218/2016); Projeto de Lei da Câmara 30/2015 (PLC 30/2015); e Projeto de Lei 4302-C/1998 (PL 4302-C/1998).
+Ao final, os membros do MPT propõem a rejeição por completo de dois projetos: o PL 6787/2016, que, entre outras propostas, impõe a prevalência do negociado sobre o legislado; e do PLS 218/2016, que permite a terceirização da atividade-fim com a introdução do chamado “contrato de trabalho intermitente”. Quanto ao PLC 30/2015 e ao PL 4302-C/1998, o órgão sugere alteração de redação.
+De acordo com o procurador-geral do Trabalho, Ronaldo Fleury, o argumento de que flexibilização das leis trabalhistas incentivaria a criação de empregos é falacioso. “Todas essas propostas já existiam antes da crise econômica. Nenhuma proposta é 100% inovadora. Quando o Brasil surfava em uma situação altamente favorável, essas propostas já existiam e eram defendidas pelos mesmos grupos econômicos e políticos. Esse argumento cai por terra a partir do momento em que essas propostas idênticas foram apresentadas quando o Brasil tinha uma economia pujante”, argumentou.
+Segundo ele, para superar a crise é preciso haver uma valorização dos direitos sociais. “Nos momentos de crise é que os trabalhadores precisam de mais proteção. Em todos os países em que houve a flexibilização do Direito do Trabalho, fundada numa crise econômica, não houve a criação de emprego. Ao contrário, houve um decréscimo. Houve a precarização permanente do trabalho e, até, em alguns casos, o agravamento da crise econômica, como na Espanha e Grécia, por exemplo”. 
+Fórum - Em reunião realizada também, nesta terça-feira, foi assinado um documento que institui o Fórum Interinstitucional de Defesa do Direito do Trabalho e da Previdência Social com o objetivo de promover a articulação social em torno das propostas legislativas sobre a reforma trabalhista. Além do MPT, assinam o documento 28 instituições, centrais sindicais, confederações, federações, sindicatos e associações.

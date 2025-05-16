@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Artistas recifenses à espera de um milagre? Por Leo salazar"
+date: 2020-09-22
+tags: Silvana Salazar
+author: None
+---
+Por Leo Salazar
+Produtor cultural e pré-candidato a vice-prefeito do Recife pela coligação Mudança Já (Podemos/Cidadania)
+A Lei Aldir Blanc (Lei nº 14.017, de 29 de junho de 2020) definiu ações emergenciais destinadas ao setor cultural durante o estado de calamidade em função da Covid-19. Ela prevê o repasse de R$ 3 bilhões a estados, municípios e ao Distrito Federal para medidas de apoio e auxílio aos trabalhadores da cultura atingidos pela pandemia. Serão repassados à Pernambuco cerca de R$ 143 milhões, sendo R$ 74 milhões destinados ao Governo do Estado e os outros R$ 69 milhões serão repartidos entre os 184 municípios existentes.
+Antes, porém, de receber os recursos, estado e municípios precisam enviar os respectivos planos de ação através da Plataforma +Brasil, informando como os recursos serão utilizados. Então o Ministério do Turismo validará o plano de ação e fará um repasse, em valor único, para a conta do ente federativo. Cada ente ainda deverá regulamentar, através de decreto, o funcionamento do mecanismo em cada caso, bem como publicar editais de seleção das propostas artísticas e culturais beneficiadas. Todo o processo de desembolso deverá obedecer aos princípios da despesa pública, devendo ser realizado enquanto durar o estado de calamidade (previsto até 31/12/2020). As prestações de contas deverão ser enviadas até 30/06/2021.
+Serra Talhada foi o primeiro município pernambucano a publicar, ontem (21/09), seus cinco editais. O dinheiro caiu na conta da Fundação Cultural no último dia 14. O plano de trabalho foi enviado eletronicamente desde o dia 28 de agosto. A Fundação Cultural de Serra Talhada, comandada pelo valente Anildomá e seus cabras, merece nosso reconhecimento pela organização, profissionalismo e respeito pelos trabalhadores da cultura, que há seis meses tiveram suas atividades bruscamente interrompidas pela pandemia.
+Outros 28 municípios pernambucanos também já receberam os recursos da Lei Aldir Blanc: Alagoinha, Caruaru, Jataúba, Vertentes, Chã Grande, Ouricuri, Cupira, Palmares, Itapisuma, Paudalho, Triunfo, Olinda, Belém de São Francisco, Calumbi, Flores, Jaboatão dos Guararapes, Jaqueira, Limoeiro, Pedra, Abreu e Lima, Água Preta, Canhotinho, Garanhuns, Itaíba, Pesqueira, Moreno e Ipojuca.
+Outras capitais brasileiras também já receberam do Ministério do Turismo a verba para subsidiar seus artistas e espaços culturais: Rio Branco, Manaus, Salvador, Curitiba, Natal, Porto Velho, Porto Alegre, Florianópolis, Maceió, Fortaleza, Boa Vista, Aracajú, Macapá, São Luís e Belo Horizonte.
+Enquanto isso, aqui em Recife, a "Capital do Nordeste", os artistas, pontos de cultura, espaços culturais e microempresas do setor seguem à espera de um verdadeiro milagre. Ou não. Quem sabe a lentidão da gestão municipal seja uma estratégia para realizar a destinação dos recursos em pleno período eleitoral.
+Quem sabe assim os artistas esquecem do atraso anual no recebimento dos cachês, ou dos 10 anos em que o Teatro do Parque permaneceu abandonado.
+Caberá aos artistas e produtores culturais decidir que posição tomar nesta eleição: aceitar a esmola do presente, repetir os erros do passado, ou agir para mudar o futuro.

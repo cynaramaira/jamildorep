@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Nesta terça, impostômetro atinge maior arrecadação da história. Brasileiros terão pago R$ 1,2 trilhão em tributos em 2010"
+date: 2010-12-13
+tags: Arrecadação,brasileiros,Caso Banestado,história,Impostômetro,Maioria,superterça
+author: None
+---
+Nesta ter&ccedil;a-feira, 14 de dezembro, o Brasil atingir&aacute; mais um recorde na arrecada&ccedil;&atilde;o de impostos. O Impost&ocirc;metro, ferramenta eletr&ocirc;nica, desenvolvida pelo Instituto Brasileiro de Planejamento Tribut&aacute;rio &ndash; IBPT em parceria com a Associa&ccedil;&atilde;o Comercial de S&atilde;o Paulo &ndash; ACSP e que calcula em tempo real o valor arrecadado pelos governos federal, estaduais e municipais, atingir&aacute; R$ 1, 2 trilh&atilde;o.
+&ldquo;Jamais esta marca foi atingida, pois o total de arrecada&ccedil;&atilde;o do ano passado foi de R$ 1,09 tri&rdquo;, observa o presidente do IBPT, Jo&atilde;o Eloi Olenike. At&eacute; o fim deste ano a previs&atilde;o &eacute; que seja arrecadado R$ 1,27 trilh&atilde;o.
+O &ldquo;Impost&ocirc;metro&rdquo; foi inaugurado em 20 de abril de 2005 pelo Instituto Brasileiro de Planejamento Tribut&aacute;rio &ndash; IBPT, respons&aacute;vel por calcular o valor resultante do equipamento. Pela Internet (www.impostometro.com.br) qualquer cidad&atilde;o pode acompanhar o total de impostos pagos pelos brasileiros.
+Neste m&ecirc;s de dezembro o Instituto Brasileiro de Planejamento Tribut&aacute;rio &ndash; IBPT completa 18 anos de atividades. Originado da Associa&ccedil;&atilde;o Brasileira de Defesa do Contribuinte &ndash; ABDC, em Curitiba, Paran&aacute;, &eacute; um instrumento de an&aacute;lise, dentro de par&acirc;metros acad&ecirc;micos e cient&iacute;ficos, e de informa&ccedil;&atilde;o sobre o cen&aacute;rio tribut&aacute;rio brasileiro, desenvolvendo, igualmente, estudos setoriais sobre carga tribut&aacute;ria, com base na sua vasta experi&ecirc;ncia e amplo conhecimento adquirido nas &aacute;reas do Direito, das Ci&ecirc;ncias Cont&aacute;beis, da Economia e da Administra&ccedil;&atilde;o. Nesse per&iacute;odo, foram realizados cinco Congressos Nacionais, mais de 40 semin&aacute;rios, v&aacute;rios ciclos de palestras e mobiliza&ccedil;&atilde;o quase que di&aacute;ria na imprensa em virtude da realiza&ccedil;&atilde;o de estudos ou manifesta&ccedil;&otilde;es sobre temas voltados ao sistema tribut&aacute;rio nacional e &agrave; carga tribut&aacute;ria brasileira.
+&nbsp; 

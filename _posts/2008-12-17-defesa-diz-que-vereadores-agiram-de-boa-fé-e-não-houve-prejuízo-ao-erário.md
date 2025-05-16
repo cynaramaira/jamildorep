@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Defesa diz que vereadores agiram de boa-fé e não houve prejuízo ao erário"
+date: 2008-12-17
+tags: defesa,Naomi Campbell,prejuízos,Vereadores
+author: None
+---
+Outro trecho de destaque do&nbsp;relat&oacute;rio lido ontem por Marcos Loreto, no Tribunal de Contas do Estado (TCE), diz respeito &agrave; responsabilidade (ou aus&ecirc;ncia dela) dos vereadores no caso das notas fiscais frias. Veja o argumento adotado pela defesa dos vereadores:
+
+Neste &iacute;nterim, os vereadores, utilizando-se de delibera&ccedil;&otilde;es do TCU (Ac&oacute;rd&atilde;o n&ordm; 69/1999 &ndash; Segunda C&acirc;mara e Ac&oacute;rd&atilde;o n&ordm; 79/2001 &ndash; Plen&aacute;rio), alegaram a presun&ccedil;&atilde;o de boa-f&eacute; na aquisi&ccedil;&atilde;o de mercadorias sem regular documenta&ccedil;&atilde;o fiscal, pois &ldquo;os v&iacute;cios existentes em notas fiscais de empresas (...) s&atilde;o de inteira responsabilidade do emitente&rdquo; (Decis&atilde;o TC n&ordm; 0273/99):
+&ldquo;Inicialmente, cumpre-se esclarecer que, no exerc&iacute;cio de 2006, a C&acirc;mara Municipal do Recife n&atilde;o dispunha de sistema informatizado que permitisse acesso a todas as informa&ccedil;&otilde;es fiscais das empresas junto &agrave; SEFAZ, conforme faz prova a declara&ccedil;&atilde;o em anexo.
+Ademais, mesmo que as citadas notas fiscais pudessem ser consideradas inid&ocirc;neas, ainda assim, serviriam para comprovar a despesa, vez que trazem de forma completa a identifica&ccedil;&atilde;o dos credores, da opera&ccedil;&atilde;o realizada e o valor pago.
+(...) qualquer pessoa ou institui&ccedil;&atilde;o pode receber notas fiscais inid&ocirc;neas sem ter conhecimento deste fato, pois um estabelecimento comercial pode estar com situa&ccedil;&atilde;o irregular perante o Fisco, mas continuar realizando opera&ccedil;&otilde;es comerciais.
+(...)
+Ora, a boa-f&eacute; se presume, mas a m&aacute;-f&eacute; deve ser provada. Sendo assim, a auditoria n&atilde;o pode, simplesmente, deduzir que as compras foram fict&iacute;cias. Os materiais adquiridos foram devidamente entregues e n&atilde;o houve superfaturamento, donde se conclui que n&atilde;o houve preju&iacute;zos ao er&aacute;rio.
+Em resumo, ainda que se possa acoimar v&iacute;cios nos documentos fiscais, esses v&iacute;cios se restringem ao documento. Mas o documento, mesmo inserv&iacute;vel para finalidades fiscais, pode servir para comprovar a opera&ccedil;&atilde;o ou o pagamento. Para que esse v&iacute;cio tenha reflexo na situa&ccedil;&atilde;o enfocada pelo relat&oacute;rio de auditoria, se faz imprescind&iacute;vel demonstrar, de forma cabal, que o v&iacute;cio decorreu de atua&ccedil;&atilde;o, participa&ccedil;&atilde;o ou pelo menos com anu&ecirc;ncia do defendente; em seguida que desse v&iacute;cio decorreu preju&iacute;zo &agrave; entidade. Tais elementos n&atilde;o se afiguram presentes no caso concreto, seja porque n&atilde;o comprova&ccedil;&atilde;o cabal, seja porque os recursos eram de origem privada, seja ainda porque uma vez detectada a falha, houve devolu&ccedil;&atilde;o.&rdquo; 

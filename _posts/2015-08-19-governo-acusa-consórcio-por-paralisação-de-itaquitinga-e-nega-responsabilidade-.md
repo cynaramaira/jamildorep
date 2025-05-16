@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Governo acusa consórcio por paralisação de Itaquitinga e nega responsabilidade por débito de R$ 30 milhões com fornecedores"
+date: 2015-08-19
+tags: consórcios,Débitos,governo,Itaquitinga,paralisação,Responsabilidade,sonegação
+author: None
+---
+No JC Online desta quarta
+Em audiência pública iniciada às 10hs e concluída às 14 horas desta quarta-feira (19), na Comissão de Administração Pública da Assembleia Legislativa, o governo do Estado não deu nenhuma perspectiva de solução imediata para os fornecedores de serviços e materiais e ex-trabalhadores da Penitenciária de Itaquitinga, na Mata Norte, obra iniciada em 2009 e que está parada desde 2012, ano em que deveria ter sido concluída.
+Representantes dos fornecedores pediram sa abertura de diálogo e a busca para o pagamento de R$ 30 milhões em débitos deixados pela Advance Construtora e a DAG Construrora, que a substituiu, com a paralisação da obra. O secretário de Justiça estadual, Pedro Eurico, afirmou que o Estado "não tem nenhuma responsabilidade" sobre pagamento a servidores e ex-trabalhadores, uma vez que a obra era uma Parceria Público Privada (PPP) e que cabia à empresa Advance Construtora, que teria falido, arcar com os custos do empreendimento, uma vez que para isso recebeu financiamento (cerca de R$ 300 milhões corrigidos) do Banco do Nordeste.
+O secretário lembrou que o governo Paulo Câmara (PSB) nomeou, há 20 dias, uma equipe para preparar a caducidade da PPP, o que deverá ser decretada em 90 dias, e que somente após o levantamento documental da obra é que o Estado vai assumir a administração e colocar em funcionamento a penitenciária. Enquanto isso, pretende retomar os serviços que faltam para a conclusão das duas unidades do complexo que estão com 70% das obras prontas.
+O promotor das Execuções Pernais do Estado, Marcelo Ugiette, contrariou, porém, a afirmação do secretário Pedro Eurico, ressaltando que o Estado "tem sim" responsabilidade pela obra, mesmo sendo uma PPP. "Seja na cogestão, seja na terceirização, o Estado tem juridicamente responsabilidade pela obra. Estado e consórcio são um ente só na administração penitenciária. O contrato é que difere as partes. Talvez aí não tenha nada a ver com o pagamento dos fornecedores, mas juridicamente são um ente só", salientou o promotor.

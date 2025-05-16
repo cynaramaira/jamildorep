@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Em dia de visita de Lula, Vem Pra Rua monta Pixuleco no Recife"
+date: 2017-08-25
+tags: Lula,montanhas,Recife,visita
+author: None
+---
+Para protestar contra o ex-presidente Lula (PT), o movimento Vem Pra Rua inflou nesta sexta-feira (25) o Pixuleco, boneco em que o petista é representado com roupa de presidiário, no bairro do Cabanga, na Zona Sul do Recife. Lula participa de ato em Ipojuca, na Região Metropolitana, e no fim da tarde vai a uma manifestação da militância do partido no Pátio do Carmo, no Centro da capital.
+Para o grupo que se mobilizou contra a visita, o ex-presidente realiza a viagem pelo Nordeste em campanha para 2018, quando pretende se candidatar novamente ao cargo que ocupou por oito anos. Em 20 dias, Lula vai visitar 25 cidades da região tida como "reduto eleitoral" do seu partido. "É um acinte ao povo nordestino um condenado e réu em sete processos fazer campanha antecipada pelo Nordeste, achando que nordestino é otário", afirmou Maria Dulce Sampaio, porta-voz do Vem Pra Rua no Recife.
+ Foto: Felipe Ribeiro/JC Imagem
+Lula tem usado a viagem para criticar o governo Michel Temer (PMDB) e reforçar as possíveis alianças do PT para as próximas eleições. Porém, ao contrário do que se esperava, não tem feito discursos incisivos contra o juiz federal Sérgio Moro, que o condenou a nove anos e seis meses de prisão pelo 'caso triplex' e responsável pelo seu julgamento em quatro ações penais, já que as outras duas tramitam na Justiça Federal de Brasília.
+"Esperamos que a Justiça seja feita e ele vá para a cadeia pelos crimes que cometeu", disse Maria Dulce Sampaio. O local onde o Pixuleco foi inflado é o principal acesso do Centro e da Zona Norte do Recife à Zona Sul. O Vem Pra Rua ainda tem um protesto marcado para o próximo domingo (27), contra a criação do fundo eleitoral público, na Avenida Boa Viagem, local onde realizou manifestações entre 2015 e 2016 pelo impeachment de Dilma Rousseff (PT), que acompanha Lula no Recife.
+O grupo Direita Pernambuco também marcou um protesto para esta sexta-feira (25) contra Lula no Recife. A manifestação está marcada para as 16h, na Praça do Derby, na área central, onde grupos de esquerda protestaram contra o afastamento da petista da presidência.
+No primeiro dia da visita de Lula, essa quinta-feira (24), grupos a favor dele e contrários se estranharam próximo ao Cais do Sertão, museu visitado pelo ex-presidente. A Juventude do PT e um grupo contrário, que disse não fazer parte de nenhum movimento organizado, trocaram acusações de que um estaria intimidando o outro. Em meio à gritaria, policiais militares escoltaram os críticos ao petista até a Praça do Arsenal, próximo ao museu, onde a confusão se dispersou. O presidente do PT, Bruno Ribeiro, afirmou que as manifestações, tanto da esquerda quanto da direita, são democráticas.

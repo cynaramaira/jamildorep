@@ -1,0 +1,22 @@
+---
+layout: post
+title: "No Recife, Rands renuncia candidatura em favor de Humberto Costa"
+date: 2012-05-30
+tags: Candidatura,Humberto Costa,Recife
+author: None
+---
+Foto: Vin&iacute;cius Sobreira/Blog de Jamildo
+Com informa&ccedil;&otilde;es do rep&oacute;rter Vin&iacute;cius Sobreira
+O deputado federal licenciado Maur&iacute;cio Rands renunciou sua candidatura &agrave; pr&eacute;via petista marcada para domingo (3) - onde seria escolhido um nome para disputar a Prefeitura do Recife pelo PT no pleito de outubro - contra o prefeito Jo&atilde;o da Costa, que luta para tentar a reelei&ccedil;&atilde;o. Em coletiva de imprensa convocada &agrave;s pressas na tarde desta quarta-feira (30), Rands afirmou que abre m&atilde;o da elei&ccedil;&atilde;o interna em favor do senador Humberto Costa, nome defendido pela Executiva Nacional da legenda.
+Na ter&ccedil;a (29), em uma reuni&atilde;o com o parlamentar e Jo&atilde;o da Costa, o presidente nacional da sigla, Rui Falc&atilde;o, pressionou os dois a entrarem em acordo e renunciar. Ambos ficaram de conversar com aliados e dar um retorno nesta quarta (30). Enquanto Rands renuncia, um dos principais aliados de Jo&atilde;o da Costa, o secret&aacute;rio de Turismo municipal, Andr&eacute; Campos, garantiu em entrevista no in&iacute;cio desta tarde que Costa continua na disputa.
+Ao lado de um pelot&atilde;o de aliados, entre eles o tamb&eacute;m deputado federal Jo&atilde;o Paulo, os petistas Cl&aacute;udio Ferreira e Dilson Peixoto, al&eacute;m dos vereadores Luis Eust&aacute;quio, Jurandir Liberal e M&uacute;cio Magalh&atilde;es, Rands asseverou que venceria a pr&eacute;via de domingo (3) e completou: &quot;n&atilde;o fazemos campanha apegados a interesses pessoais, mas a projetos pol&iacute;ticos coletivos&quot;.
+O discurso de Rands causou como&ccedil;&atilde;o nos militantes presentes - alguns chegaram a chorar -, que explodiram em aplausos quando o petista mencionou o nome de Jo&atilde;o Paulo, bastante carism&aacute;tico no cen&aacute;rio local. Emocionado, Rands falou que,&nbsp; &quot;pensando em um esfor&ccedil;o coletivo&quot;, passa o bast&atilde;o para Humberto Costa, &quot;que est&aacute; mais bem posicionado&quot;, nas palavras dele.
+ENTENDA O CASO - O imbr&oacute;glio em torno do nome petista que disputar&aacute; a sucess&atilde;o municipal gira em torno de uma briga entre o prefeito Jo&atilde;o da Costa e o deputado federal Jo&atilde;o Paulo. Ambos eram aliados, mas romperam a rela&ccedil;&atilde;o desde o primeiro ano do mandato de Jo&atilde;o da Costa. Jo&atilde;o Paulo era padrinho pol&iacute;tico do atual gestor, ocupou cargos importantes na Prefeitura quando o parlamentar foi prefeito, entre 2000 e 2008, como a Secretaria de Planejamento. Inclusive, Jo&atilde;o Paulo&nbsp; brigou com a c&uacute;pula do PT para lan&ccedil;ar Costa como seu sucessor e conseguiu eleg&ecirc;-lo.
+Entretanto, uma rincha n&atilde;o esclarecida at&eacute; hoje afastou os dois. H&aacute; quem diga que, ap&oacute;s virar prefeito, Jo&atilde;o da Costa escanteou Jo&atilde;o Paulo. Outros afirmam que o ex-prefeito queria continuar mandando no Pal&aacute;cio do Capibaribe.
+Por causa desta disputa, a corrente majorit&aacute;ria do PT, Construindo um Novo Brasil (CNB), da qual Rands e Humberto Costa fazem parte, tenta impedir o prefeito de tentar a reelei&ccedil;&atilde;o respaldando-se na falta de carisma do prefeito e na alto &iacute;ndice de rejei&ccedil;&atilde;o &agrave; sua gest&atilde;o. Eles argumentam que a popula&ccedil;&atilde;o quer continuar com o PT, mas mudar o prefeito.
+No dia 20, foi realizada uma pr&eacute;via, da qual Jo&atilde;o da Costa saiu vencedor com 553 votos de diferen&ccedil;a, mas a Executiva Nacional anulou o pleito ap&oacute;s acusa&ccedil;&otilde;es do grupo de Rands de que houve &quot;voto pirata&quot;.
+LEIA MAIS: Manobra de Lula em favor de Humberto causa constrangimento entre petistas
+Andr&eacute; Campos diz que Jo&atilde;o da Costa n&atilde;o vai renunciar candidatura
+Jo&atilde;o Paulo afirma que hoje &eacute; o dia D. Humberto pode ser lan&ccedil;ado
+Nem Jo&atilde;o da Costa nem Rands. Humberto Costa pode ser indicado candidato pela Executiva Nacional do PT
+Paulo Frateschi &eacute; vaiado por militantes de Costa no Diret&oacute;rio Municipal

@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Estratégia para conter impeachment sofre revés"
+date: 2016-01-19
+tags: impeachment
+author: None
+---
+ Nome de Mauro Lopes, do PMDB de Minas, não une o partido. Foto: Marcelo Camargo/Agência Brasil
+Agência O Globo - Diante das dificuldades na bancada peemedebista por um amplo apoio à nomeação do deputado Mauro Lopes (MG) como ministro, o Palácio do Planalto já trabalha com um plano B para a Secretaria de Aviação Civil.
+Lopes era visto pelo governo como a solução para garantir o apoio da bancada do PMDB de Minas e viabilizar a recondução de Leonardo Picciani (RJ) à liderança do partido, o que reforçaria o time governista na batalha contra o impeachment.
+LEIA MAIS:
+&gt;&gt; Dilma ainda avalia indicação de Mauro Lopes para Secretaria de Aviação Civil
+Nesta segunda-feira, a bancada do PMDB de Minas se reuniu em Belo Horizonte para tentar um acordo em torno de um candidato à liderança do partido na Câmara e para a chancela ao nome de Lopes ao ministério. Nenhum dos dois objetivos foi alcançado. Diante do impasse, a decisão foi liberar os deputados para votarem como quiserem.
+Na reunião, o deputado Leonardo Quintão reafirmou que irá disputar a eleição. Já Newton Cardoso Junior, retirou a candidatura. Para ele, Quintão é "candidato de si mesmo".
+&gt;&gt; Eduardo Cunha costura nova candidatura a líder do PMDB
+- A bancada não tem candidato e está liberada para votar como quiser. Ninguém declarou voto. O Quintão vai ser candidato de si mesmo, sem o apoio da bancada. Eu não consegui o apoio majoritário e decidi não ser candidato - afirmou Cardoso Junior ao GLOBO.
+Enquanto isso, alguns ministros próximos à presidente Dilma Rousseff defendem, reservadamente, que a escolha para a pasta seja feita junto com o vice-presidente Michel Temer. Na semana passada, o ministro Jaques Wagner (Casa Civil), telefonou para Temer para dizer que Dilma gostaria de encontrá-lo e sugeriu que isso ocorresse nesta terça-feira. O convite, no entanto, ainda não havia sido formalizado até esta segunda-feira. Quando ocorrer o encontro, a questão do ministério deverá ser abordada.
+Esses assessores defendem a negociação com Temer para evitar uma piora na relação, que começa a se recuperar depois do abalo no fim do ano passado. No governo, há a defesa de que é preciso aproveitar o novo momento de Temer, que trocou movimentações de rompimento com o governo pelo trabalho para ser reconduzido à presidência do PMDB.
+Os motivos do enfraquecimento de Mauro Lopes para o cargo vão além da ausência de consenso na bancada mineira. A exposição do nome do deputado trouxe resultados considerados negativos pelo governo. Informações sobre a suposta relação de Lopes com o ex-diretor da Petrobras Jorge Zelada - preso na Operação Lava-Jato - assustaram o Palácio do Planalto. Segundo auxiliares da presidente, mesmo que não haja elementos mais contundentes contra o deputado, é preciso evitar trazer para o governo mais uma crise que já se vislumbra no horizonte.
+A forma como Lopes se posicionou na semana passada, dando declarações de que havia sido sondado para o ministério e que aceitaria o cargo também causou incômodo. Para interlocutores do governo, faltou "liturgia" na postura do deputado. E a presidente Dilma, ressaltam, costuma rejeitar esse tipo de comportamento.
+A previsão é que a discussão sobre o tema se estenda um pouco mais que o previsto e uma decisão fique para o início de fevereiro. As dificuldades para um consenso no PMDB têm levado alguns setores do Planalto a defender até a extinção da pasta. Como a área econômica continua no esforço para reduzir gastos, extinguir o ministério pode ser melhor do que escolher um nome que vá aprofundar a briga interna no partido.
+- O PMDB tem que se entender para evitar a extinção da SAC. É difícil manter um ministério que só vai trazer mais problema na bancada. Se isso for provocar briga, é melhor extinguir - afirmou um auxiliar palaciano.
+O governo sancionou nesta segunda-feira um decreto que estabelece limites para a execução das despesas de órgãos, fundos e entidades do Poder Executivo até que o contingenciamento definitivo do Orçamento de 2016 seja publicado, o que deve acontecer em fevereiro. Por enquanto, os gastos ficam limitados a 1/12 (R$ 11,02 bilhões) da dotação total prevista na Lei Orçamentária. O decreto é assinado pela presidente Dilma e pelo ministro do Planejamento, Valdir Simão.
+Dos R$ 11,02 bilhões autorizados a serem movimentados até 12 de fevereiro, R$ 2,56 bilhões são do Programa de Aceleração do Crescimento (PAC), R$ 753,6 milhões de emendas parlamentares impositivas e R$ 7,7 bilhões em demais despesas discricionárias. O decreto prevê ainda que o governo deverá gastar, até meados do mês que vem, R$ 124,5 bilhões em despesas obrigatórias.
+Em fevereiro, o governo deve publicar decreto com o contingenciamento definitivo para viabilizar o superávit de 0,5% do Produto Interno Bruto (PIB) em 2016.

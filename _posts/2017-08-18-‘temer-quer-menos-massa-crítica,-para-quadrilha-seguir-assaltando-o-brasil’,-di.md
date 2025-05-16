@@ -1,0 +1,13 @@
+---
+layout: post
+title: "‘Temer quer menos massa crítica, para quadrilha seguir assaltando o Brasil’, diz Humberto Costa"
+date: 2017-08-18
+tags: crítica,Felipe Massa,fenômenos astronômicos,Humberto Costa,quadrilha
+author: None
+---
+Na Bahia, onde acompanhou a abertura da caravana pelo Nordeste com o ex-presidente Lula, o líder da Oposição no Senado, Humberto Costa (PT-PE), atacou o contingenciamento de recursos que atinge as universidades federais determinado pelo presidente Michel Temer (PMDB) e seu ministro da Educação, Mendonça Filho (DEM-PE).
+“As instituições terão dificuldades para se manter e enfrentam o risco de um colapso generalizado já neste ano. Muitas das universidades já ameaçam não terminar o ano letivo por conta das dificuldades financeiras que têm enfrentado. Há um claro sucateamento das instituições. Algumas unidades de ensino afirmam não ter recursos sequer para pagar serviços essenciais, como água e luz. Temer quer acabar com a educação pública. De mãos dadas com o ministro Mãos de Tesoura, Mendonça Filho, praticam um desmonte do ensino superior jamais visto. Querem matar por inanição aquilo que é o combustível para um país melhor: o ensino”, afirmou Humberto Costa.
+“Em março, o governo de Michel Temer anunciou o contingenciamento de R$ 4,3 bilhões do Ministério da Educação. Os cortes atingiram diretamente as universidades. Entidades como a Universidade de Brasília (UnB), a Universidade Federal do Rio de Janeiro (UFRJ) e a Universidade Federal de Goiás (UFG) já informaram publicamente que estão com sérias dificuldades para manter as portas abertas”, citou.
+“A falta de investimento na educação tem um objetivo claro: quanto menos massa crítica, menos informação as pessoas tiverem, melhor para essa quadrilha que segue assaltando o Brasil. Eles querem mesmo uma massa alienada que não consiga perceber o disparate de um governo que torra bilhões para comprar o silêncio de parlamentares, mas que nega centavos para se investir em educação”, disse Humberto.
+O senador disse que o desenvolvimento de pesquisas também estariua ameaçado.
+“Cerca de 100 mil bolsistas do Conselho Nacional de Desenvolvimento Científico e Tecnológico (CNPq) podem ficar sem receber já agora em setembro. “É um desmonte em cima do outro. Tudo que conseguimos avançar na Educação nos governos de Lula e Dilma, esta gestão Temer está tirando numa velocidade avassaladora”, disse.

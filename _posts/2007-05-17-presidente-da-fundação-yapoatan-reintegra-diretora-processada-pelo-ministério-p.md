@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Presidente da Fundação Yapoatan reintegra diretora processada pelo Ministério Público  "
+date: 2007-05-17
+tags: Fundação Renova,Mesa Diretora,ministério,Presidente
+author: None
+---
+O secret&aacute;rio de Educa&ccedil;&atilde;o de Jaboat&atilde;o e presidente em exerc&iacute;cio da Funda&ccedil;&atilde;o&nbsp;Yapoatan, Eduardo Magalh&atilde;es, reintegrou a funcion&aacute;ria Maria Sizenalda de Souza&nbsp;Tim&oacute;teo no cargo de diretora de administra&ccedil;&atilde;o e finan&ccedil;as da entidade.
+Detalhe: Sizenalda &eacute; uma das seis pessoas que est&atilde;o sendo processadas pela&nbsp;promotoria de Defesa do Patrim&ocirc;nio de Jabaot&atilde;o em uma a&ccedil;&atilde;o civil p&uacute;blica por&nbsp;improbidade administrativa. Justamente por sua atua&ccedil;&atilde;o como diretora de&nbsp;administra&ccedil;&atilde;o e finan&ccedil;as da Yapoatan, no caso do acordo trabalhista suspeito de&nbsp;fraude que iria beneficiar a filha do prefeito Newton Carneiro, Solange Manoela,&nbsp;com uma indeniza&ccedil;&atilde;o no valor de R$ 960 mil. 
+A portaria 111/ 2007 renomeando Sizenalda para o cargo est&aacute; publicada na p&aacute;gina 21&nbsp;da edi&ccedil;&atilde;o 115 do Di&aacute;rio Oficial de Jaboat&atilde;o, que voc&ecirc; pode acessar aqui. A nova nomea&ccedil;&atilde;o&nbsp;vale desde primeiro de maio - Dia do trabalho, que por sinal foi feriado.
+Sizenalda estava afastada do cargo desde o dia 21 de mar&ccedil;o, por ordem do prefeito Newton Carneiro que, no mesmo dia, destituiu a ent&atilde;o presidente Julieta Pontes e a advogada da entidade, Fernanda Campos Casado Lima. O afastamento&nbsp;das tr&ecirc;s foi primeiro ato de Eduardo Magalh&atilde;es &agrave; frente da funda&ccedil;&atilde;o.
+Maria Sizenalda, Julieta e Fernanda est&atilde;o respondendo a processo na 1a Vara da&nbsp;Fazenda P&uacute;blica de Jaboat&atilde;o, onde a promotora de justi&ccedil;a do munic&iacute;pio Dalva Cabral&nbsp;entrou com a a&ccedil;&atilde;o civil p&uacute;blica que pode levar a multa, perda de cargo p&uacute;blico e de&nbsp;direitos pol&iacute;ticos.
+O prefeito Newton Carneiro, sua filha Solange e a advogada dela, Maria Ten&oacute;rio de&nbsp;Moura, est&atilde;o citados na mesma a&ccedil;&atilde;o. A deputada Elina Carneiro (PSB), filha de Newton&nbsp;e irm&atilde; de Solange, tamb&eacute;m &eacute; acusada pela promotora Dalva Cabral. Mas por ter foro&nbsp;privilegiado, s&oacute; pode ser processada diretamente no Tribunal de Justi&ccedil;a de&nbsp;Pernambuco se a Procuradoria Geral de Justi&ccedil;a do Estado acatar as den&uacute;ncias da&nbsp;promotora.
+Com a palavra, a C&acirc;mara de Vereadores de Jaboat&atilde;o, que estuda a extin&ccedil;&atilde;o da Funda&ccedil;&atilde;o Yapoatan. 

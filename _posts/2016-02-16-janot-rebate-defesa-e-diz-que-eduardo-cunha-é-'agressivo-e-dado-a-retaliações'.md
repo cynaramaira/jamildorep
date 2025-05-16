@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Janot rebate defesa e diz que Eduardo Cunha é 'agressivo e dado a retaliações'"
+date: 2016-02-16
+tags: dados,defesa,EDUARDO CUNHA
+author: None
+---
+ Rodrigo Janot. Foto: Agência Brasil.
+Estadão Conteúdo - O procurador-geral da República, Rodrigo Janot, rebateu argumentos levantados pela defesa do presidente da Câmara, Eduardo Cunha (PMDB-RJ) e reiterou a denúncia feita ao Supremo Tribunal Federal (STF) contra o parlamentar. No documento, cujo sigilo foi levantado na segunda-feira, 15, pelo ministro Teori Zavascki, o procurador afirma que Cunha "sempre se mostrou extremamente agressivo e dado a retaliações".
+A avaliação sobre a postura de Cunha é feita por Janot ao analisar pedido da defesa do peemedebista para anular depoimentos do lobista Júlio Camargo. A delação de Camargo foi homologada, inicialmente, em outubro de 2014, pelo juiz Sérgio Moro, da 13ª Vara Federal de Curitiba, responsável pela condução dos processos da Lava Jato na primeira instância. Posteriormente, em julho de 2015, o delator prestou depoimento no qual citou Cunha. Só após a menção ao parlamentar o caso foi remetido ao STF.
+"Realmente, embora censurável de um lado e passível de sanções, a colaboração de Júlio Camargo foi e está sendo efetiva, não justificando sua rescisão. A omissão do nome de Eduardo Cunha também foi justificável, à luz das circunstâncias concretas e, ainda, da especial circunstância de que Eduardo Cunha sempre se mostrou - não apenas enquanto na Presidência da Câmara - extremamente agressivo e dado a retaliações a todos aqueles que se colocam em seu caminho a contrariar seus interesses", escreveu Janot, ao argumentar que "não houve qualquer ilegalidade" na homologação feita em primeira instância.
+LEIA TAMBÉM:
+&gt; OAB recomenda ao Conselho de Ética afastamento de Eduardo Cunha da presidência da Câmara
+&gt; Eduardo Cunha é notificado pela Justiça sobre pedido de afastamento
+&gt; ‘Impeachment foi desencadeado por vingança de Cunha’, diz Cardozo
+&gt; Rodrigo Janot não vê gravidade para cassar mandato de Dilma
+O lobista Julio Camargo afirmou em depoimento que o suposto operador do PMDB no esquema de corrupção na Petrobras, Fernando Soares, conhecido como Fernando Baiano, disse estar sendo pressionado por Cunha para pagamento de propina. Segundo Camargo, o peemedebista exigia US$ 5 milhões.
+Na defesa ao Supremo, Cunha pediu a paralisação do processo até sua saída da presidência da Câmara. O argumento usado pelo parlamentar é de que, à frente da Câmara dos Deputados, está na linha sucessória presidencial e, pela Constituição, presidente da República não é responsabilizada durante o mandato por atos estranhos às suas funções.
+Criatividade
+Na manifestação ao Supremo, Janot diz que o argumento sobre a linha sucessória "alça patamares realmente criativos" e fora de "lógica". No parecer, Janot chama ainda de "confusões teóricas e sistêmicas" argumentos da defesa de Cunha e de "pueril" uma das hipóteses apontadas pelos advogados do peemedebista.
+De acordo com o procurador-geral da República, o estabelecido pela Constituição é restrito à presidente da República e não cabe uso de analogia. "De início, verifica-se que o dispositivo é bastante claro a estabelecer uma restrição vocacionada apenas e tão somente para o Presidente da República - e não para aqueles que potencialmente possam sucedê-lo. Nesse ponto, a tese proposta pela douta defesa alça patamares realmente criativos e fora de qualquer parâmetro jurídico ou de lógica admissíveis no ordenamento brasileiro", escreveu o procurador-geral da República.
+Janot escreve ainda na peça que Cunha busca "postergar" a análise do recebimento da denúncia no Supremo: "O denunciado Eduardo Cunha busca, em verdade, por vias transversas e sempre com o intuito de postergar e protelar a análise do recebimento da denúncia, conferir efeito suspensivo ao recurso, em flagrante burla a disciplina regimental."
+A Procuradoria-Geral da República rebate os pontos levantados por Cunha em defesa e também pela ex-deputada Solange Almeida (PMDB-RJ), denunciada junto ao parlamentar. Cunha é acusado de praticar os crimes de corrupção passiva e lavagem de dinheiro.
+Janot aponta ainda na peça que a denúncia contra Cunha está baseada em "inúmeros e robustos elementos que apontam, de maneira uniforme, para o recebimento de valores por parte de Eduardo Cunha". Além de depoimentos de três delatores - Alberto Youssef, Julio Camargo e Fernando Soares, conhecido como Fernando Baiano -, a PGR sustenta que juntou documentos, provas e informações de metadados da Câmara dos Deputados que sustentam a acusação.
+O ministro Teori Zavascki, relator da Lava Jato no Supremo Tribunal Federal, estima que até o final de fevereiro libere o caso para julgamento pelo plenário. Na ocasião, os 11 ministros do STF terão de decidir se aceitam a denúncia e, por consequência, tornam Cunha réu perante o Tribunal. Só após o julgamento sobre o recebimento da denúncia, os ministros devem discutir o pedido de afastamento de Cunha da presidência da Câmara feito por Janot em dezembro.

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Procurador quer extinguir novos cargos comissionados de São Lourenço da Mata"
+date: 2008-01-25
+tags: lourenço mutarelli,novos,procuradoria municipal,são
+author: None
+---
+O procurador-geral de Justi&ccedil;a em exerc&iacute;cio, Itabira de Brito Filho, entrou com uma&nbsp;a&ccedil;&atilde;o direta de inconstitucionalidade contr&nbsp;tr&ecirc;s tipos de cargos comissionados na C&acirc;mara de S&atilde;o Louren&ccedil;o da Mata. As fun&ccedil;&otilde;es de auxiliar de tesouraria, adjunto parlamentar e assistente administrativo foram implantadas por meio da Lei municipal 1976/2001, mas&nbsp;as constitui&ccedil;&otilde;es Federal e Estadual s&oacute; permitem o uso de cargos comissionados nas fun&ccedil;&otilde;es de chefia, assessoramento e dire&ccedil;&atilde;o. 
+O Minist&eacute;rio P&uacute;blico quer que a&nbsp;Corte Especial do Tribunal de Justi&ccedil;a suspenda os tr&ecirc;s incisos do artigo 3&ordm; que criam os cargos irregulares. Ao todo, existem 23 vagas nos tr&ecirc;s tipos de cargos questionados, com sal&aacute;rios mensais entre R$ 200 e&nbsp;R$ 635.
+A Lei municipal determina que o cargo de adjunto parlamentar tem como fun&ccedil;&atilde;o &ldquo;organizar a correspond&ecirc;ncia do Gabinete do Vereador e dar apoio e assessoria do mesmo&rdquo;; o auxiliar de tesouraria fica respons&aacute;vel por ajudar &ldquo;na elabora&ccedil;&atilde;o dos balancetes, pagamentos e demais documenta&ccedil;&otilde;es inerentes ao departamento cont&aacute;bil, bem como organizar a documenta&ccedil;&atilde;o visando a facilitar a pesquisa e poss&iacute;veis auditorias&rdquo;, enquanto o adjunto parlamentar deve &ldquo;assessorar a presid&ecirc;ncia na execu&ccedil;&atilde;o de servi&ccedil;os diversos de acordo com a necessidade administrativa do legislativo&quot;.&nbsp;
+Para o procurador, al&eacute;m dos preju&iacute;zos financeiros para o munic&iacute;pio,&nbsp;a cria&ccedil;&atilde;o dos cargos&nbsp;viola os princ&iacute;pios da moralidade, impessoalidade e efici&ecirc;ncia assegurados pela Constitui&ccedil;&atilde;o Federal.&nbsp; 

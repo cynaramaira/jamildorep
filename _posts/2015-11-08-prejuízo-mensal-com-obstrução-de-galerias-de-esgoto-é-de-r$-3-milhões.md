@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Prejuízo mensal com obstrução de galerias de esgoto é de R$ 3 milhões"
+date: 2015-11-08
+tags: esgoto,prejuízos
+author: None
+---
+ Foto: Divulgação / Compesa
+Do JC Online
+Sabe aquele pedaço de papel higiênico ou tufo de cabelos jogados na privada? A caixa de gordura que não é limpa há um bom tempo? São alguns dos responsáveis por um prejuízo mensal de R$ 3 milhões ao sistema que gerencia o esgoto na Região Metropolitana do Recife. Ao todo, são 11 toneladas de entulhos que travam o funcionamento da rede e resultam em transbordamentos. De acordo com a Companhia Pernambucana de Saneamento (Compesa), a maior parte dos 1,7 mil chamados mensais feitos pela população à central de atendimento do órgão é motivada por problemas causados por obstruções nas galerias. Um ciclo que se retroalimenta e que, segundo especialistas do setor, só terá fim quando a população se conscientizar do uso correto do sistema de esgoto.
+A rede de esgotamento sanitário do Grande Recife foi projetada para suportar 99% de volume líquido e apenas 1% de sólidos. Em uma residência, são conectados à rede as privadas, ralos de banheiro e pias. Não é surpresa o que pode causar o acúmulo de itens como cabelos, preservativos, absorventes, sacos plásticos e gordura nos dutos: uma média de 40 pedidos diários de socorro em todo Grande Recife, a maioria por transbordamento do esgoto. E não é raro os funcionários da companhia se depararem com aparelhos de som, sofás, pneus e até mesmo vestidos de noiva. “Grande parte da população, infelizmente, ainda precisa entender que ela mesma causa a maioria dos transtornos dos quais reclama”, afirma a gerente de negócios da Compesa, Conceição Pontes.
+LEIA TAMBÉM:
+&gt; Vereador Marco Aurélio critica Compesa e pede que Prefeitura do Recife assuma gestão de água e esgoto
+&gt; Projeto do Executivo trava abertura de novos poços artesianos na RMR e dá prioridade à Compesa
+É nas 132 estações elevatórias da companhia que se vê a face mais cruel do problema. A cada duas horas, funcionários precisam limpar as grades que impedem os detritos de seguirem até as 42 estações de tratamento de esgoto do sistema. 24 horas por dia, sete dias por semana, sob o risco de defeitos nas bombas que impulsionam o esgoto até o local onde será tratado. Ou em outras palavras, mais transtornos e mais prejuízos.
+Em locais onde é grande a concentração de restaurantes, a falta de manutenção das caixas de gordura é a maior vilã. O motivo é simples: com o tempo, a gordura se petrifica e se torna um obstáculo difícil de ser vencido. “Numa analogia primária, mas eficiente, o sistema de esgoto é como o corpo humano. Se a pessoa ingere alimentos que não são saudáveis, pode ter entupimento nas veias e artérias, por exemplo”, explica o engenheiro Wilson Bombo, que cuida das estações elevatórias da companhia. Da mesma forma, em lugares onde existem muitas oficinas mecânicas, os esgotos são “premiados” com uma grande quantidade de buchas
+A Compesa estuda a possibilidade de uma campanha para conscientizar a população sobre o uso correto do sistema de esgoto. Por enquanto, empreende ações educativas em locais onde a incidência de objetos estranhos na rede é maior.
+“Todo material sólido encontrado nas redes de esgoto causa algum impacto na operação do sistema. A consequência desse impacto é que temos que enviar equipes, munidas de infraestrutura específica (equipamentos, a exemplo de caminhões), que têm um custo operacional muito elevado”, comenta Conceição Pontes.
+Além dos custos, a gerente explica que os transtornos causados à população pelos extravasamentos têm rebatimento na mobilidade urbana, uma vez que muitos serviços com quebra de asfalto precisam ser feitos. “Certamente, os valores empregados para realização desses serviços, caso não os tivéssemos, poderiam ser direcionados para melhorias nos sistemas de esgotamento sanitário da RMR.”

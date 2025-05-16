@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Fernando Monteiro volta a defender Paulo Câmara e criação da nova estrutura na área de segurança"
+date: 2018-11-03
+tags: Armando Monteiro,Fernando Collor,INFRAESTRUTURA,Paulo Câmara,recriação,Segurança,Sinovac
+author: None
+---
+Depois de criticar diretamente o colega Daniel Coelho, do PPS, que havia criticado a extinção de um delegacia de combate à corrupção na estrutura da Polícia Civil, o deputado federal Fernando Monteiro, aliado do governador Paulo Câmara, divulgou nova nota em que defende as mudanças e cita “oportunismo em posicionamentos contrários à criação do Departamento de Repressão ao Crime Organizado em Pernambuco.” Na nota, como Paulo Câmara, ele classifica de fake news os posicionamentos dos adversários.
+Veja a nota de Fernando Monteiro, deputado federal (PP)
+“A proposta de criação do Departamento de Repressão ao Crime Organizado (Draco), apresentada pelo governador Paulo Câmara durante a propaganda eleitoral e os debates sobre segurança pública, representa um imenso avanço no enfrentamento da corrupção e demais crimes em Pernambuco.
+O Draco funcionará de forma integrada, inicialmente, em duas delegacias e em mais seis ao longo dos próximos quatro anos. A primeira delas terá atuação na Capital e Região Metropolitana, enquanto a segunda, terá foco nas demais áreas do Estado. Até 2022, serão criadas outras seis Delegacias de Combate ao Crime Organizado, ligadas ao Departamento. Duas delas na Zona da Mata (Sul e Norte), duas no Agreste (Meridional e setentrional) e outras duas no Sertão (Moxotó e Pajeú). Totalizando, em quatro anos, oito delegacias com foco no combate à corrupção e outras práticas ilegais do crime organizado.
+O novo departamento atuará conforme a Lei 12.850, criada após a Operação Lava Jato e segue o modelo já atuante pela Polícia Federal e pelos Estados de São Paulo, Rio de Janeiro, Rio Grande do Sul, Bahia e Distrito Federal. Quem aproveita a ocasião para gerar polêmica age de forma oportunista. O projeto está sendo contestado por aumentar o efetivo e estrutura do combate à corrupção, o que é um contrassenso. A pauta foi aprovada, inclusive, por integrantes da oposição. Ao final, a grande maioria votou a favor na Assembleia Legislativa do Estado, foram apenas quatro votos contrários.
+Ao atacar o Draco, alguns poucos usam o fato de fazerem oposição de forma irresponsável, atacando a honra e o profissionalismo dos policiais civis de Pernambuco, que trabalham com perseverança e rigor no cumprimento do seu dever de defender e proteger o povo pernambucano. Se baseiam em notícias falsas, as fake news”.

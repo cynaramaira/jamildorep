@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Alckmin revelou a Lula plano para derrubá-lo  no Congresso"
+date: 2023-06-05
+tags: jamildo, geraldo Alckmin
+author: Jamildo Melo
+---
+O vice-presidente Geraldo Alckmin, do PSB, deu uma grande demonstra&ccedil;&atilde;o de lealdade ao presidente Lula, neste m&ecirc;s passado. O vice foi procurado por um grupo de deputados federais com a proposta de assumir o poder, no Brasil, mediante a apresenta&ccedil;&atilde;o de um pedido de impedimento de Lula.
+"N&atilde;o aceito isto. O presidente &eacute; Lula", afirmou Alckmin, ao grupo, de acordo com o que conta ao blog de Jamildo uma fonte do PT.
+Logo depois, Alckmin foi at&eacute; o presidente Lula e relatou o epis&oacute;dio. Os nomes dos parlamentares s&atilde;o mantidos em segredo pelo partido.
+Coincidentemente ou n&atilde;o, no final do m&ecirc;s passado, o prefeito do Recife, Jo&atilde;o Campos, teve um jantar reservado com Alckmin, fora da agenda p&uacute;blica. N&atilde;o foi divulgado o que os dois pol&iacute;ticos conversaram.
+Visita ao polo da Jeep
+No dia 06 de junho de 2023, ter&ccedil;a-feira, &agrave;s 16h (hor&aacute;rio local de Bras&iacute;lia), o presidente Lula realizar&aacute; Visita ao Polo Automotivo Stellantis, localizado na Rodovia BR 101 Norte, km 13-15 S/N, R. Nova, Portaria Principal, Goiana &ndash; PE.
+Visita aos prefeitos
+Geraldo Alckmin, o ex-presidente Michel Temer, o ministro-chefe das Rela&ccedil;&otilde;es Institucionais Alexandre Padilha e a ministra de Estado das Mulheres Aparecida Gon&ccedil;alves est&atilde;o entre os nomes j&aacute; confirmados para a sexta edi&ccedil;&atilde;o do Conexidades, encontro nacional de prefeitos que ser&aacute; realizado na cidade de Jundia&iacute; (SP), a partir do dia 13 de junho, para discutir e apresentar boas pr&aacute;ticas em administra&ccedil;&atilde;o p&uacute;blica. O tema do evento &eacute; &ldquo;Educa&ccedil;&atilde;o Tecnol&oacute;gica: a ferramenta para transformar cidades&rdquo; e incluir&aacute; um programa tradicional de palestras com especialistas convidados renomados como Claudia Costin, fundadora do Centro de Pol&iacute;ticas Educacionais da Funda&ccedil;&atilde;o Get&uacute;lio Vargas (FGV). Costin participar&aacute; do primeiro painel no dia 14 de junho intitulado &ldquo;Reconstru&ccedil;&atilde;o Educacional&rdquo;.
+T&oacute;picos como financiamento da sa&uacute;de nos munic&iacute;pios, seguran&ccedil;a p&uacute;blica, empreendedorismo, conquistas e desafios a serem superados pelos cons&oacute;rcios p&uacute;blicos, a cidade e os animais, empreendedorismo e o papel dos munic&iacute;pios na agenda clim&aacute;tica do pa&iacute;s ser&atilde;o abordados nos pain&eacute;is. O programa completo pode ser encontrado no site oficial do evento.
+"O Conexidades &eacute; um dos maiores eventos voltados para a administra&ccedil;&atilde;o p&uacute;blica e Jundia&iacute; ter&aacute; a oportunidade de receber autoridades e especialistas para uma importante discuss&atilde;o sobre os temas propostos. Al&eacute;m disso, apresentaremos a cidade para importantes atores do setor privado com o objetivo de atrair mais investimentos que possam gerar emprego e renda para nossa popula&ccedil;&atilde;o&rdquo;, diz Luiz Fernando Machado (PSDB), prefeito de Jundia&iacute;.

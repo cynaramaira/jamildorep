@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Na TV Jornal, Raul Henry diz a Lavareda como Jarbas Vasconcelos vai votar na segunda denuncia contra Temer"
+date: 2017-09-22
+tags: Contran,denúncia,jarbas vasconcelos,Michel Temer,Raul Henry,segunda onda,TV Jornal
+author: None
+---
+O vice-governador do Estado e presidente do PMDB em Pernambuco, Raul Henry, é o segundo entrevistado do programa 20 minutos, com o sociólogo e cientista político Antônio Lavareda, na TV Jornal, sobre os bastidores do poder. O primeiro entrevistado foi o deputado federal Fernando Filho, do PSB.
+O programa vai ao ar na TV Jornal, aos sábados, às 19h20. Com reprodução posterior, nos sites do SJCC, como o portal Ne10 e o JC Online.
+Raul Henry ainda discorre sobre projetos para Suape e como deve ficar a relação com o presidente Temer.
+Primeiro programa
+Fernando Filho prevê debandada do PSB e alfineta Raul Henry
+Aguardando a janela partidária para migrar do PSB para o PMDB sem perder o mandato de deputado federal, o ministro de Minas e Energia, Fernando Filho, afirmou em entrevista a Antônio Lavareda, no programa 20 minutos, da TV Jornal, que não acreditar que será expulso do partido.
+“Eles não vão pelo menos motivo expulsar apenas um parlamentar e não os outros 13”, afirmou, prevendo uma debandada dos socialistas em março, no mesmo período em que ele deve deixar a legenda.
+Para o ministro, parte deve ir para o PMDB e a outra procurar outras legendas, dependendo do contexto de cada estado. O PSB tem hoje 36 deputados na Câmara.
+Fernando Filho vai fazer o mesmo movimento que o pai, o senador Fernando Bezerra Coelho, cuja chegada provocou tensão no PMDB de Pernambuco. Depois de dois meses sendo cortejado pelo Democratas, FBC escolheu os peemedebistas a convite do presidente nacional da sigla, Romero Jucá, que prometeu entregá-lo o comando do partido, tradicionalmente nas mãos do grupo do deputado federal Jarbas Vasconcelos.
+O presidente estadual do PMDB, Raul Henry, prometeu recorrer à Justiça Eleitoral caso seja confirmada a intervenção e foi alfinetado pelo ministro.
+“O vice-governador fala com muita propriedade. Olinda tinha um diretório estabelecido desde 1988 e ele dissolveu”, lembrou o caso de Izabel Urquiza, filha da ex-prefeita Jacilda Urquiza, que teve a eleição anulada em 2015, para colocar no seu lugar o deputado estadual Ricardo Costa. Os dois acabaram disputando – e perdendo – a Prefeitura de Olinda; ela pelo PSDB e ele pelo PMDB. “Ele (Raul Henry) sabe que isso não vai parar na Justiça.”
+Fernando Filho afirmou que Jarbas e Raul teriam que resolver a questão com Jucá. O presidente nacional, por sua vez, já abriu o processo de dissolução e designou como relator o deputado federal Baleia Rossi (SP).
+Para a troca de partido, o ministro alegou que o PSB criou um clima insustentável para o grupo do pai dele, primeiro no governo Paulo Câmara e depois pelo posicionamento contrário às reformas de Michel Temer (PMDB).
+“Ficou muito claro que desde a formatação do governo, Paulo Câmara procurou excluir o grupo liderado pelo senador Fernando Bezerra deste processo em Pernambuco. Isso se confirmou em vários outros processos, como as minhas eleições para liderança do partido, e a minha indicação como ministro de Estado”, disse.
+“Eduardo Campos falou uma frase antes de morrer: só porque você apoiou um grupo político determinada vez, você não é obrigado a apoiar este mesmo grupo a partir do momento que não se sente representado por ele”, afirmou ainda, retomando o que o pai declarou no Senado em discurso contra Jarbas.
+Um dos motivos de irritação do deputado é o fato de Fernando Bezerra Coelho querer levar o PMDB para a oposição em Pernambuco, enquanto hoje é o principal aliado de Paulo Câmara.
+O senador pretende cacifar o filho para disputar o governo contra o socialista. Fernando Filho afirmou que é cedo para falar na formação da chapa, que deve englobar os grupos dos ministros Bruno Araújo (Cidades), pelo PSDB, e Mendonça Filho (Educação), pelo DEM, além do senador Armando Monteiro Neto (PTB). “Enobrece qualquer um que esteja na política”, disse, porém, sobre a indicação do seu nome.

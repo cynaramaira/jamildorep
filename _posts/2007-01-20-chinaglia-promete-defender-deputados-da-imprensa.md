@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Chinaglia promete defender deputados da imprensa"
+date: 2007-01-20
+tags: deputados,imprensa
+author: None
+---
+Do Blog do Josias 
+Começam a ser despachas neste sábado as 512 cópias da carta escrita por Arlindo Chinaglia (PT-SP), para pedir votos aos colegas. Em campanha pela presidência da Câmara, o deputado incluiu no texto um parágrafo que deve agradar à maioria de seus colegas, mas soará polêmico aos ouvidos do público externo.
+Chinaglia promete defender a Câmara e seus pares dos “ataques injustos??? da m?dia. Anota o seguinte: “Devemos valorizar os meios de comunicação. Temos o esp?rito aberto para as cr?ticas. Até porque não há compromisso com o erro. Mas temos também o esp?rito da verdade: não assistiremos passivamente ataques injustos à instituição ou aos parlamentares???.
+O próprio Chinaglia reconheceu, em privado, que “esse é o trecho mais perigoso??? da carta que dirigiu aos parlamentares. Ele evitou detalhar o seu racioc?nio por escrito. Não há no texto nenhum exemplo de “ataque??? que, numa eventual gestão Chinaglia, mereceria, por “injusto???, uma reprimenda da presidência da Câmara.
+Reportagens sobre o mensalão e os sanguessugas, por exemplo, ensejariam uma reação? Confrontado com a dúvida, Chinaglia arriscou-se, em diálogo travado entre quatro paredes, a mencionar uma modalidade de “injustiça??? que, se eleito, não hesitaria em refutar.
+“A Hebe Camargo costuma fazer ataques aos parlamentares no programa dela???, afirmou o deputado. “Sei disso porque me dizem, não assisto ao programa. Ela diz que os deputados são ladrões. É injusto. Ou ela prova quem é ladrão ou ela não pode dizer uma coisa dessas. Não pode jogar todo mundo na mesma vala???.
+Hebe mantém um programa de auditório no SBT. Vai ao ar nas noites de segunda-feira. De fato, a apresentadora tem o hábito de dirigir criticas ácidas ao Congresso e aos pol?ticos, sempre sob aplausos da platéia. No final da década de 90, Hebe chegou a criar o “Troféu Peroba???. Concedia-o a “pol?ticos corruptos???. Veiculada durante várias semanas, a “homenagem??? foi cancelada a pedido da direção
+ da emissora.
+Na carta dirigida aos colegas, Chinaglia reconhece que a atual legislatura, apesar de ter aprovado projetos importantes, não deixa um legado de boas lembranças. Sem chamar as crises pelo nome, ele escreve que&nbsp;o ciclo legislativo&nbsp;que se encerra no final do mês foi marcado por episódios de “muita tensão??? e até de “sofrimento.???
+O candidato petista admite que, graças à seqüência de crises, a Câmara ficou com a imagem “bastante desgastada??? na sociedade. Algo que, segundo anota na carta, é ruim para todos os deputados, associando indistintamente os mandatos a uma imagem coletiva de descrédito.
+Chinaglia promete que, se eleito, vai trabalhar para que o Legislativo se torne mais atuante, soberano e, em conseqüência, mais respeitado. Defende a harmonia entre os poderes da República. E acena com a preservação da independência da Câmara. Uma resposta aos que afirmam que sua vitória submeteria a Câmara aos interesses do Palácio do Planalto.Chinaglia terminou de assinar as cópias da carta no meio da noite passada. Deu ordens à sua assessoria para que o texto seja despachado neste sábado (20), pelo Correio. Espera que todos os&nbsp;colegas recebam o documento até o meio da&nbsp;tarde de segunda-feira (22), quando faltarão escassos dez dias para a eleição em que os deputados escolherão entre ele, Aldo Rebelo (PCdoB-SP) e Gustavo Fruet (PSDB-PR). 

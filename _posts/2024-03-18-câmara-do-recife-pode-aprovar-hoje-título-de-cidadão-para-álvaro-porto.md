@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Câmara do Recife pode aprovar hoje título de cidadão para Álvaro Porto"
+date: 2024-03-18
+tags: jamildo, Álvaro Porto
+author: Jamildo Melo
+---
+Na reuni&atilde;o ordin&aacute;ria desta segunda-feira (18) da C&acirc;mara Municipal do Recife, est&aacute; na pauta um projeto de decreto legislativo para conceder o T&iacute;tulo de Cidad&atilde;o do Recife ao presidente da Alepe, deputado &Aacute;lvaro Porto, do PSDB. O projeto foi aprovado com 26 votos favor&aacute;veis.
+A honraria tem a autoria do aliado e vereador Victor Andr&eacute; Gomes, que integra a base de Jo&atilde;o Campos na C&acirc;mara Municipal do Recife.
+Na C&acirc;mara do Recife, Victor Andr&eacute; Gomes faz quest&atilde;o de exaltar a parceria com &Aacute;lvaro Porto, como ocorreu em agosto do ano passado. O vereador afirmou ser o &ldquo;representante&rdquo; do presidente da Alepe na Casa de Jos&eacute; Mariano.
+Na ocasi&atilde;o da reelei&ccedil;&atilde;o no comando da Casa Joaquim Nabuco, o vereador comemorou e chamou Porto de &ldquo;baluarte da pol&iacute;tica do nosso estado&rdquo;.
+Para fortalecer essa rela&ccedil;&atilde;o pol&iacute;tica, o vereador apresentou, em dezembro do ano passado, um projeto de decreto legislativo para conceder o T&iacute;tulo de Cidad&atilde;o do Recife para Porto, natural de Canhotinho, no Agreste pernambucano.
+"Piada, ne? No texto do projeto, o aliado de Porto n&atilde;o cita nenhuma liga&ccedil;&atilde;o ou trabalho do presidente da Alepe que pudesse justificar a concess&atilde;o do t&iacute;tulo. A palavra Recife s&oacute; aparece na justificativa porque o vereador afirma que Porto ampliou suas bases eleitorais na &ldquo;Regi&atilde;o Metropolitana do Recife&rdquo;, j&aacute; reagiram os advers&aacute;rios de Victor, nos bastidores.
+"No buraco frio da C&acirc;mara, comenta-se que a alian&ccedil;a de Victor Andr&eacute; Gomes com Jo&atilde;o Campos e &Aacute;lvaro Porto rendeu ao vereador cargos na Prefeitura e na Alepe, fortalecendo a sua estrutura para as elei&ccedil;&otilde;es deste ano".
+Pol&ecirc;mica do microfone aberto
+No come&ccedil;o do ano, o vereador do Recife, Victor Andr&eacute; Gomes (Uni&atilde;o Brasil) n&atilde;o teve receio de se posicionar sobre a pol&ecirc;mica envolvendo a governadora Raquel Lyra e o presidente da Assembleia Legislativa de Pernambuco, &Aacute;lvaro Porto. Sem perceber ou mesmo tendo percebido o microfone aberto, o deputado criticou o discurso da governadora na Alepe, usando um palavr&atilde;o contra a fala.
+Na &eacute;poca, em nota divulgada por sua assessoria, o vereador destacou o car&aacute;ter do presidente da Alepe e disse que suas cr&iacute;ticas s&atilde;o &ldquo;express&atilde;o do descaso do governo do estado e a insatisfa&ccedil;&atilde;o do povo pernambucano&rdquo;.
+"O posicionamento do presidente da Alepe, deputado estadual &Aacute;lvaro Porto, o qual em momento privado, expressou o descaso do governo do estado e a insatisfa&ccedil;&atilde;o do povo pernambucano, est&aacute; servindo de alimento aos oportunistas de plant&atilde;o", afirmou o jovem vereador.
+"A &iacute;ndole do presidente da Alepe &eacute; mat&eacute;ria que n&atilde;o cabe qualquer tipo de contesta&ccedil;&atilde;o. A democracia &eacute; para todos, mas nem todos sabem lidar com a democracia. Da mesma forma que podemos elogiar, tamb&eacute;m temos o direito de criticar", acrescentou.
+"No impulso de defender o aliado, o vereador esqueceu at&eacute; a retrata&ccedil;&atilde;o de &Aacute;lvaro Porto pelo uso do termo &ldquo;merda&rdquo; contra a gestora", disseram colegas, em reserva.
+"Nas redes sociais, Victor Andr&eacute; Gomes reduziu o epis&oacute;dio ao descontentamento do presidente da Alepe em rela&ccedil;&atilde;o &agrave; gest&atilde;o da governadora e acusou os cr&iacute;ticos da atitude do seu aliado de oportunismo".
+No plano pol&iacute;tico, a defesa da &iacute;ndole do presidente da Alepe foi interpretada como um refor&ccedil;o cr&iacute;tico ao governo do estado. At&eacute; pouco tempo ele era aliado antes de migrar para a base do prefeito Jo&atilde;o Campos (PSB) e abandonar no processo a vice-governadora Priscila Krause (Cidadania), de quem era aliado de primeira hora.
+Em v&iacute;deo publicado nessa quinta (1&ordm;), Priscila Krause classificou as falas de &Aacute;lvaro Porto como &ldquo;viol&ecirc;ncia pol&iacute;tica de g&ecirc;nero&rdquo; contra a primeira mulher eleita governadora de Pernambuco.

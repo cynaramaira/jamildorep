@@ -1,0 +1,16 @@
+---
+layout: post
+title: "EXCLUSIVO: João Campos quer 'privatizar' recolhimento do lixo no Recife. Saiba os detalhes"
+date: 2023-10-02
+tags: jamildo, PPP, lixo, João Campos
+author: Jamildo Melo
+---
+Sem alarde, a Prefeitura do Recife est&aacute; estruturando uma ousada mudan&ccedil;a no recolhimento do lixo do Recife. Atualmente, o recolhimento dos res&iacute;duos s&oacute;lidos &eacute; feito por empresas contratadas pela Prefeitura. A gest&atilde;o de Jo&atilde;o Campos (PSB), contudo, quer inovar e passar o recolhimento e tratamento do lixo para uma parceiria p&uacute;blico-privada (PPP).
+A Prefeitura fez a "inclus&atilde;o do projeto de concess&atilde;o/parceria p&uacute;blico-privada destinada &agrave; Limpeza Urbana e Gest&atilde;o de Res&iacute;duos S&oacute;lidos Urbanos no Programa Municipal de Parcerias P&uacute;blico-Privadas &ndash; PMPPP".
+A decis&atilde;o foi do Conselho Gestor de Parcerias Estrat&eacute;gicas - CGPAR em sua 8&ordf; Reuni&atilde;o, realizada em 16 de agosto de 2023, sem nenhum alarde.
+Para a estrutura&ccedil;&atilde;o do projeto, ser&atilde;o elaborados "documentos, os quais, pela sua complexidade e multidisciplinaridade, exigem a an&aacute;lise por diversas pastas, conforme suas compet&ecirc;ncias t&eacute;cnicas".
+Foi institu&iacute;do um "Grupo de Trabalho Executivo (GTE) com a finalidade de apoio nos estudos e estrutura&ccedil;&atilde;o do projeto de concess&atilde;o/parceria p&uacute;blico-privada destinada &agrave; Limpeza Urbana e Gest&atilde;o de Res&iacute;duos S&oacute;lidos Urbanos no Munic&iacute;pio do Recife".
+O grupo envolve a Secretaria de Planejamento, Gest&atilde;o e Transforma&ccedil;&atilde;o Digital e a Autarquia de Manuten&ccedil;&atilde;o e Limpeza Urbana do Recife.
+O grupo de trabalho ir&aacute; atuar at&eacute; a assinatura do contrato de concess&atilde;o/parceria p&uacute;blico-privada.
+De acordo com os setores t&eacute;cnicos do governo, diferentemente do modelo convencional de financiamento de servi&ccedil;os p&uacute;blicos, onde as tarifas cobradas dos usu&aacute;rios desempenham um papel central, as PPPs introduzem uma din&acirc;mica &uacute;nica. Sob essa abordagem, a empresa privada assume a responsabilidade de investir, financiar e operar o servi&ccedil;o, enquanto o governo &eacute; o principal pagador. Isso pode ocorrer de duas maneiras principais: por meio de uma concess&atilde;o administrativa, na qual o governo &eacute; o &uacute;nico respons&aacute;vel pelo pagamento &agrave; empresa, ou por meio de uma concess&atilde;o patrocinada, em que os recursos p&uacute;blicos e as tarifas dos usu&aacute;rios s&atilde;o combinados para remunerar a empresa parceira.
+Uma caracter&iacute;stica essencial das PPPs &eacute; que o contrato deve ter um valor m&iacute;nimo de R$ 20 milh&otilde;es para ser considerado v&aacute;lido. Al&eacute;m disso, a dura&ccedil;&atilde;o desses contratos varia consideravelmente, abrangendo um per&iacute;odo de 5 a 35 anos, dependendo da natureza e complexidade do projeto. Essa flexibilidade permite a adapta&ccedil;&atilde;o das PPPs a uma ampla gama de necessidades e contextos.

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Filho de ministro é barrado ao tentar entrar no TSE sem paletó e gravata"
+date: 2017-06-09
+tags: filho,Gravatá,Ministro
+author: None
+---
+Estadão Conteúdo - Durante julgamento da ação da chapa Dilma-Rousseff no Tribunal Superior Eleitoral (TSE), um filho do ministro Napoleão Nunes Maia - um dos sete julgadores do TSE - passou correndo pelo detector de metais e foi barrado pelos seguranças na porta do plenário. Com roupa esportiva, ele demonstrava nervosismo e segurava um envelope amarelo diante de uma barreira de agentes que se formou para detê-lo. A assessoria de imprensa do TSE confirmou o parentesco do homem com o ministro.
+Um segurança tentou acalmar o filho de Napoleão. O homem insistia para entrar no plenário. O segurança, então, ameaçou dar voz de prisão. "Então dê", desafiou o filho do ministro, que em seguida começou a mexer no celular. Outros seguranças foram chamados.
+Após a chegada de cinegrafistas e fotógrafos, ele foi levado pelos seguranças até uma das saídas de emergência do subsolo da Corte Eleitoral. Antes da saída do filho, o ministro Napoleão Nunes Maia deixou o julgamento e chegou até a porta do plenário. Não foi possível ouvir se os dois conversaram algo. O envelope não foi repassado ao ministro.
+Ao longo da sessão desta manhã, Napoleão demonstrou um semblante fechado. Em certo momento, os ministros Gilmar Mendes e Luiz Fux foram até a sua cadeira para conversar e bater em seu ombro. Na edição desta sexta-feira, o jornal Valor Econômico publicou que Napoleão teria sido citado em conversas de executivos da empreiteira OAS em acordos prévios de delação.
+Na colaboração premiada da JBS, um delator levantou suspeita sobre o ministro. O executivo da JBS Francisco de Assis e Silva, conforme publicado pelo jornal O Estado de S. Paulo, disse em sua delação que Napoleão teria intercedido em favor da JBS em ação contra Joesley Batista e contra a Eldorado Celulose, empresa da holding J&amp;F. O caso foi mencionado no âmbito da Operação Greenfield. O ministro afirma que não conhece os envolvidos e que não interferiu em assuntos relacionados à Eldorado.
+Durante o julgamento da chapa Dilma Rousseff-Michel Temer, o ministro é um dos que defendem a exclusão de todas as delações feitas recentemente na análise das contas da campanha presidencial. Desde a confusão de tentativa de entrada do filho no plenário, Napoleão não voltou ao julgamento.
+A assessoria de imprensa do TSE informou que o filho do ministro foi barrado na porta do plenário por não estar vestido de paletó e gravata, uma exigência dos tribunais. Ele foi acompanhado pela segurança e por assessores do ministro até a entrada privativa para encontrar com o pai, ressaltou a assessoria.

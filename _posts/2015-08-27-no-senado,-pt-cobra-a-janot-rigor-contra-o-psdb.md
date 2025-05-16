@@ -1,0 +1,23 @@
+---
+layout: post
+title: "No Senado, PT cobra a Janot rigor contra o PSDB"
+date: 2015-08-27
+tags: cobra,Contran,Nossa Senhora do Carmo,PSDB
+author: None
+---
+Aprovada com 59 votos favoráveis, 12 contrários e uma abstenção, a recondução de Rodrigo Janot ao cargo de procurador-geral da República ganhou o apoio fechado da bancada do PT no Senado.
+Durante a sabatina de mais de 10 horas na Comissão de Constituição e Justiça, os parlamentares petistas cobraram do procurador-geral que as investigações do Ministério Público Federal (MPF) alcancem todos os partidos políticos indistintamente, sem blindagem a qualquer legenda, especialmente o PSDB.
+Com base em documentos e nas delações premiadas conhecidas, os senadores questionaram Janot sobre a apuração de denúncias de corrupção cuja apuração está parada. Um dos casos levantados é o de recebimento de propinas por parte do presidente nacional do PSDB, senador Aécio Neves, derrotado na eleição presidencial do ano passado.
+Segundo o doleiro Alberto Yousseff, epicentro da operação Lava-Jato, seu compadre e amigo já falecido, deputado federal José Janene, havia lhe confidenciado que Aécio se beneficiava de dinheiro de natureza criminosa vindo de Furnas. Yousseff confirmou a afirmação em depoimento à CPI da Petrobras da Câmara dos Deputados, na última terça-feira (25).
+No começo da sabatina, afirmando ser imparcial no trabalho de investigação, Rodrigo Janot buscou um dito popular mineiro para mostrar que não protegia ninguém. "Pau que dá em Chico, dá em Francisco".
+O 1º vice-presidente do Senado, Jorge Viana (AC), contraditou com ironia. "Pau tem dado em Chico, mas poupado Francisco, procurador", disse, criticando, também, os vazamentos seletivos das delações premiadas, que deveriam correr em segredo de Justiça.
+Fátima Bezerra (RN) solicitou ao procurador-geral que aprofunde, também, as investigações sobre a denúncia do ex-diretor da Petrobras, Paulo Roberto Costa, e de Alberto Yousseff - feita em delação premiada - de que teriam pago R$ 10 milhões ao então presidente nacional do PSDB, Sérgio Guerra (PE), falecido em 2014 e antecessor de Aécio Neves, para que a CPI da Petrobras, montada em 2009 no Senado, fosse enterrada.
+“Essa vultosa soma foi destinada a parlamentares com o intuito de esvaziar a CPI. Para onde foi todo esse dinheiro, destinado a vários parlamentares, sob a coordenação do presidente nacional do PSDB à época? Pergunto ao procurador: as investigações morreram com o acusado?", questionou.
+Os senadores do PT disseram estranhar, ainda, o fato de Aécio ser citado por um dos principais colaboradores da Operação Lava Jato e, mesmo assim, não estar entre os investigados no Supremo Tribunal Federal (STF).
+O PSDB - que ingressou no Tribunal Superior Eleitoral (TSE) com ação em que afirma ser propina a doação de R$ 7,5 milhões feita pela UTC à campanha da Presidenta Dilma - recebeu R$ 8,5 milhões da construtora e também não está sendo investigado pelo fato.
+“É possível uma empresa ter uma conta suja para financiar determinado candidato e, ao mesmo tempo, uma conta limpa, da mesma empresa, para financiar outro candidato? É possível fazer essa investigação e essa separação?”, disparou o líder do Governo no Congresso Nacional, José Pimentel (CE).
+O líder do PT no Senado, Humberto Costa, orientou a bancada a votar favoravelmente pela recondução de Janot e repisou a reprovação dos parlamentares ao vazamento seletivo de delações “que prejudicou uma série de candidatos nas eleições de 2014”, sem que muitos deles sequer fossem alvos de investigação. Costa é um dos investigados por Janot.
+"Houve pessoas que disputaram a eleição e perderam por uma pequena margem. Provavelmente, esse episódio influenciou na decisão do eleitorado”, disse.
+“Outros candidatos, no entanto, tiveram seus nomes convenientemente preservados. Não foram prejudicados na eleição por delações criminosamente vazadas”, analisou, sem dizer quem.
+Janot afirmou aos parlamentares que uma série de investigações segue em curso no âmbito do Ministério Público Federal. Apenas esta semana, 30 novas petições sigilosas foram depositadas no STF pelo procurador-geral pedindo a abertura de mais inquéritos.
+Cabeça da lista tríplice na eleição do MPF, Rodrigo Janot foi indicado ao Senado pela presidenta Dilma Rousseff, cumprindo uma tradição dos governos petistas de encaminhar o nome do candidato mais votado. Ao ser reconduzido ao cargo pelos senadores, Janot exercerá seu novo mandato até setembro de 2017.

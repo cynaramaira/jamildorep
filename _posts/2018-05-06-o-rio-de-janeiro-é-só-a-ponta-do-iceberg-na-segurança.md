@@ -1,0 +1,18 @@
+---
+layout: post
+title: "O Rio de Janeiro é só a ponta do Iceberg na segurança"
+date: 2018-05-06
+tags: iceberg,Janeiro,Segurança
+author: None
+---
+Por Marco Antônio Barbosa, em artigo enviado ao blog
+Assim como já era anunciado há décadas por especialistas e abafada por políticos, a crise na segurança pública transbordou para todo o estado do Rio de Janeiro. Mas esse ‘vazamento’ não começou ontem e não será resolvido amanhã, como os marqueteiros mais uma vez tentam parecer possível. O problema é cada dia mais grave e é preciso lembrar: o retrato que os brasileiros de outras regiões assistem atônitos se desenha na mesma forma em todo o país.
+O exército pode servir como paliativo, mas não irá solucionar a questão carioca ou brasileira. O problema vem na base. Gestão bem feita dos investimentos e o primordial: educação de qualidade para todos.
+Segundo o último Anuário Brasileiro de Segurança Pública, foram gastos R$ 81 bilhões em segurança pública. Dados do planalto mostram que somente pelo governo federal o valor investido quintuplicou nos últimos dois anos. Apesar disso, problemas como falta de viaturas, policiais mal treinados e sem remuneração adequada, além de sistemas sucateados de integração entre as polícias, continuam por aí. Para onde então está indo esta verba? Não se sabe.
+Na educação, o mesmo problema. O alto valor em relação ao PIB – 4,9% segundo o último estudo da Organização para a Cooperação e Desenvolvimento Econômico (OCDE) - é investido de forma desigual, sendo que os ensinos fundamental e médio, base da educação, recebem um valor três vezes menor do que o universitário. Esse dado coloca o Brasil entre os piores no desempenho do Pisa, um dos principais exames indicadores de qualidade de ensino do mundo, aplicado pela OCDE.
+A fórmula do fracasso está pronta se unirmos estes desastrosos cases. Sem educação de qualidade a população não possui alternativa de crescimento financeiro e o crime organizado se torna a única opção. Esse - sem ser combatido por políticas públicas eficazes – evolui vertiginosamente. O resultado final é a crise no Rio de Janeiro.
+Mas até chegar a esta falência total do estado, o caminho é longo e seus sintomas são evidentes. A greve das polícias no Rio Grande do Norte é um exemplo, assim como o aumento da criminalidade no Rio Grande do Sul e as diversas rebeliões do começo do ano passado em Manaus. É como se fossem rachaduras de um edifício antes da queda. Quando são tapadas de forma superficial, não solucionam nada. Pelo contrário, só escondem o problema até o desmoronamento.
+Chegamos então aos fatos. Primeiro: não existe segredo ou milagre que resolva a questão da segurança no país de uma noite para outra. Segundo: o problema não será só no Rio de Janeiro se nada for feito.
+Se políticas de longo prazo não forem executadas, qualquer intervenção federal será apenas para abafar a opinião pública e empurrar a sujeira para debaixo do tapete. Somente uma ação integrada entre governos federal, estadual e municipal poderá realmente surtir efeito.
+E como a população pode ajudar? Está é a parte mais fácil e a primeira do quebra-cabeça. É preciso digitar de forma consciente os números na urna eletrônica.
+Marco Antônio Barbosa é especialista em segurança e diretor da CAME do Brasil. Possui mestrado em administração de empresas, MBA em finanças e diversas pós-graduações nas áreas de marketing e negócios.

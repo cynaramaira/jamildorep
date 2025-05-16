@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Artistas se reúnem para cobrar aumento de cachês e prazos de pagamentos"
+date: 2017-11-24
+tags: aumento,Pagamentos,prazos
+author: None
+---
+A pouco mais de dois meses do Carnaval, quando devem se apresentar em shows pagos pelo poder público, artistas se reuniram para formar o Coletivo Pernambuco, grupo que reivindica melhores cachês, cumprimento dos prazos de pagamento e mudanças nos contratos. São nomes como André Rio e Karynna Spinelli, que já fizeram denúncias contra o Governo do Estado.
+O grupo cobra melhorias na política cultural do Estado. "Houve significativos avanços na política da gestão do poder público com a classe", minimiza em documento já divulgado. "Mas ainda há muito a se fazer e progredir, para que, de fato, haja uma solidificação e maior valorização da nossa real e plural música pernambucana e dos seus verdadeiros representantes."
+A pauta inicial de reivindicações tem cinco pontos. Eles pedem a definição de critérios para a atualização dos cachês, alegando que os valores estão defasados.
+Há a cobrança também da revisão da política de prazos de pagamento dos cachês. "Hoje, os constantes atrasos no pagamento desses cachês estão não só impedindo os artistas de honrar com seus compromissos financeiros do dia a dia, como também inviabilizando os necessários e indispensáveis investimentos nas suas carreiras artísticas. Como salienta o grupo, esses atrasos, em muitos casos, estendem-se até por meses", denuncia o grupo.
+Em junho deste ano, Karynna Spinelli denunciou não ter recebido os valores referentes aos shows que fez no Carnaval, quatro meses antes. Não foi a primeira vez. Em novembro do ano passado, por exemplo, Irah Caldeira e outros músicos cobraram o pagamento dos shows feitos no São João, cinco meses antes. Maciel Melo saiu em defesa da colega e, em nota ao governador Paulo Câmara (PSB), chegou a solicitar uma mudança na política cultural do Estado.
+Os artistas reivindicam ainda mudanças na formatação das cláusulas contratuais. "No modelo atual, só existem penalidades por descumprimento do termo de contrato para uma das partes, ou seja, para o contratado, o artista. De acordo com o grupo, fica desproporcional esta condição, visto que inexiste qualquer penalidade para o contratante, o órgão gestor do contrato, quer seja ele da esfera estadual ou municipal."
+Outro ponto é que o coletivo pede maior inserção dos artistas pernambucanos nas grades oficiais de todos os eventos realizados nos ciclos festivos, por todo o ano.
+Além de André Rio e Karyna Spinelli, integram o coletivo Almir Rouche, Dudu Alves (Quinteto Violado), Ed Carlos, Gerlane Lops, Gustavo Travassos, Luciano Magno, Maestro Forró, Maestro Spok, Marrom Brasileiro, Nena Queiroga, Nonô Germano, Rominho (Som da Terra), Sérgio Andrade (Banda de Pau e Corda) e Valéria Moraes (Coral Edgard Moraes).

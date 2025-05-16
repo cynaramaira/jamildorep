@@ -1,0 +1,38 @@
+---
+layout: post
+title: "O Recife de amanhã  (na visão de Mendonça Filho)"
+date: 2008-02-21
+tags: Mendonça Filho,previsão,Recife
+author: None
+---
+&nbsp;
+Por Mendon&ccedil;a Filho* 
+Em primeiro lugar, parabenizo a iniciativa do Blog de Jamildo de abrir esse espa&ccedil;o de forma democr&aacute;tica, respons&aacute;vel e comprometida para que a nossa cidade seja discutida num f&oacute;rum de debates moderno, no qual a tecnologia &eacute; colocada a servi&ccedil;o das pessoas. 
+Acolher artigos com diferentes pontos de vista sobre o Recife, neste ano de crucial import&acirc;ncia para a cidade, &eacute; mais uma contribui&ccedil;&atilde;o de grande relevo para o debate saud&aacute;vel e um exemplo que a Imprensa pernambucana d&aacute; para a m&iacute;dia brasileira. 
+&Eacute; um espa&ccedil;o para discutirmos o futuro do Recife. 
+Como a nossa cidade est&aacute; hoje e como estar&aacute; amanh&atilde;, independente das diferen&ccedil;as pol&iacute;ticas dos debatedores. 
+Os grandes centros urbanos do s&eacute;culo 21 est&atilde;o em forma&ccedil;&atilde;o. Seu tamanho atual &eacute; apenas um indicativo do destino que a encruzilhada da metropoliza&ccedil;&atilde;o reserva para os aglomerados humanos em todo o planeta. 
+As metr&oacute;poles e sua hist&oacute;ria se deparam com v&aacute;rias escolhas a fazer para que mantenham ou alcancem a sua relev&acirc;ncia &ndash; ou percorram o novo s&eacute;culo em decad&ecirc;ncia. E, nesse contexto, Recife tem tudo para ocupar um lugar de destaque no cen&aacute;rio regional e nacional. 
+Tem tudo para ser uma cidade melhor: tem cultura, tem hist&oacute;ria, tem tecnologia, tem beleza e, acima de tudo tem um povo trabalhador que deseja ter qualidade de vida. Mas para discutir o Recife do futuro &eacute; preciso n&atilde;o ignorar o passado. 
+O Recife de ontem, menos populoso, era mais habit&aacute;vel, &quot;andava&quot; com rapidez e conforto. Ainda tomando as ruas da cidade como refer&ecirc;ncia, era poss&iacute;vel caminhar sem medo. Casas de muro baixo, com jardins expostos, e pra&ccedil;as desprovidas de grades contribu&iacute;am para um n&iacute;vel de conviv&ecirc;ncia sadio. Fam&iacute;lias se encontravam nas cal&ccedil;adas enquanto as crian&ccedil;as brincavam no espa&ccedil;o p&uacute;blico. 
+Hoje, tendo de conviver com a explos&atilde;o populacional comum aos grandes centros urbanos, Recife est&aacute; mal cuidada e n&atilde;o oferece a qualidade de vida desejada para a maioria dos seus moradores. 
+A malha vi&aacute;ria n&atilde;o d&aacute; conta da demanda por transporte, o que torna a movimenta&ccedil;&atilde;o dentro da cidade uma a&ccedil;&atilde;o lenta e estressante. 
+As cal&ccedil;adas e beiras de ruas n&atilde;o permitem a mobilidade do cidad&atilde;o. 
+A precariedade na presta&ccedil;&atilde;o dos servi&ccedil;os de sa&uacute;de e educa&ccedil;&atilde;o coloca o Recife em situa&ccedil;&atilde;o desfavor&aacute;vel quando comparada as outras capitais do Pa&iacute;s. 
+Mas &eacute; a inseguran&ccedil;a o centro das preocupa&ccedil;&otilde;es dos cidad&atilde;os recifenses. A qualquer hora do dia ou da noite, sair de casa &eacute; uma aventura, voltar para casa uma temeridade &ndash; e at&eacute; ficar em casa &eacute; um risco que assusta a popula&ccedil;&atilde;o. 
+O poder local, atrav&eacute;s da Prefeitura, tem de encarar de frente o seu papel no combate a viol&ecirc;ncia, que est&aacute; diretamente associado ao conceito de melhoria das condi&ccedil;&otilde;es de vida digna do povo e ao conv&iacute;vio social saud&aacute;vel. 
+O munic&iacute;pio n&atilde;o tem o poder de pol&iacute;cia na redu&ccedil;&atilde;o da criminalidade, mas tem como sua atribui&ccedil;&atilde;o interven&ccedil;&otilde;es urban&iacute;sticas, como a recupera&ccedil;&atilde;o de espa&ccedil;os degradados, melhoria da mobilidade, pavimenta&ccedil;&atilde;o de ruas e cal&ccedil;adas, ordena&ccedil;&atilde;o do com&eacute;rcio ambulante, investimento em equipamentos p&uacute;blicos de qualidade &ndash; escolas, postos de sa&uacute;de e &aacute;reas de lazer. 
+A prioridade &eacute; urbanizar as comunidades pobres, orientando os investimentos p&uacute;blicos para equilibar a cidade, eliminando os bols&otilde;es de mis&eacute;ria e abandono. Numa vis&atilde;o ampla de combate &agrave; criminalidade, a juventude deve ser um dos focos das pol&iacute;ticas p&uacute;blicas. 
+Infelizmente, a nossa juventude no Recife carece de oportunidades como educa&ccedil;&atilde;o de qualidade, &aacute;reas de lazer, profissionaliza&ccedil;&atilde;o que propiciem os jovens perspectiva de futuro longe dos apelos do crime e da marginalidade. 
+O poder local pode ser o agente catalizador dessas transforma&ccedil;&otilde;es desempenhando o seu papel e fazendo parcerias com outros poderes e, principalmente, com o Governo Estadual e o Governo Federal nessa verdadeira &quot;guerra&quot; pela redu&ccedil;&atilde;o da criminalidade.
+O Recife que queremos para sempre n&atilde;o &eacute; o que vemos e vivemos hoje. 
+T&atilde;o pouco vem a ser a cidade de tempos idos, claro, n&atilde;o podemos nem desejamos voltar no tempo. A cidade cresceu, por&eacute;m, n&atilde;o conseguiu amadurecer em sua ocupa&ccedil;&atilde;o e organiza&ccedil;&atilde;o urbana. 
+Pior, o que ocorreu nos &uacute;ltimos anos foi uma degenera&ccedil;&atilde;o do tecido e das rela&ccedil;&otilde;es urbanas no Recife. E esta &eacute; uma responsabilidade do poder p&uacute;blico, especificamente da atual gest&atilde;o municipal. Os contrastes, dificuldades e problemas do Recife em nada diminuem o fasc&iacute;nio da nossa cidade como o lugar para viver, conviver, trabalhar e exercer plenamente a cidadania. Unidas sob a boa gest&atilde;o, as possibilidades, uma vez postas em pr&aacute;tica, ser&atilde;o capazes de melhorar a qualidade de vida dos seus habitantes. 
+O Recife de amanh&atilde; necessita, portanto, de uma nova gest&atilde;o, que enfrente os problemas estruturais com seriedade e n&atilde;o se enrede em inger&ecirc;ncias de amb&iacute;gua finalidade. 
+A nova gest&atilde;o dever&aacute; ser de um lado, a gest&atilde;o do cotidiano, ajudando o cidad&atilde;o a carregar o fardo nosso de cada dia; de outro lado, a gest&atilde;o do futuro, vision&aacute;ria, ajudando o cidad&atilde;o a manter a esperan&ccedil;a de que outra cidade &eacute; poss&iacute;vel. Uma gest&atilde;o mais pr&oacute;xima dos problemas e das solu&ccedil;&otilde;es. Mais pr&oacute;xima das pessoas de fato, e n&atilde;o da propaganda pra fora. Por que a proximidade? 
+A proximidade enxerga a grandeza das coisas simples e pequenas: a cidade limpa, a rua iluminada, a pra&ccedil;a viva e compartilhada por todos, as pontes decentemente incorporadas &agrave; paisagem &uacute;nica da cidade e as pontes sociais solidamente constru&iacute;das de modo a promover a inclus&atilde;o social, aproximar a cidade partida entre os poucos que s&atilde;o ricos e os muitos que s&atilde;o pobres. 
+&Eacute; preciso cuidar de verdade das pessoas. 
+Temos o potencial criativo, enquanto coletividade, para conduzir a nossa cidade para um novo tempo de justi&ccedil;a social, prosperidade e qualidade de vida daqui por diante. A cidade desejada desenha o futuro a partir da defini&ccedil;&atilde;o de rumos, mistura de sonho e utopia concreta, que se realizam por meio de projetos corretamente elaborados e a&ccedil;&otilde;es consistentemente realizadas. 
+O Recife de amanh&atilde; ter&aacute; a fei&ccedil;&atilde;o que escolhermos hoje. 
+*Presidente estadual do Democratas, escreve &agrave;s quintas para o Blog dentro da s&eacute;rie com os prefeitur&aacute;veis &quot;Recife 2008&quot;.&nbsp;&nbsp;
+PS: os grifos s&atilde;o do Blog, no sentido de real&ccedil;ar as cutucadas na situa&ccedil;&atilde;o. 

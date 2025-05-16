@@ -1,0 +1,13 @@
+---
+layout: post
+title: "SIM! SIM! SIM! SIM! SIM!"
+date: 2016-04-20
+tags: 
+author: None
+---
+Por Roberto Numeriano, em artigo enviado ao blog
+Não acompanhei o linchamento da presidente Dilma pelos justiceiros hipócritas, domingo passado, em cadeia nacional de rádio, TV e mídias sociais. Não tenho mais estômago para essas coisas. Mas depois chegaram a mim alguns votos exemplares da podridão imoral que, faz tempo, tomou conta da política. Dois deles, em especial, pelo grau de nojo e hipocrisia que exibem, são bem a medida da decadência absoluta da maioria esmagadora dos homens públicos do país.
+O primeiro deles foi o de uma deputada mineira que votou pelo impeachment, depois de desfiar seu rosário de parentes, com uma sucessão de "sins" tão fervorosos que pareciam esses falsos orgasmos. Deve ter confundido voto cívico com voto físico-orgástico, e não seria surpresa se ao final ela me saísse com o antigo e suspeito "Ahnnnnn" dessas empreitadas de alcova. No dia seguinte, a maior referência do seu voto-gozo, o maridão, já estava preso pela Polícia Federal, envolvido por corrupção em Montes Claros, cidade do norte de Minas.
+O outro foi o voto desse odioso deputado Bolsonaro, fazendo homenagem a um torturador tipo nazista Mengele, o execrável coronel Brilhante Ustra, cujo ambiente onde andou deveria ser salgado e cercado como altamente radioativo pelo que o tipo tinha de maléfico. Bolsonaro é um perigoso fascista de carteirinha. Tem sangue nos olhos. Agrada aos brasileiros que gostariam de ver uma nova ditadura sangrando a oposição nos velhos porões da vergonha. Se estivéssemos num país cuja política fosse algo sério, esse patife político estaria cassado e atrás das grades. De quebra, e não por acaso, elogiou a ditadura civil-militar de 1964.
+Mas estamos no Brasil, onde um golpe de Estado parlamentar se processa com apoio do jornalismo venal, e daqui a pouco estará no ar mais uma edição BBB para o exercício de nossas taras sexuais. Aliás, quanta gente tosca e ridícula faz campanha pelo golpe. A mais risível é uma advogada, de nome Janaína, cujo discurso que vi recentemente se afigura uma manifestação de bruxa num sabá diabólico, como os antigos filmes B de horror.
+Candidato pelo PCB, a prefeito do Recife e governador, e a deputado federal pelo PSOL,  Roberto Numeriano apresenta-se como jornalista e professor, doutor em Ciência Política pela UFPE, pós-doutor em Ciência Política pelo Instituto Português de Relações Internacionais (IPRI) e autor do livro O que é Golpe de Estado (em coautoria com Mário Ferreira, pela Editora Brasiliense).

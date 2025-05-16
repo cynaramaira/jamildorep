@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Brasil piora sua posição no ranking da corrupção da Transparência Internacional"
+date: 2016-01-27
+tags: brasil,corrupção,Internacional,Oposição,ranking
+author: None
+---
+ Foto: Antônio Cruz/Agência Brasil
+Estadão Conteúdo - O Brasil registrou a maior piora no ranking internacional da corrupção, compilado todos os anos pela Transparência Internacional. No informe publicado nesta terça-feira, 26, em Berlim, a ONG coloca o País em 76.º lugar em uma lista de 168 países - queda de sete posições em comparação ao ano passado. Na escala que vai de zero (considerado o mais corrupto) a 100 (considerado o menos corrupto), o Brasil aparece com 38 pontos.
+Para a entidade, enquanto não houver uma reforma no País, as punições adotadas contra ex-diretores da Petrobras - em referência à investigação da Operação Lava Jato - não serão suficientes para acabar com a corrupção no País e que "novas máfias" podem "se apoderar uma vez mais das estatais".
+A classificação avalia a percepção internacional da corrupção a partir de sondagens colhidas por diferentes entidades. A Dinamarca é, segundo o ranking, o país menos corrupto do mundo; Coreia do Norte e Somália são os piores casos.
+O Brasil, segundo a pesquisa, está empatado com Burkina Fasso e Zâmbia, abaixo de El Salvador e Bulgária e África do Sul. Com os 38 pontos de 100 possíveis, o País ficou abaixo da média de pontuação do mundo ou das Américas e perdeu cinco pontos em um ano.
+Na avaliação do diretor da Transparência Internacional para a América Latina, Alejandro Salas, a Operação Lava Jato, com as prisões de executivos e políticos, tem sido "ofuscada" pela falta de reformas reais no País. "A corrupção sempre existiu no Brasil. Ela não é algo de cinco ou 20 anos", disse Salas à reportagem. "Mas a questão é como o País é hoje visto pelo mundo e a percepção é muito negativa", afirmou o diretor da ONG.
+"Dilma Rousseff venceu as eleições, mas suas reformas propostas na campanha não avançaram nem sequer um centímetro e, enquanto não houver uma reforma política, o Brasil não vai avançar na percepção internacional. Enquanto houver uma disputa política e o Brasil estiver paralisado nela, nada vai melhorar", declarou Salas.
+Reforma
+Para o representante da ONG, apenas punir os responsáveis pelo caso de corrupção na Petrobras não é o que o mundo espera do Brasil. "Isso é importante e precisa continuar. Mas (o juiz Sérgio) Moro não é suficiente.
+Não se pode solucionar o problema estrutural da corrupção apenas com punições. Sem novas leis, o risco é de que, em cinco anos, veremos que uma nova máfia vai tomar conta uma vez mais da Petrobrás ou de outras entidades, como o BNDES, e vão se apropriar uma vez mais das estatais."
+Para Salas, uma reforma "mandaria um sinal forte ao mundo de que o Brasil está disposto a mudar". "Hoje, não é o que vemos por parte da classe política", disse. O diretor da Transparência afirmou que o argumento do governo Dilma de que as investigações só estão ocorrendo por que ela deu condições é "artificial e inválido".
+"O governo não está fazendo mais que sua obrigação e isso não é um favor a ninguém. Em nenhum lugar do mundo o Executivo deve impedir ou criar obstáculos para a Justiça."
+A ONG cita o presidente da Câmara, Eduardo Cunha (PMDB-RJ), denunciado na Lava Jato. "O mundo se pergunta como Cunha pode ser um líder diante das acusações que pesam sobre ele?", disse Salas. "O País não caiu no ranking por que se descobriu a corrupção. Mas porque a briga política, a insistência de políticos em se manter no poder e a falta de reformas ofuscam o que as investigações estão fazendo", afirmou.
+Salas, porém, vê pontos positivos no Brasil. "Juízes, parte da Polícia Federal, procuradores e o trabalho dos jornalistas têm sido fundamental." "A corrupção continua a ser uma praga. Mas (em 2015) pessoas de todo o mundo enviaram um sinal forte ao poder: chegou a hora de atacar a corrupção", disse o presidente da ONG, José Ugaz. As informações são do jornal O Estado de S Paulo.

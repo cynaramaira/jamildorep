@@ -1,0 +1,30 @@
+---
+layout: post
+title: "EXCLUSIVO: MPF denuncia Geraldo Julio e ex-gestores da saúde do Recife por suposta falsidade ideológica"
+date: 2023-02-27
+tags: jamildo, Geraldo Julio, pandemia Covid-19
+author: Jamildo Melo
+---
+Sem alarde, o MPF denunciou o ex-prefeito Geraldo Julio e ex-gestores da sa&uacute;de do Recife por suposta falsidade ideol&oacute;gica, fraude a processo licitat&oacute;rio e corrup&ccedil;&atilde;o por contrata&ccedil;&atilde;o Covid-19, em um suposto desvio apontado na casa dos R$ 4,3 milh&otilde;es.
+O processo j&aacute; est&aacute; na m&atilde;o da Justi&ccedil;a Federal, distribu&iacute;do para a 4&ordf; Vara Federal, sob o n&uacute;mero 0803712-12.2023.4.05.8300, no &uacute;ltimo dia 15 de fevereiro.
+De acordo com a a&ccedil;&atilde;o, entre os denunciados est&atilde;o Geraldo Julio, Jo&atilde;o Guilherme Ferraz (ex-secret&aacute;rio de Governo da PCR), Marconi Muzzio (ex-secret&aacute;rio de Administra&ccedil;&atilde;o da PCR), Jailson Correia (ex-secret&aacute;rio de Sa&uacute;de da PCR), e Felipe Bittencourt (ex-diretor financeiro da Secretaria de Sa&uacute;de do Recife).
+A pe&ccedil;a judicial &eacute; assinada por dois procuradores da Rep&uacute;blica como uma continuidade da chamada opera&ccedil;&atilde;o desumano.&nbsp;
+
+      Leia Também
+      
+	    				
+                                                                                        Operação Desumano: juiz federal autoriza compartilhamento com CPI da Covid-19 no Senado
+                 
+	    				
+                                                                                        Covid-19: MPF compartilha com MPCO e TCE dados recolhidos durante a Operação Desumano, da PF, no Recife e em Jaboatão
+                 
+	    				
+                                                                                        Operação Desumano: Justiça prorroga prisão temporária de empresário
+                 
+	          
+
+"A den&uacute;ncia em apartado &eacute; originada dos autos do PIC &ndash; Procedimento Investigat&oacute;rio Criminal em ep&iacute;grafe, instaurado a partir de pe&ccedil;as oriundas do Inqu&eacute;rito Policial &ndash; IPL n.&ordm; 2020.0076185, este &uacute;ltimo autuado em aten&ccedil;&atilde;o a relat&oacute;rio de auditoria preliminar elaborado pela Controladoria Geral da Uni&atilde;o &ndash; CGU em Pernambuco, cujo conte&uacute;do revelou ind&iacute;cios de fraude e direcionamento na contrata&ccedil;&atilde;o do INSTITUTO HUMANIZE tanto por parte do Munic&iacute;pio de Jaboat&atilde;o dos Guararapes, quanto em rela&ccedil;&atilde;o ao Munic&iacute;pio do Recife, existindo indicativos de desvio de recursos", explica a a&ccedil;&atilde;o.
+A fase ostensiva da denominada Opera&ccedil;&atilde;o Desumano foi deflagrada em julho de 2020, em aten&ccedil;&atilde;o &agrave; decis&atilde;o proferida nos autos da representa&ccedil;&atilde;o criminal n.&ordm; 0813873-86.2020.4.05.8300, tendo sido cumpridos, na ocasi&atilde;o, 21 (vinte e um) mandados de busca e apreens&atilde;o e 01 (um) mandado de pris&atilde;o tempor&aacute;ria, este &uacute;ltimo em desfavor do administrador de fato do INSTITUTO HUMANIZE, Paulo Luiz Alves Magnus.
+"Quanto &agrave; den&uacute;ncia ora formulada, as investiga&ccedil;&otilde;es indicam que, no per&iacute;odo compreendido entre os dias 27 de mar&ccedil;o a 20 de maio de 2020, no Munic&iacute;pio do Recife, Geraldo J&uacute;lio de Mello Filho (ent&atilde;o prefeito), Jailson de Barros Correia (ent&atilde;o Secret&aacute;rio de Sa&uacute;de), Felipe Soares Bittencourt (ent&atilde;o Diretor de Administra&ccedil;&atilde;o e Finan&ccedil;as), M&ocirc;nica Lisboa da Costa Vasconcelos (ent&atilde;o Gerente-Geral de Regula&ccedil;&atilde;o), Luciana Lima Pinheiro Ca&uacute;la Reis (ent&atilde;o Diretora Executiva de Assuntos Jur&iacute;dicos), Jo&atilde;o Guilherme de Godoy Ferraz (ent&atilde;o Secret&aacute;rio de Governo e Participa&ccedil;&atilde;o Social), Jorge Lu&iacute;s Miranda Vieira (ent&atilde;o Secret&aacute;rio de Planejamento e Gest&atilde;o), Marconi Muzzio Pires de Paiva Carvalho (ent&atilde;o Secret&aacute;rio de Administra&ccedil;&atilde;o e Finan&ccedil;as), Jairo Lu&iacute;s Flores e Paulo Luiz Alves Magnus,
+... agindo em concurso de vontades e mediante divis&atilde;o de tarefas, valendo-se os oito primeiros dos cargos que ocupavam, fraudaram diversos atos do processo de dispensa n.&ordm; 115/2020, tendo, para tanto, inserido informa&ccedil;&otilde;es ideologicamente falsas em documentos p&uacute;blicos e particulares posteriormente utilizados no aludido processo de dispensa, com o intuito de alterar a verdade sobre fatos juridicamente relevantes, praticando os crimes previstos nos arts.299, par&aacute;grafo &uacute;nico, e 304 do CP e no art. 93, da Lei n&ordm; 8.666/93", afirma a a&ccedil;&atilde;o judicial.
+"Al&eacute;m disso, de 27 de mar&ccedil;o a 30 de setembro de 2020, durante a execu&ccedil;&atilde;o da contrata&ccedil;&atilde;o decorrente dessa dispensa, Felipe Soares Bittencourt, Ja&iacute;lson de Barros Correia e M&ocirc;nica Lisboa da Costa Vasconcelos, agindo em concurso de vontades e mediante divis&atilde;o de tarefas, consciente e voluntariamente, desviaram, R$ 4.272.370,64, em proveito do INSTITUTO HUMANIZE DE ASSIST&Ecirc;NCIA E RESPONSABILIDADE SOCIAL, contando, para tanto, com os aux&iacute;lios de Paulo Luiz Alves Magnus (administrador de fato do Instituto Humanize), Jairo Luiz Flores (diretor do Instituto Humanize) e Ana Carolina Spinelli (diretora do Hospital de Campanha III Imbiribeira), em raz&atilde;o da inexist&ecirc;ncia de comprova&ccedil;&atilde;o de despesas decorrentes do Contrato de Gest&atilde;o n&ordm; 4801.01.15.2020, praticando todos, dessa forma, o crime previsto no art. 312 c/c o art. 29 do CP".

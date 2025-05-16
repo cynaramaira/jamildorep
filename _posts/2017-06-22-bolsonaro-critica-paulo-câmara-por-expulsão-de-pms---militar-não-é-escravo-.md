@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Bolsonaro critica Paulo Câmara por expulsão de PMs: "Militar não é escravo""
+date: 2017-06-22
+tags: Bolsonaro,crítica,Naomi Campbell,Paulo Câmara
+author: None
+---
+Após a expulsão de três dirigentes de associações de policiais militares pelo Governo de Pernambuco, o deputado federal Jair Bolsonaro (PSC-RJ) saiu em defesa deles, criticando o governador Paulo Câmara (PSB). "Os governadores não podem se prevalecer da disciplina dos militares para subjugá-los. O militar não é um escravo deles", afirmou o parlamentar em vídeo publicado pela página Direita Pernambuco nesta quinta-feira (22). 
+A punição contra o presidente da Associação dos Cabos e Soldados, Albérisson Carlos da Silva, e o vice da entidade, Nadelson Leite Costa, além do sargento Glaudstony Wanderley Galvão, foi publicada no último sábado (17). Os dirigentes foram punidos por tecer críticas e “comentários desonrosos” ao então secretário Alessandro Carvalho – que deixou o cargo em outubro do ano passado, devido aos altos índices de violência no Estado – e a Paulo Câmara em vídeos divulgados nas redes sociais. Eles respondiam a processos administrativos e chegaram a ser presos em dezembro do ano passado, durante uma assembleia da categoria sobre as negociações salariais, já que a realização da reunião estava proibida pela Justiça porque policiais não podem decretar greve. A expulsão deles gerou críticas da oposição à gestão socialista.
+Para Bolsonaro, a expulsão dos três policiais militares foi "truculenta". "Eles foram excluídos no grito. Se alguém quer excluir um praça, um oficial, que tente fazer isso, mas dentro da legalidade, não dessa forma", disse o deputado no vídeo.
+A Associação de Cabos e Soldados pediu que a Secretaria de Defesa Social (SDS) reconsidere a decisão. Os advogados da entidade acusam a Secretaria de Defesa Social de não intimar os dirigentes para apresentar alegações finais. Para Alberisson Carlos, a punição é uma forma de "perseguição política".
+
+Há um mês, a associação foi descredenciada pela Secretaria de Administração, em punição por “atuação em desacordo com as suas finalidades estatutárias”. Também foram punidas a Associação de Praças dos Policiais e Bombeiros Militares do Estado de Pernambuco (ASPRA-PE) e a Associação dos Militares do Estado de Pernambuco (AME-PE). Na semana passada, sete policiais foram penalizados com prisão por terem participado de uma assembleia da categoria no ano passado.

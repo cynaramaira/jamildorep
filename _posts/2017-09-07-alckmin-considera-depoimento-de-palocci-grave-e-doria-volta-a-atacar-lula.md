@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Alckmin considera depoimento de Palocci grave e Doria volta a atacar Lula"
+date: 2017-09-07
+tags: depoimento,doria,geraldo Alckmin,Lula
+author: None
+---
+Estadão Conteúdo - O governador de São Paulo, Geraldo Alckmin (PSDB), classificou como "extremamente grave" o depoimento em que o ex-ministro Antonio Palocci fez, ao juiz Sergio Moro, acusações de crimes cometidos pelo ex-presidente Luiz Inácio Lula da Silva. Porém, projetando a disputa pela Presidência da República no ano que vem, Alckmin considerou que a polarização entre PSDB e PT ficou no passado. O prefeito de São Paulo, João Doria, afirmou, no entanto, que o depoimento mostra que o ex-presidente é um "criminoso".
+"Acho que isso (polarização) passou. A visão de futuro tem que ser totalmente diferente", assinalou o governador de São Paulo. "O Brasil precisa de construtores. O País vive uma situação de grande dificuldade. Do ponto de vista fiscal, uma verdadeira calamidade, com enormes desafios pela frente", complementou Alckmin, que voltou a defender a necessidade de reformas estruturais.
+
+O governador deu entrevista à imprensa ao lado do prefeito de São Paulo, João Doria, após ambos acompanharem, do palanque de autoridades, o desfile cívico e militar em comemoração ao Dia da Independência no Sambódromo do Anhembi, zona norte da capital paulista.
+A princípio, os tucanos dariam entrevistas separadamente porque Doria sairia antes do término do desfile para participar do anúncio da revitalização do parque da Independência, que estava marcado para as 11h no Ipiranga, bairro da zona sul de São Paulo Mas, ainda no palanque do Sambódromo, decidiram aparecer juntos diante da imprensa.
+Os dois evitaram falar sobre a disputa velada que travam pela indicação do PSDB às eleições presidenciais do ano que vem. Alckmin repetiu que a escolha do candidato da sigla se dará no "tempo devido", ao passo que Doria classificou como "especulação" as noticias sobre sua intenção em deixar o PSDB para concorrer ao Palácio do Planalto. "Não tenho nenhuma intenção de mudar de partido."
+Doria não garantiu, porém, que vai manter esse posicionamento até 2018, o ano das eleições. "Cada dia é um dia. Sou do PSDB tanto quanto o governador Geraldo Alckmin que, aliás, é fundador do PSDB. Estamos tratando do dia de hoje. Espero estar vivo no dia de amanhã", disse Doria.
+
+O prefeito voltou a disparar criticas contra Lula ao comentar o depoimento de Palocci, que, segundo Doria, confirmou que o ex-presidente é um "criminoso". "O depoimento é decisivo e sepulta qualquer imagem de alguém que pretenda seguir carreira pública dizendo ser honesto", afirmou o prefeito, acrescentando que o campo do PT e de Lula é da "criminalidade".
+Mesmo assim, disse que não desclassificaria o PT na eleição do ano que vem, ainda que Lula não possa concorrer à Presidência. "Nenhuma campanha é fácil, toda campanha é difícil. Serão vários candidatos disputando", comentou. "Em toda campanha, é preciso compreender sua dimensão e respeitar todos aqueles que vão disputar essa posição", complementou.
+Mais comedido nas críticas ao PT, Alckmin considerou apenas que as acusações de Palocci são graves por se tratar de um fundador do partido e que teve participação importante nos governos petistas. "Então, é extremamente grave". Antes de deixar o Anhembi, o governador aproveitou para fazer um "corpo a corpo" e cumprimentou pessoas que estavam no portão de acesso ao palanque das autoridades do Sambódromo.

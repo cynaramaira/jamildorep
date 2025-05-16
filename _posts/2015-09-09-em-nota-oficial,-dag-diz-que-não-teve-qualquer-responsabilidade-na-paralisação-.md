@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Em nota oficial, DAG diz que não teve qualquer responsabilidade na paralisação das obras do CIR-Itaquitinga"
+date: 2015-09-09
+tags: diário oficial,Itaquitinga,Naomi Campbell,obras,paralisação,Responsabilidade
+author: None
+---
+Em atenção ao teor da notícia veiculada hoje (08/09/2015) neste Blog, intitulada “Empresa envolvida no fracasso de Itaquitinga aparece agora como contratada da Compesa”, a DAG CONSTRUTORA LTDA enviou o que considera esclarecimentos.
+"A concorrência realizada pela Companhia Pernambucana de Saneamento (Compesa) a que faz referência a reportagem tem como entidade financiadora o Banco Mundial e, como é de praxe, os Editais Licitatórios que têm como financiador o Banco Mundial têm regras bastante rigorosas e exigentes para os licitantes, pelo que, ao contrário do que quer fazer crer o teor da notícia, a escolha como vencedor do certame do CONSÓRCIO NOVA OLINDA, do qual faz parte a DAG, só atesta e confirma de forma inequívoca a idoneidade e legitimidade da empresa, bem como o seu extremo profissionalismo".
+"Como já amplamente noticiado nos últimos meses nos mais diversos meios de comunicação locais, o contrato de compra e venda de ações celebrado entre a DAG e as acionistas da SPE - REINTEGRA BRASIL S.A, as empresas ADVANCE e SOCIALIZA, que tinha por objetivo a transferência do controle acionário da companhia concessionária responsável pelas obras do CIR-Itaquitinga, nunca foi efetivamente concluído, em virtude de condição suspensiva a que o mesmo se encontrava sujeito e a qual nunca se veio a verificar."
+"Deste modo, é totalmente falsa a afirmação de que a DAG seria “uma das empresas responsáveis pelo fracasso da PPP de Itaquitinga”, haja vista que a DAG nunca compôs nem fez parte do quadro acionário da SPE".
+"Cabe ainda esclarecer que as questões relacionadas à PPP de Itaquitinga e ao Consórcio SPE – REINTEGRA BRASIL S.A. estão sendo tratadas e resolvidas nas instâncias judiciais e administrativas competentes, as quais têm timings próprios que não dependem da DAG, já se tendo manifestado por mais de uma vez no sentido de reconhecer a ausência de qualquer responsabilidade da DAG na paralisação das obras do CIR-Itaquitinga".

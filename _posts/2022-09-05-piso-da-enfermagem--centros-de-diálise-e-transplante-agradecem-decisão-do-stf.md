@@ -1,0 +1,9 @@
+---
+layout: post
+title: "PISO DA ENFERMAGEM: Centros de Diálise e Transplante agradecem decisão do STF"
+date: 2022-09-05
+tags: jamildo, enfermagem, Luís Roberto Barroso
+author: Jamildo Melo
+---
+Em nota oficial, a Associa&ccedil;&atilde;o Brasileira dos Centros de Di&aacute;lise e Transplante (ABCDT) elogia o STF pela decis&atilde;o desde domingo, em torno do piso da enfermagem.
+"A decis&atilde;o do STF estanca em car&aacute;ter emergencial uma sangria que iria tornar insustent&aacute;vel a manuten&ccedil;&atilde;o dos servi&ccedil;os de di&aacute;lise pelo pa&iacute;s. O Ministro Barroso demonstra, nas entrelinhas de sua decis&atilde;o, indigna&ccedil;&atilde;o de como se pode promulgar uma lei sem definir fontes de financiamento e, ainda mais, n&atilde;o se pensar na sustentabilidade da sa&uacute;de no pais", afirma. A Associa&ccedil;&atilde;o Brasileira dos Centros de Di&aacute;lise e Transplante (ABCDT) - que entrou como amicus curiae na ADI da CNSa&uacute;de - disse que continua na luta para que o Ministro da Sa&uacute;de entenda que, independentemente de decis&atilde;o judicial sobre a Lei 14434/2022, o desequil&iacute;brio econ&ocirc;mico financeiro para as as cl&iacute;nicas de di&aacute;lise que atendem a quase 90% dos pacientes do SUS se mant&eacute;m. "A decis&atilde;o do Ministro Barroso evidencia o qu&atilde;o fr&aacute;gil &eacute; o sistema de sa&uacute;de p&uacute;blica no Brasil. A ABCDT se coloca diante das autoridades p&uacute;blicas, principalmente Minist&eacute;rio da Sa&uacute;de, para discutir todas as condi&ccedil;&otilde;es para melhorar todo o sistema de Terapia Renal Substitutiva, inclusive com melhores sal&aacute;rios para os nossos colaboradores. Entendendo por&eacute;m que toda melhoria ser&aacute; em v&atilde;o se n&atilde;o chegar na nossa raz&atilde;o de existir, que &eacute; o paciente", destaca o presidente da ABCDT, o m&eacute;dico nefrologista Yussif Ali Mere Junior.

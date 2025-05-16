@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Boa notícia. João da Costa assina a construção de 446 novas moradias no Recife. Caixa diz que nunca antes na história construiu-se tanto"
+date: 2009-12-12
+tags: Assina,boa notícia,Caixa,construção,gal costa,história,joão d,Recife,variantes
+author: None
+---
+A comunidade de Escorregou T&aacute; Dentro, no bairro de Afogados, comemorou ao som dos tambores do maracatu a assinatura dos contratos de repasse de verbas para a constru&ccedil;&atilde;o de moradias que v&atilde;o beneficiar os moradores da &aacute;rea e tamb&eacute;m da localidade Mulheres de Tejucupapo, na Iputinga.
+Para firmar o compromisso de constru&ccedil;&atilde;o das novas casas, o prefeito do Recife, Jo&atilde;o da Costa, ao lado da presidenta da Caixa Econ&ocirc;mica Federal (CEF), Maria Fernanda Ramos Coelho, e do secret&aacute;rio das Cidades do Governo de Pernambuco, Humberto Costa, participaram do ato realizado na pr&oacute;pria comunidade de Escorregou T&aacute; Dentro.
+Ser&atilde;o utilizados recursos na ordem de R$ 23 milh&otilde;es oriundos do Fundo Nacional de Habita&ccedil;&atilde;o e Interesse Social (FNHIS) 2009, beneficiando 446 fam&iacute;lias das duas comunidades.
+As resid&ecirc;ncias ser&atilde;o constru&iacute;das pelo projeto do governo estadual Minha Casa, que &eacute; de responsabilidade da Secretaria das Cidades.
+A Secretaria de Habita&ccedil;&atilde;o do Recife ficou respons&aacute;vel por cadastrar, durante este semestre, as fam&iacute;lias beneficiadas.
+Ap&oacute;s evento oficial de assinatura dos contratos, o prefeito e a presidenta da Caixa caminharam por Escorregou T&aacute; Dentro, onde cumprimentaram moradores.
+O prefeito Jo&atilde;o da Costa destacou o empenho de todos os entes federativos para destina&ccedil;&atilde;o dos recursos e da luta dos moradores pelo direito a uma moradia digna.
+&ldquo;N&oacute;s j&aacute; temos o dinheiro, temos o projeto e o compromisso do presidente, do governador, da Caixa e nosso da Prefeitura. Isso &eacute; resultado de duas coisas: a primeira &eacute; a luta de voc&ecirc;s, por meio do movimento de luta pela moradia ou do Or&ccedil;amento Participativo. E a segunda &eacute; o compromisso do presidente Lula, da ministra da Casa Civil, Dilma Rousseff, coordenadora do programa Minha Casa Minha Vida, e aqui, da tarefa do Governo de Pernambuco e da Prefeitura do Recife em honrar o compromisso que assumimos com voc&ecirc;s. De cuidar da cidade toda, mas priorizar a luta e a necessidade de quem mais precisa, aqueles que n&atilde;o t&ecirc;m casas, os pobres, e os trabalhadores&rdquo;, declarou..
+Segundo a presidenta da CEF, 2009 &eacute; um ano hist&oacute;rico para o Brasil, quando mais se construiu casas no pa&iacute;s.
+&ldquo;Fazem 25 anos que trabalho na Caixa e nunca vi um movimento de se fazer tantas casas como agora, ainda mais depois que o presidente Lula lan&ccedil;ou o programa Minha Casa, Minha Vida, que vai construir mais de um milh&atilde;o de novas moradias. S&oacute; em Pernambuco, j&aacute; fizermos, em parceira, 24.888 moradias este ano. &Eacute; um n&uacute;mero hist&oacute;rico e daqui a pouco voc&ecirc;s receber&atilde;o as chaves das casas&rdquo;, afirmou a presidente.
+&ldquo;Trago aqui a sauda&ccedil;&atilde;o do governador Eduardo Campos, reafirmando o compromisso com a luta pela condi&ccedil;&atilde;o de uma moradia melhor para a popula&ccedil;&atilde;o de Pernambuco&rdquo;, afirmou o secret&aacute;rio estadual Humberto Costa, ressaltando a import&acirc;ncia de ter tr&ecirc;s governos comprometidos com o povo da cidade e do estado.
+O projeto aprovado pelo Governo Federal prev&ecirc; a constru&ccedil;&atilde;o de 176 moradias, distribu&iacute;das em apartamentos do tipo duplex, al&eacute;m de equipamento comunit&aacute;rios como creche, associa&ccedil;&atilde;o de catadores, associa&ccedil;&atilde;o de moradores, guarita e zeladoria. Ser&atilde;o investidos R$ 11.815.024,68 na execu&ccedil;&atilde;o dos servi&ccedil;os.
+Localizada na Avenida Mauricio de Nassau, na Iputinga, a comunidade &eacute; ocupada h&aacute; mais de 15 anos. O projeto contempla a constru&ccedil;&atilde;o de 270 moradias, sendo 256 apartamentos e 14 unidades duplex, al&eacute;m de quadra poliesportiva, centro comunit&aacute;rio, playground, guarita e zeladoria. Ao todo, ser&atilde;o investidos R$ 11.366.735,40.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+&nbsp;
+&nbsp; 

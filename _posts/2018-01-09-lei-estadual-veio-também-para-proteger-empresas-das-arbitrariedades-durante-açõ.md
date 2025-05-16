@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Lei estadual veio também para proteger empresas das arbitrariedades durante ações de fiscalização"
+date: 2018-01-09
+tags: Doações,empresas,Fiscalização,transporte interestadual
+author: None
+---
+Desde ontem, Pernambuco conta agora com uma lei específica para combate à corrupção. Sancionada nesta terça-feira (08/01) pelo governador Paulo Câmara (PSB), a norma regulamenta a lei anticorrupção federal em pontos sensíveis como os acordos de leniência e os processos administrativos de responsabilização.
+A lei estadual institui mecanismos de prevenção e detecção de corrupção para o poder público como é o caso do treinamento aos servidores e do canal de denúncia anticorrupção.
+“Quando se fala em combate à corrupção é preciso atuar tanto na esfera pública quanto na privada, entendendo as nuances da relação e atuando na prevenção, detecção e resposta de atos ilícitos. Esse foi o norte para elaboração da lei estadual”, afirma a sócia da área de Compliance e Integridade do escritório Queiroz Cavalcanti Advocacia e que integrou a coordenação técnica na comissão especial de elaboração da Lei Anticorrupção Estadual na ALEPE.
+Apesar da Lei Anticorrupção Brasileira, em vigor desde 2014, ter dado competência aos órgãos e entidades que compõem a administração pública para aplicar penas administrativas contra pessoas jurídicas que pratiquem atos de corrupção, existiam diversos pontos que precisavam de regulamentação para aplicação com segurança.
+“A lei estadual veio para também para proteger as empresas das arbitrariedades durante ações de fiscalização, garantindo direito ao sigilo, à ampla defesa e ao contraditório além de preservar sua reputação até que haja a conclusão das apurações. Esse foi um esforço de todos os envolvidos.” afirmou o sócio da área de Compliance e Integridade do escritório Queiroz Cavalcanti Advocacia, Raphael Ribeiro, que também integrou a coordenação técnica na comissão especial de elaboração da Lei Anticorrupção Estadual na ALEPE.
+Quem são os dois advogados do Queiroz que integraram comissão técnica que elaborou a Lei Anticorrupção pernambucana
+Camila Oliveira é sócia-titular da área de Direito Empresarial e do núcleo de Compliance e Integridade de Queiroz Cavalcanti Advocacia. Ela é pós-graduada em Direito Empresarial e em Gestão Financeira, Controladoria e Auditoria pela Fundação Getúlio Vargas (FGV). Associada ao Instituto Brasileiro de Governança Corporativa (IBGC) e ao The Society of Corporate Compliance and Ethics (SCCE). Integrante da Comissão de Direito Empresarial e da Comissão de Combate à Corrupção da OAB/PE.
+Raphael Ribeiro é coordenador da área de Compliance e Integridade do escritório Queiroz Cavalcanti Advocacia. MBA em Direito Empresarial pela Fundação Getúlio Vargas do Rio de Janeiro (FGV/RJ) e é especialista em Compliance pelo INSPER/SP. Membro das Comissões de Combate à Corrupção e de Governança Corporativa da OAB/PE. Membro da Comissão ABNT 278:2016 para normalização da ISO 37001, norma internacional antissuborno.

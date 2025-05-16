@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Sindicato denuncia suposta manipulação com previdência na prefeitura de Luciana Santos"
+date: 2007-04-12
+tags: denúncia,Luciana Santos,Manipulação,Prefeitura,sindicato
+author: None
+---
+O SISMO, sindicato dos servidores de Olinda, vai distribuir amanhã uma nota para entidades sindicais, sites que tratam da transparência, contas abertas, etc, denunciando supostos abusos de Luciana Santos (PC do B) no trato com o Fundo Municipal de Previdência e sua gestão. 
+Veja em primeira mão a nota, obtida com exclusividade pelo Blog de Jamildo.
+INDÍCIOS DE FRAUDES NA GESTÃO DO FUNDO DE PREVIDÊNCIA MUNICIPAL DE OLINDA
+O SISMO – Sindicato dos Servidores de Olinda, entidade representativa dos mais de 4 mil servidores ativos da Prefeitura de Olinda e também dos aposentados e pensionistas, vem a público denunciar os seguintes e lamentáveis fatos que vêm ocorrendo em Olinda, no âmbito da gestão do Fundo Municipal de Previdência, recursos que em tese deveriam ser utilizados única e exclusivamente para o pagamento das aposentadorias e pensões da categoria:
+1 – O Fundo de Previdência Municipal de Olinda, criado em 1999, como regulamentado na Legislação em vigor, é constituído por contribuição direta dos servidores e também dos recursos do tesouro municipal. Estes recursos devem ser repassados mensalmente para o Fundo e a sua administração será feita por um Conselho Municipal de Previdência;
+2 – Em Olinda, no entanto, o Conselho de Previdência está esvaziado, por iniciativa da Prefeitura de Olinda, que acabou com a paridade de representação dos entes, ampliando o seu controle e assumindo de forma anti-democrática a Presidência do mesmo;
+3 – Este esvaziamento proposital ocorre porque a Prefeita Luciana Santos está inadimplente com o Fundo. Em 2004, a sua gestão conseguiu autorização da Câmara de Vereadores para sacar R$ 4,7 milhões do Fundo de Previdência. Esta medida sequer foi debatida no Conselho de Previdência, que na época já não se reunia, sob protesto dos representantes dos servidores no referido Conselho;
+4 – Quando do saque de R$ 4,7 milhões, que foi feito na forma de empréstimo, a Prefeitura se comprometeu em ressarcir somente a metade do valor, a partir de maio de 2005, mensalmente, em 80 parcelas. Acontece que até a presente data, quase dois anos após, nenhuma parcela foi paga;
+5 – Os servidores, acompanhando a evolução dos depósitos no Fundo Previdenciário pelo site da Prefeitura, constatavam que a Prefeitura não vinha fazendo os depósitos de sua parte na composição do Fundo. Hoje, no entanto, os dados referentes ao Fundo não estão mais disponíveis na internet. Ou seja, tudo indica que a situação continua irregular;
+6 – Tudo isto está acontecendo sem que o Conselho de Previdência esteja funcionando. Para piorar a situação, após muito protesto dos servidores, foi aberto o processo eleitoral para a nova composição do Conselho da Previdência Municipal. Acontece que este processo está todo viciado, pois a prefeita Luciana Santos controla a Comissão Eleitoral, busca impugnar a candidatura de servidores independentes, não está fazendo o processo de forma transparente, abrindo assim espaços para denúncias que já nos chegam, como o recrutamento de servidores contratados, sem direito a voto, para descarregar votos nos candidatos identificados com os interesses da Prefeitura. O processo eleitoral está suspenso, por liminar da Justiça, e a sociedade precisa saber como a prefeitura do PC do B tem a \"ousadia\" de atacar a democracia participativa, apropriando-se de forma lamentável e revoltante dos recursos da aposentadoria e pensão dos servidores municipais de Olinda.
+Olinda, 12 de abril de 2007
+Diretoria do SISMO – Sindicato dos Servidores Municipais de Olinda
+PS1: Com a palavra, a Prefeitura de Olinda.
+PS2: Pessoalmente, não acredito que vá dar em nada. Há um ano, o JC denunciou uma série de irregularidades na área de iluminação pública, com base em auditoria do próprio TCE. Até hoje o processo não foi levado a julgamento. Romeu da Fonte, presidente do TCE, estará se aposentando em breve. 

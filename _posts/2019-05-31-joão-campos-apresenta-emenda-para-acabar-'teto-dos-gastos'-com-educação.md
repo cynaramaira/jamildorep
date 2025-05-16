@@ -1,0 +1,13 @@
+---
+layout: post
+title: "João Campos apresenta emenda para acabar 'teto dos gastos' com educação"
+date: 2019-05-31
+tags: APRESENTADORA,Educação,Emendas,João Campos
+author: None
+---
+O deputado federal João Campos (PSB) propôs apenas uma emenda à PEC da Reforma da Previdência. A sugestão, se aceita, destina à educação 20% do que for economizado com a reforma da Previdência e elimina o "teto dos gastos com educação".
+“Sabemos que, como disse o ministro Paulo Guedes, os recursos que eles querem obter com a reforma pagariam apenas parte da transição pra um modelo de capitalização, onde cada trabalhador contribui pra sua própria aposentadoria. No Chile, durante 20 anos, esse custo da transição foi pago com aumento de impostos e uma média de 5% do PIB ao ano. Se essa reforma for aprovada, não podemos deixar que todo o recurso seja destinado a pagar dívidas. Temos que investir nos nossos jovens! E, afinal, quem seria contra investir na Educação?”
+De acordo com o gabinete do deputado, a emenda tem o apoio de mais de 210 parlamentares, quantitativo acima do número mínimo exigido para a apresentação na Comissão Especial que analisa a proposta do Governo Federal.
+“Por essa emenda, mostramos que o governo mente quando fala que terá economia com a reforma e, assim, espaço no orçamento pra investir. Se isso é mesmo verdade, corrigimos um erro que foi cometido lá atrás e sugerimos um investimento importante na educação. Eliminamos o teto dos gastos com a educação. Segundo a Consultoria de Orçamento da Câmara, a limitação imposta pelo teto, válida desde 2017, só leva a educação a ter uma queda contínua nos seus recursos. A revogação dessa medida é, portanto, emergencial”.
+“Com a eliminação do teto, defendemos a destinação de 20% da economia com a PEC para o setor. Se a Reforma da Previdência for aprovada, os jovens vão pagar o maior custo. Os 20% para o setor educacional ajudam na formação profissional pra geração de emprego e renda, já que serão voltados para a criação de cursos técnicos e melhoria da infraestrutura”, argumenta.
+“A minha discordância sobre essa Reforma da Previdência sugerida pelo governo é por enxergar que ela tá errada desde a origem. Mesmo assim, achei importante assinar mais de 100 emendas críticas e que sugerem alterações à PEC porque devemos enriquecer esse debate, lutar pra alterar várias regras propostas pelo governo e que vemos como prejudiciais ao povo”.

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Depois da polêmica dos presídios, Arcoverde, Mirandiba e Quixabá terão contas investigadas pela CGU"
+date: 2007-05-10
+tags: Arcoverde,Contas Externas,Presídios
+author: None
+---
+Os munic&iacute;pios de Arcoverde, Mirandiba e Quixaba ca&iacute;ram no 23&ordm; Sorteio P&uacute;blico que receber&atilde;o fiscaliza&ccedil;&atilde;o especial da Controladoria-Geral da Uni&atilde;o, definidas em sorteio p&uacute;blico realizado hoje (09/05), no audit&oacute;rio da Caixa Econ&ocirc;mica Federal, em Bras&iacute;lia. No total, s&atilde;o 60 munic&iacute;pios em todo o pa&iacute;s. Veja a rela&ccedil;&atilde;o aqui.
+Estou avisando aqui, com anteced&ecirc;ncia, para n&atilde;o dizerem que n&atilde;o houve tempo para prestar esclarecimentos. Os sorteios p&uacute;blicos foram criados em 2003 para fiscalizar a aplica&ccedil;&atilde;o de recursos repassados pela Uni&atilde;o para a execu&ccedil;&atilde;o descentralizada de programas federais em munic&iacute;pios com at&eacute; 500 mil habitantes.
+Al&eacute;m dos tr&ecirc;s j&aacute; citados, ser&atilde;o investigados em Pernambuco ainda Nazar&eacute; da Mata e Panelas, que foram sorteados tamb&eacute;m entre outros 10 munic&iacute;pios, por conta da 2&ordf; edi&ccedil;&atilde;o do Programa de Fortalecimento da Gest&atilde;o Municipal, criado em 2006 para capacitar os agentes p&uacute;blicos de cidades com at&eacute; 50 mil habitantes sobre a correta aplica&ccedil;&atilde;o de recursos federais. Nesse caso, participaram do sorteio apenas os munic&iacute;pios que se inscreveram. 
+Na abertura dos sorteios, nos mesmos equipamentos utilizados para o sorteio das loterias federais -, o ministro Jorge Hage referiu-se aos graves problemas encontrados pela CGU ao fiscalizar a aplica&ccedil;&atilde;o de verbas federais pelos governos estaduais, na &aacute;rea de seguran&ccedil;a p&uacute;blica. 
+Segundo o ministro, os fatos detectados no 2&ordm; semestre do ano passado e revelados agora, no relat&oacute;rio do 5&ordm; sorteio de Estados, chocaram mais ainda por se tratar de dinheiro destinado &agrave; seguran&ccedil;a da popula&ccedil;&atilde;o. Veja aqui o que o Blog de Jamildo j&aacute; publicou.
+J&aacute; no pr&oacute;ximo m&ecirc;s, segundo Jorge Hage, a CGU anunciar&aacute; uma nova sistem&aacute;tica de fiscaliza&ccedil;&atilde;o dos recursos federais destinados &agrave;s capitais e outros munic&iacute;pios com popula&ccedil;&atilde;o acima de 500 mil habitantes, concentrada nos programas de maior volume financeiro ou de maior relev&acirc;ncia social. Essa nova linha de atua&ccedil;&atilde;o, segundo o ministro, abranger&aacute;, gradualmente, a totalidade desses munic&iacute;pios, que somam 35 - as 27 capitais e mais 8 grandes cidades.
+PS: Se voc&ecirc; n&atilde;o leu o relat&oacute;rio que causou tanta pol&ecirc;mica na &aacute;rea pol&iacute;tica, veja a &iacute;ntegra novamente aqui. 

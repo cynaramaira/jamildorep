@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Eduardo da Fonte atribui dissidência no PP a uma minoria sem força política nem votos"
+date: 2012-06-29
+tags: eduardo,Força-Tarefa,Martins Fontes,minoria,Política,Votos Nulos
+author: None
+---
+Foto: Gabriela L&oacute;pez/Blog de Jamildo
+Foi em meio &agrave;s pol&ecirc;micas em torno do apoio do seu partido &agrave; candidatura do senador Humberto Costa (PT) que o deputado federal Eduardo da Fonte (PP) subiu no palanque petista nesta sexta (29) durante conven&ccedil;&atilde;o. Como fez ao anunciar a alian&ccedil;a, ele exaltou que n&atilde;o podia deixar de atender a um pedido do ex-presidente Lula. A alian&ccedil;a com os petistas gerou uma dissid&ecirc;ncia no partido. Alguns l&iacute;deres pepistas acusam Eduardo, que tamb&eacute;m &eacute; presidente estadual da legenda, de ter tomado uma decis&atilde;o de forma isolada. Do seu lado, o parlamentar minimizou o racha. &quot;N&atilde;o h&aacute; resist&ecirc;ncia no meu partido. Isto [a dissid&ecirc;ncia] &eacute; uma minoria que n&atilde;o tem for&ccedil;a pol&iacute;tica nem votos&quot;.
+Atacado, Roberto Teixeira chama Eduardo da Fonte de ladr&atilde;o e pede que divulgue o que recebeu de Lula para apoiar Humberto
+Em nota oficial, PP do Recife desanca deputado federal que anunciou apoio a Geraldo J&uacute;lio
+Ap&oacute;s a c&uacute;pula do PP ter anunciado o apoio, outras lideren&ccedil;as da sigla, como o deputado federal Roberto Teixeira e a deputada estadual e secret&aacute;ria de Esportes do governador Eduardo Campos, Ana Cavalcanti, prestigiaram o lan&ccedil;amento oficial do nome de Geraldo J&uacute;lio, candidato do PSB. Como repres&aacute;lia, a Executiva municipal do PP divulgou uma nota desqualificando Teixeira. Em tr&eacute;plica, o deputado dissidente chamou Eduardo da Fonte de ladr&atilde;o e pediu que ele divulgasse o que recebeu de Lula para apoiar Humberto.
+Sobre isso, Eduardo da Fonte sugeriu que Teixeira deixasse de reclamar e fosse em busca &quot;dos votos que ele n&atilde;o tem&quot;, nas palavras dele. &quot;Aqueles que t&ecirc;m votos est&atilde;o unidos. A executiva estadual e municipal decidiu por unanimidade apoiar Humberto. Ningu&eacute;m tem for&ccedil;a pol&iacute;tica para decidir ir contra esta decis&atilde;o. N&atilde;o tem prest&iacute;gio. Eu estou ao lado de lideran&ccedil;as nacionais do partido. Claro, como em todos os lugares, h&aacute; quem discorde das posi&ccedil;&otilde;es. Isto &eacute; democracia&quot;.

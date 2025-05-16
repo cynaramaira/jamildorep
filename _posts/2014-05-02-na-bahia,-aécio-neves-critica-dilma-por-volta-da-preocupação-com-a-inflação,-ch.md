@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Na Bahia, Aécio Neves critica Dilma por volta da preocupação com a inflação, chamada de agenda do passado"
+date: 2014-05-02
+tags: Bahia,crítica,Dilma,inflação,Mozart Neves,reagendamentos,segunda chamada
+author: None
+---
+O senador mineiro Aécio Neves, do PSDB, falou no Forum de Comandatuba, nesta sexta-feira, sobre a importância da gestão pública eficiente para melhorar os índices sociais. Reafirmou seu compromisso de criar uma secretaria que, num prazo de 6 meses, apresente uma proposta de simplificação do sistema tributário e também de resgatar o papel das agências reguladoras, apresentando modelo que permita eficiência na gestão pública. Defendeu, ainda, o fim da reeleição para os cargos públicos, especialmente com a discussão do fim de doações do setor privado para campanhas políticas, e o fim da maioridade penal para casos extremos.
+O pré-candidato fez também uma análise dos últimos dez anos e criticou a flexibilização que o ex-presidente Lula promoveu nos pilares macroeconômicos, deixando de ter o controle inflacionário como meta. Citou os péssimos resultados da balança comercial, a perda de confiança crescente no Brasil, com redução dos investimentos, a demonização das privatizações e das parcerias com o setor privado e a carga tributária inibidora da produtividade brasileira. “Quando deveríamos estar aqui falando de expansão e crescimento, voltamos a falar de uma agenda do passado, que é a estabilidade da moeda. É quase uma década perdida”, afirmou.
+Sobre as manifestações que ocorreram ontem em São Paulo durante as comemorações ao Dia do Trabalhador, Aécio confirmou que há uma distância entre os interesses da sociedade e o discurso de seus representantes.
+“Isso ocorre pela ausência de resposta efetiva do governo federal. Existe um desencanto enorme com grande parte dos atuais governantes e também com uma parte dos políticos de uma forma geral”, comentou.
+Na opinião do pré-candidato, a população pede uma nova interlocução.
+Aécio lembrou que não existe um plano nacional de segurança. “87% de tudo o que se gasta com segurança pública no Brasil são provenientes dos cofres dos estados. Isso precisa mudar para haver uma parceria efetiva da União com os estados”, afirmou.
+Em relação ao meio ambiente, Aécio afirmou que essa preocupação tem que estar presente em cada ação de qualquer área do governo.
+Para o pré-candidato do PSDB, o maior gargalo neste setor é a falta de investimento humano e a fragilidade das Santas Casas, que carecem de um planejamento com gestão, metas e resultados. Defendeu também um sistema de desenvolvimento de carreira para os médicos.
+Para finalizar, quando perguntados sobre as três ações que promoveram para mudar o estado que governaram, Aécio nomeou: os resultados na educação, com Minas Gerais atingindo a melhor educação básica do Brasil, segundo IDEB; a obrigatoriedade de uma certificação para a indicação a cargos públicos, melhorando a qualidade dos serviços; o sucesso das parcerias com setor privado, resultando na primeira PPP na área de rodovias e criando espaço para quem quisesse investir no estado; e que tudo isso se resume a uma boa aplicação do dinheiro público.

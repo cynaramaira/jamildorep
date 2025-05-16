@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Política em família"
+date: 2014-07-26
+tags: família,Política
+author: None
+---
+Créditos das Fotos: Soares/JC Imagem, BlogImagem, Noely Mota, Priscila Krause/Reprodução Facebook e Germana Soares. 
+Arte: Bruno carvalho
+Em uma rápida olhada no registro de candidaturas hospedado no site do TRE, é possível encontrar, no mínimo, 12 candidatos que possuem algum tipo de vínculo familiar, com sobrenomes que já figuram no mundo político há muitos anos. Muitos deles consagrados. Entre os que concorrem ao cargo de deputado estadual e federal, a ligação "pai e filho" é a que mais aparece. Seja pelo desejo de seguir os mesmos passos de seus pais, ou para manter o "curral" eleitoral da família, estes candidatos figuram com potenciais chances de eleição.
+A vereadora de Recife e candidata a deputada estadual Priscila Krause (DEM) é filha do ex-governador de Pernambuco e ex-prefeito de Recife, Gustavo Krause. Sobre a influência de seu pai na escolha pela vida pública, Priscila afirma que não foi determinante: "Foi fundamental, isto sim; mas não foi fator determinante. Até porque eu tenho cinco irmãos e apenas eu enveredei por este caminho".
+Outro exemplo da ligação pai e filho nas eleições deste ano é o de Fernando Bezerra Coelho (PSB), candidato ao senado pela Frente Popular por Pernambuco e que tem dois de seus filhos como candidatos: o já deputado federal Fernando Filho (PSB) e Miguel Coelho (PSB), que concorre ao cargo de estadual.
+Fernando Filho diz que o currículo do pai foi importante para a eleição de seu primeiro mandato, mas que só o sobrenome não garante a pernamnência na política: "Fui eleito em 2006 com mais de 117 mil votos e em 2010 fui reeleito com mais de 166 mil. Se eu não mostrasse meu trabalho, o eleitor não voataria em mim outra vez, mesmo com a infuência política de meu pai". A família Coelho tem ainda outro membro disputando um cargo no pleito deste ano, o vice-prefeito de Petrolina, Guilherme Coelho (PSDB), filho de Osvaldo Coelho e primo de FBC. 
+O casal Cleiton e Michele Collins, ambos do PP, figuram como outro tipo de ligação político-familiar. O pastor Cleiton é candidato a estadual e sua esposa foi uma das vereadoras mais votadas nas eleições municipais de 2012. De acordo com Cleiton, a união na vida pública não atrapalha na vida conjugal: "Nosso envolvimento na política não atrapalha porque defendemos a mesma ideologia, lutamos pela mesma causa".
+O nome de Michele aparece como candidata ao mesmo cargo que o marido disputa, mas Cleiton nega que isto tenha sido uma estratégia para beneficiar o partido nas eleições proporcionais: "O que aconteceu ali foi um erro de registro, a missionária Michele é vereadora e não será candidata a deputada este ano", afirma.
+Nem sempre a herança política trazida com o sobrenome garante vitória em campanhas. Exemplos disto são os candidatos Jarbas Filho (PMDB), filho do senador e ex-governador de Pernambuco Jarbas e Vasconcelos (PMDB), Izabel e Flávio Urquiza (PMDB), filhos da ex-prefeita de Olinda Jacilda Urquiza (PMDB), que não conseguiram se eleger em 2012, mesmo com o empenho dos pais em suas campanhas.

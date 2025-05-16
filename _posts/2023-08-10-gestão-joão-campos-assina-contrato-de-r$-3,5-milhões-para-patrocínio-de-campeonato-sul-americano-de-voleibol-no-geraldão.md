@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Gestão João Campos assina contrato de R$ 3,5 milhões para patrocínio de campeonato sul-americano de voleibol no Geraldão"
+date: 2023-08-10
+tags: jamildo, João Campos, geraldão
+author: Jamildo Melo
+---
+Sem alarde, a gest&atilde;o do prefeito Jo&atilde;o Campos (PSB) publicou no Di&aacute;rio Oficial do Recife desta quinta-feira o contrato de R$ 3,5 milh&otilde;es entre a Secretaria de Esportes do Recife e a Confedera&ccedil;&atilde;o Brasileira de Voleibol (CBV) referente &agrave; aquisi&ccedil;&atilde;o de cota ouro para o projeto &ldquo;Campeonato Sul-Americano de Voleibol &ndash; Recife 2023&rdquo;, que ser&aacute; realizado no Gerald&atilde;o.
+O contrato da cota de patroc&iacute;nio, segundo o Di&aacute;rio Oficial, foi firmado no dia 04 de agosto desse ano. O evento contar&aacute; com 20 jogos e acontecer&aacute; entre 19 e 30 de agosto, mas a disputa ser&aacute; por pontos corridos, sem a realiza&ccedil;&atilde;o de disputas eliminat&oacute;rias.
+O patroc&iacute;nio havia sido questionado pelo vereador Alcides Cardoso (PSDB) no in&iacute;cio de julho, quando sua equipe identificou a inexigibilidade de licita&ccedil;&atilde;o. Apontando que esse &eacute; o maior patroc&iacute;nio realizado pela Prefeitura do Recife nos &uacute;ltimos dez anos, o tucano questiona quais as contrapartidas sociais que a cidade receber&aacute; pelo evento, a exemplo de quantia de ingressos distribu&iacute;dos para comunidades carentes e realiza&ccedil;&atilde;o de cursos de forma&ccedil;&atilde;o para jovens de comunidades por parte da CBV.
+O vereador levou o assunto, no dia 13 de julho, ao Minist&eacute;rio P&uacute;blico de Contas do Tribunal de Contas do Estado de Pernambuco.
+Al&eacute;m dos R$ 3,5 milh&otilde;es, a Prefeitura est&aacute; cedendo o Gin&aacute;sio de Esportes Geraldo Magalh&atilde;es, sem custo, para a realiza&ccedil;&atilde;o do evento. Os ingressos j&aacute; est&atilde;o &agrave; venda e custam entre R$ 40 e R$ 200. O maior patroc&iacute;nio concedido &agrave; CBV em Pernambuco foi realizado pela pr&oacute;pria Prefeitura do Recife, que repassou R$ 400 mil em 2022, j&aacute; na gest&atilde;o Jo&atilde;o Campos, para a realiza&ccedil;&atilde;o da final da Super Copa Masculina de Voleibol.

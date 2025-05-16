@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Marun recua em projeto de lei que prevê alerta a delatados"
+date: 2017-12-13
+tags: ALERTA,projeto,recua
+author: None
+---
+Estadão Conteúdo - O relator da Comissão Parlamentar Mista de Inquérito (CPMI) da JBS, deputado Carlos Marun (PMDB-MS), decidiu retirar de seu parecer final uma sugestão de projeto de lei para regulamentar a delação premiada. Como mostrou o jornal O Estado de S. Paulo nesta quarta-feira (13) uma das propostas desse PL é que os delatados sejam notificados de que o acordo foi fechado - e que eles foram citados - antes da homologação do acordo. Na prática, isso faria com que futuros investigados fossem avisados de que estão na mira dos investigadores.
+O item "proposição legislativa para regulamentação da delação premiada" constava do relatório parcial elaborado pelo deputado Wadih Damous (PT-RJ), que havia sido incorporado, inicialmente, por Marun no seu parecer. No artigo 6º do tal projeto, Damous estipula: "Concluídas as negociações sobre o acordo de delação premiada, o Ministério Público cientificará as pessoas delatadas, que terão o prazo de 15 dias para impugnar o acordo e juntar documentos comprobatórios". No artigo seguinte, o projeto estipula que depois dos 15 dias, o MP encaminhará a delação, junto com as impugnações, ao juiz para homologação.
+LEIA TAMBÉM
+» Pedido de vista adia votação do relatório de Marun na CPMI da JBS
+» Marun sugere indiciamento de Janot por abuso de autoridade
+» Temer fecha escolha de Marun para substituir Imbassahy
+Questionado sobre o recuo de Marun, o deputado do PT reagiu. "É um mistura de burrice com covardia [do relator]", afirmou. Apesar do relator desistir da proposição legislativa na CPMI, um projeto de lei de Damous semelhante a este continua em tramitação na Comissão de Constituição e Justiça (CCJ) da Câmara Já Marun justificou a retirada deste trecho sob o argumento de que faltava "discutir o assunto". "Ontem eu incorporei na íntegra um relatório dele. Penso que se trata da apresentação de um projeto de lei sem que tenha havido discussão. Eu tenho convicção de que são necessárias, digamos, o aprofundamento da lei e que seja garantido mais transparência e a voluntariedade", disse o relator.
+A proposta que havia sido incluída no relatório é considerada temerária por procuradores, que veem nisso uma tentativa de inviabilizar os acordos. A homologação do juiz é considerada crucial para que o acordo de delação possa ser usado em medidas de investigação - como pedidos de quebra de sigilo bancário e telefônico, buscas e apreensões ou prisões preventivas. A delação costuma ser mantida em sigilo para evitar a retaliação ao delator e a destruição de provas que podem ser úteis à investigação.
+A jurisprudência do Supremo Tribunal Federal (STF) até o momento não aceita a impugnação de acordos de delação pelos delatados. O projeto também estipula que só poderão firmar acordos de delação os investigados que estiverem em liberdade - presos, portanto, não poderiam lançar mão do instituto como instrumento de defesa
+Outro ponto controverso que estava na propositura da CPMI é sobre o que fazer quando uma acordo de delação é rescindido. Hoje, nesses casos, as provas e informações trazidas pelo colaborador ainda podem ser utilizadas em processos judiciais. A CPI defende que "serão nulas todas as provas obtidas através do acordo de delação premiada rescindido".
+Procuradores e "amigo de Moro"
+Outro recuo de Marun foi em relação ao pedido de investigação de procuradores da Lava Jato e um suposto "amigo" do juiz Sérgio Moro. Os pedidos também constavam do relatório parcial de Damous e haviam sido incorporados por Marun.
+Nesta quarta-feira, Marun disse que vai debater com Wadih Damous o trecho no qual ele recomenda, ao Ministério Público Federal, um pedido de investigação contra Roberto Pozzobom, Júlio Noronha e Carlos Fernando dos Santos Lima. Os três são procuradores da República que atuam na Operação Lava Jato e são responsáveis por acordos de colaboração premiada.
+A justificativa seria saber a relação dos três com o advogado Carlos Zucolotto, suposto amigo e padrinho de casamento do juiz Sérgio Moro. Isso porque, à CPMI, o advogado Rodrigo Tacla Durán, suspeito de atuar como operador da Odebrecht, acusa Zucolotto de intermediar negociações paralelas dele com a força-tarefa da Operação Lava Jato.
+Abuso de autoridade
+Marun decidiu manter em seu texto, no entanto, o encaminhamento de um ofício para que o presidente da Câmara dos Deputados, Rodrigo Maia (DEM-RJ), aprove a célere tramitação do Projeto de Lei 7596/2017, que trata do abuso de autoridade, outra proposta que também é considerada por magistrados uma forma de limitar os trabalhos da Justiça.

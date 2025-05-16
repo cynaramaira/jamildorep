@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Lafepe recebe instalação de gás natural da Copergás"
+date: 2024-04-12
+tags: jamildo, Lafepe, copergás, Gás Natural
+author: Jamildo Melo
+---
+o presidente da Companhia Pernambucana de G&aacute;s (Coperg&aacute;s), Felipe Valen&ccedil;a, informou ao blog de Jamildo que a estatal instalou rede de g&aacute;s natural para abastecer a produ&ccedil;&atilde;o do Laborat&oacute;rio Farmac&ecirc;utico do Estado de Pernambuco (Lafepe).
+O combust&iacute;vel j&aacute; est&aacute; sendo utilizado na gera&ccedil;&atilde;o de vapor no parque industrial em Dois Irm&atilde;os, abrangendo as unidades de Divis&otilde;es de S&oacute;lidos I e II. O consumo por m&ecirc;s do g&aacute;s natural ser&aacute; de aproximadamente de 16.500 m3.
+A redu&ccedil;&atilde;o em gastos de energia ser&aacute; de aproximadamente 43%, gerando uma economia de cerca de R$ 100 mil por m&ecirc;s, chegando a R$ 1,2 milh&atilde;o por ano. O investimento para a convers&atilde;o da energia foi de R$ 700 mil por parte do Lafepe, que ser&aacute; recompensado em 16 meses com a redu&ccedil;&atilde;o de custos.
+&ldquo;A parceria da Coperg&aacute;s com o Lafepe fortalece a a&ccedil;&atilde;o de entidades p&uacute;blicas do governo do Estado, trazendo mais benef&iacute;cios para os pernambucanos e aplicando a renova&ccedil;&atilde;o da matriz energ&eacute;tica, mais eficiente e moderna e menos poluente&rdquo;, explicou o presidente da Coperg&aacute;s, Felipe Valen&ccedil;a.
+&ldquo;Por sermos empresas p&uacute;blicas estaduais, precisamos dar exemplo, estar na vanguarda das matrizes energ&eacute;ticas sustent&aacute;veis e sermos capazes de fazer mais com menos recursos e custos operacionais. Ao adotar o g&aacute;s natural, o Lafepe economiza recursos importantes que poder&atilde;o ser revertidos em novos investimentos&rdquo;, disse o presidente do Lafepe, Pl&iacute;nio Pimentel.
+O secret&aacute;rio de Desenvolvimento Econ&ocirc;mico de Pernambuco, Guilherme Cavalcanti, ressalta que o governo est&aacute; ampliando a malha de g&aacute;s natural nas ind&uacute;strias instaladas no Estado.
+&ldquo;Garanhuns, Petrolina e Araripina s&atilde;o munic&iacute;pios em que a Coperg&aacute;s est&aacute; expandindo o servi&ccedil;o de instala&ccedil;&atilde;o de g&aacute;s natural que &eacute; um combust&iacute;vel menos poluente, compactuando com a pol&iacute;tica de descarboniza&ccedil;&atilde;o estadual e efici&ecirc;ncia energ&eacute;tica&rdquo;, acrescenta o secret&aacute;rio.
+O Lafepe informou que pretende ampliar o uso do g&aacute;s natural para outros setores do parque industrial como no backup de gera&ccedil;&atilde;o de energia el&eacute;trica e no refeit&oacute;rio. At&eacute; ent&atilde;o, o laborat&oacute;rio utilizava o &oacute;leo BPF na gera&ccedil;&atilde;o de vapor. Por m&ecirc;s, eram queimadas aproximadamente 16,8 toneladas/m&ecirc;s de &oacute;leo e, agora, passou a adotar uma fonte de energia extremamente limpa e sustent&aacute;vel.

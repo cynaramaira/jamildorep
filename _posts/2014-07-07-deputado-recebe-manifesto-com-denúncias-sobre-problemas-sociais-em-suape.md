@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Deputado recebe manifesto com denúncias sobre problemas sociais em Suape"
+date: 2014-07-07
+tags: deputado,problemas auditivos,sociais
+author: None
+---
+O presidente da Comissão de Cidadania, Direitos Humanos e Participação Legislativa da Assembleia Legislativa, deputado Betinho Gomes, se reuniu, na tarde de hoje, com o Grupo Peregrinos e Peregrinas do Nordeste (GPPN). No encontro, ocorrido no auditório da Casa, o parlamentar recebeu dos presentes o manifesto “Grito de Denúncias das Vítimas de Suape”. Também participou do encontro o presidente da Comissão de Cidadania da Câmara de Olinda, vereador Marcelo Santa Cruz.
+Um documento que denuncia os impactos sofridos pela população com o advento da implantação do Porto de Suape. Foram denúncias colhidas através da ouvida dos peregrinos – por meio das Assembleias do Povo – a cidades que integram o complexo portuário como Rio Formoso, Sirinhaém, Ipojuca, Cabo de Santo Agostinho e Pontezinha.
+No manifesto, o grupo denuncia a violação dos direitos humanos no que diz respeito à degradação ambiental, prostituição (notadamente com menores), DST’s, degradação familiar, drogas, violência, desemprego, moradia e outras. “Vimos denunciar os impactos sofridos pelo povo com o advento da implantação do complexo portuário de Suape e exigir dos órgãos públicos ações reparadoras e preventivas”, diz o documento.
+O deputado ressaltou que encaminhará o documento a todos os órgãos considerados importantes para serem acionados na busca da resolução desses problemas. “A comissão está aberta para acolher, novamente, esse debate. Estamos à disposição para alertar a sociedade sobre o tamanho desse problema”, destacou Betinho, ressaltando que a Comissão de Cidadania já realizou audiências públicas para tratar das questões de Suape.
+Assinaram o manifesto, além do GPPN, o Instituto Humanitas Unicap (IHU), Centro de Estudos Biblícos (CEBI), Comissão Pastoral da Terra (CPT), Conselho Pastoral dos Pescadores (CPP), Província Franciscana do Nordeste (OFM), Gabinete da Assessoria Jurídica as Organizações Populares (GAJOP), Movimento dos Trabalhadores Cristãos (MTC), Comunidade de Jesus em Feira de Santana, Primeira Igreja Batista em Bultrins e Aliança de Batista do Brasil.

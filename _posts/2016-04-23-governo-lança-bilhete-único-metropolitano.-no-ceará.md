@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Governo lança bilhete único metropolitano. No Ceará"
+date: 2016-04-23
+tags: arco metropolitano,Ceará,governo,Lançamento
+author: None
+---
+O governador do Ceará, Camilo Santana, participou da solenidade em Caucaia e Maracanaú e, durante o evento, recebeu um cartão do Bilhete Único e acompanhou o processo de cadastramento nos stands.
+"Hoje é um dia importante pois não há nada mais simbólico para nós, gestores, que assumir os nossos compromissos. Por dia, cerca de 60 mil pessoas vão para Fortaleza e precisam pagar mais de uma passagem. Agora, elas vão pagar só R$ 3,60, vão economizar cerca de R$ 120 por mês e não vai precisar parar em terminal, vai poder pegar quantos ônibus quiser. É rápido fazer o cadastro, com 10 dias o usuário deve receber o cartão. Os ônibus já estão com os leitores do cartão instalados, em junho todos já vão poder utilizar. Farei questão de pegar o ônibus para testar", disse o governador.
+O sistema será gerido pela Secretaria das Cidades, por meio do Departamento Estadual de Trânsito (Detran).
+A expectativa do Detran é de que 60 mil usuários de 14 municípios façam o cadastramento para ter direito ao Cartão Metropolitano. No entanto, de acordo com o Detran, esse número pode chegar a 75 mil pessoas.
+"Estamos aqui bastante felizes por concretizarmos esse benefício, principalmente para as pessoas mais carentes. Ele é do povo trabalhador, da dona de casa, sabemos que o transporte pesa muito no bolso. É importante que o Estado esteja priorizando o transporte coletivo, e esse benefício é todo da caixa do governo estadual. Quando assumi a Secretaria o governador fez questão de tocar o Bilhete Único, pois era compromisso de campanha, fizemos várias reuniões com empresas de ônibus, várias simulações. É uma conquista de todos nós estarmos hoje aqui", disse o secretário de Cidades, Lúcio Gomes.
+O Bilhete Único Metropolitano possibilitará que a população de 14 municípios da Região Metropolitana de Fortaleza utilize o transporte público de forma integrada, com custo reduzido. Ele possibilitará ao passageiro fazer a integração entre os dois sistemas (metropolitano e urbano) no período de três horas. Para cada viagem integrada, a economia para o usuário é de R$ 2, para passagem inteira, e de R$ 1 para meia passagem, debitado no Cartão Bilhete Único Metropolitano.
+Para a efetivação do cartão, os interessados devem adquirir uma primeira recarga mínima que irá gerar um crédito a ser utilizado quando o serviço entrar em funcionamento, a partir do dia 1º de junho. Idosos e estudantes continuam com seus benefícios garantidos.
+São 14 municípios da Região Metropolitana beneficiados com o subsídio do Bilhete Único Metropolitano: Caucaia, São Gonçalo do Amarante, Maracanaú, Maranguape, Guaiúba, Pacatuba, Aquiraz, Eusébio, Horizonte, Itaitinga, Pacajus, Chorozinho, Cascavel e Pindoretama.

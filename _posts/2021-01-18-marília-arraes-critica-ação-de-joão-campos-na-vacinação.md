@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Marília Arraes critica ação de João Campos na vacinação"
+date: 2021-01-18
+tags: ação,crítica,João Campos,Marília Arraes,vacinação
+author: None
+---
+A deputada federal Marília Arraes (PT), criticou que a Prefeitura do Recife tenha divulgado, nesta manhã, informações gerais e sem maiores detalhamentos sobre o Plano de Vacinação da capital, sem responder a questionamentos sobre a suposta falta de medicamentos essenciais para a manutenção do tratamento e garantia à vida de pacientes internados com COVID-19 no Hospital Provisório Recife I, feitas desde a semana passada.
+De acordo com o relato de cidadãos e cidadãs do Recife, que procuraram o gabinete da parlamentar, a unidade identificada como Hospital Recife I estaria operando por dias seguidos sem medicamentos bloqueadores neuromusculares, essenciais para a utilização durante procedimentos de entubação de pacientes graves.
+"Desde o último dia 12 um pedido de informação foi encaminhado pela deputada para a secretária de Saúde do recife, Luciana Albuquerque. Até a tarde de hoje não foi enviada nenhuma manifestação negando ou confirmando as denúncias ou dando qualquer explicação sobre o tema, que é gravíssimo", afirmou.
+"Esse tipo de medicação é essencial para uma série de procedimentos, inclusive de entubação de pacientes com necessidade de ventilação mecânica. De acordo com diversos depoimentos de profissionais de saúde coletados na imprensa local e nacional, a falta bloqueadores neuromusculares pode colocar em risco o sucesso do tratamento de pacientes graves, inclusive com risco de morte. É fundamental que a Secretaria de Saúde explique o que realmente está acontecendo. As pessoas que nos procuraram estão desesperadas e vieram pedir ajuda porque não conseguiram informações ou soluções do poder público municipal. Acabamos de testemunhar o que aconteceu em Manaus, onde muitas pessoas morreram por falta de um insumo básico, o oxigênio. É preciso ter transparência máxima e respeito com a população!”, disse Marília Arraes.

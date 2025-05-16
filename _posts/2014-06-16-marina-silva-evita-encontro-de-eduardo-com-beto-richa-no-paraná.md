@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Marina Silva evita encontro de Eduardo com Beto Richa no Paraná"
+date: 2014-06-16
+tags: eduardo,encontro,Marina Lima,Paraná,Pensilvania,Poetas Analfabetos,Richarlison
+author: None
+---
+Da  Agência Estado
+A pré-candidata à vice-Presidência da República, Marina Silva (PSB), evitou nesta segunda-feira (16) participar de um encontro que seu companheiro de chapa, Eduardo Campos (PSB), teve com o governador do Paraná, Beto Richa (PSDB), em Londrina. No Paraná, Marina Silva apoia os candidatos do Partido Verde ao governo estadual e Câmara Federal, enquanto o PSB confirmou apoio à reeleição do governador Beto Richa.
+Eduardo Campos e Marina Silva chegaram juntos a Londrina, onde visitaram, no início da manhã, diversos órgãos de imprensa. No entanto, quando o pré-candidato à Presidência do PSB partiu para um encontro de quase duas horas com Beto Richa, ela tomou outro rumo - foi visitar o Jardim Botânico de Londrina, acompanhada de 'marineiros' locais e de pré-candidatos do PV. O desvio de Marina foi decidido de última hora e ela voltou a encontrar Campos após ele se despedir do governador. Os aliados de Marina no Paraná são oposição ao governo tucano alegando que não há compromisso com a agenda ambiental.
+No encontro, o ex-governador de Pernambuco e o governador do Paraná fizeram ampla troca de elogios. "Aqui no Paraná, o PSB tem uma parceria com o governador Beto Richa que tem êxito e que vai prosseguir. E nós temos na nossa base de sustentação ao projeto nacional, meu e da Marina, partidos que não estão no palanque estadual, e nós respeitamos. A própria REDE tem caminho próprio aqui", apontou Eduardo Campos.
+Beto Richa agradeceu ao PSB e se disse 'honrado' pelo apoio de Eduardo Campos e de Aécio Neves (PSDB) à sua reeleição. O governador do Paraná chegou a dizer que a administração de Campos em Pernambuco serve de "exemplo" para outros estados.
+"RAPOSAS" - Apesar da afinação no Paraná, o pré-candidato do PSB fez críticas ao PSDB em nível nacional. Ele condenou a "polarização" entre PT e PSDB e disse que os dois partidos governaram com as "raposas que devem ser tiradas da cena política".
+"É mudar o jeito de governar, não só mudar o governo, é colocar na oposição aqueles que cercam todos os governos que vão a Brasília. Não vamos governar o Brasil com Collor, com Sarney", disse. Mais cedo, Marina Silva havia acrescentado o presidente do Senado, Renan Calheiros (PMDB), entre os políticos que devem ser tirados do governo.
+Eduardo Campos também voltou a mirar no governo Dilma, que acusou de ter "piorado o País". Segundo ele, o Brasil tem o menor crescimento da história republicana, está trazendo de volta a inflação e apresenta fracos resultados em saúde, educação, segurança e mobilidade urbana.
+"Se fizermos as contas, vamos ver que tem gente nos grandes centros que passa um mês e meio (por ano) em trens, metrôs e ônibus para ir ao trabalho. A mobilidade está um horror", disse.
+Após a visita a Londrina, Eduardo Campos e Marina Silva partiram juntos para Maringá, onde cumpriram agenda com lideranças empresariais. A visita a Ponta Grossa, no final da tarde, foi cancelada porque não houve liberação de pouso no campo de aviação.

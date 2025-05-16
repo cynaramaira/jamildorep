@@ -1,0 +1,17 @@
+---
+layout: post
+title: "EXCLUSIVO: Raquel retirou defesa civil da Casa Militar, mas não repassou recursos para nova Secretaria. Coronel alerta por período de fortes chuvas"
+date: 2023-04-27
+tags: jamildo, raquel lyra
+author: Jamildo Melo
+---
+O chefe da Casa Militar do governo Raquel Lyra (PSDB) alertou 5 secret&aacute;rios estaduais da gest&atilde;o tucana que uma demora burocr&aacute;tica poder&aacute; ter graves resultados, no tocante &agrave; Defesa Civil, no per&iacute;odo de fortes chuvas que se aproxima. O Blog tece acesso ao of&iacute;cio, sob reserva de fonte jornal&iacute;stica, com um dos cinco destinat&aacute;rios.
+O coronel Hercilio da Fonseca Mamede, secret&aacute;rio-chefe da Casa Militar, alerta os colegas de Governo que a reforma administrativa, feita pela governadora Raquel Lyra (PSDB) em janeiro, retirou a Defesa Civil da Casa Militar, repassando as fun&ccedil;&otilde;es para a Secretaria de Defesa Social.
+Sob reserva de fonte, um secret&aacute;rio informa que a ideia de retirar da Casa Militar da defesa civil teria sido evitar que "se repetisse o esc&acirc;ndalo da Opera&ccedil;&atilde;o Torrentes", na qual a Casa Militar nas gest&otilde;es do PSB foi acusada pelo Minist&eacute;rio P&uacute;blico Federal de supostamente desviar recursos da defesa civil para v&iacute;timas das enchentes.
+Pois bem.
+O atual secret&aacute;rio-chefe da Casa Militar alertou os colegas secret&aacute;rios que, apesar da lei ter retirado a defesa civil da Casa Militar, at&eacute; agora, nenhuma provid&ecirc;ncia foi tomada para retirar a verba or&ccedil;ament&aacute;ria da defesa civil da Casa Militar e repassar a mesma verba para a Secretaria de Defesa Social.
+A urg&ecirc;ncia do alerta, feito em 24 de abril, se deu pela proximidade do per&iacute;odo de fortes chuvas no Estado.
+"Considerando ainda a proximidade da quadra chuvosa no Estado, onde ocorre maior precipita&ccedil;&atilde;o h&iacute;drica e uma maior probabilidade de desastres, como enchentes e deslizamentos de barreiras, sendo a Defesa Civil o &Oacute;rg&atilde;o competente para atuar nesse cen&aacute;rio, tendo uma maior movimenta&ccedil;&atilde;o financeira, tendo em vista as aquisi&ccedil;&otilde;es e distribui&ccedil;&atilde;o de mantimentos e materiais para minimizar as consequ&ecirc;ncias dos desastres", alerta o coronel.
+Assim, segundo a fonte, a defesa civil est&aacute; sem verba nenhuma em 2023, no governo Raquel Lyra, enquanto n&atilde;o for resolvida essa "pend&ecirc;ncia burocr&aacute;tica".
+"Valho-me do presente instrumento para solicitar de V.S&ordf;, gest&atilde;o junto &agrave;s Secretarias sobreditas, a fim de otimizar os processos de transfer&ecirc;ncias or&ccedil;ament&aacute;rias e financeira, a fim de n&atilde;o haver solu&ccedil;&atilde;o de continuidade nas a&ccedil;&otilde;es de prote&ccedil;&atilde;o e defesa civil, que ainda est&atilde;o sobre a responsabilidade desta Casa Militar para a SDS, no intuito de atender aos ditames legais no tocante a compet&ecirc;ncia, governan&ccedil;a e responsabiliza&ccedil;&atilde;o de todos os atos praticados pela Defesa Civil Estadual", pede a Casa Militar.
+Fica aberto o espa&ccedil;o ao Governo do Estado, caso queira se manifestar.

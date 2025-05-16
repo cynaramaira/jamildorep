@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Arquivamento de processos: o irreparável prejuízo provocado pela Lava Jato ao Brasil"
+date: 2022-01-28
+tags: Justiça Federal
+author: JAMILDO MELO
+---
+Por C&aacute;ssio Faeddo, em artigo enviado ao blog
+Restando fulminado pela prescri&ccedil;&atilde;o, o processo que envolvia o ex-presidente Lula e o caso do Tr&iacute;plex no Guaruj&aacute; ser&aacute; destinado ao arquivo.
+Lamentavelmente, toda confus&atilde;o causada pela postura dos procuradores e do pr&oacute;prio juiz S&eacute;rgio Moro, ao criar um gabinete virtual em um aplicativo de mensagens, apenas serviu para desperd&iacute;cio de dinheiro p&uacute;blico e para fragilizar a imagem do Poder Judici&aacute;rio perante &agrave; popula&ccedil;&atilde;o.
+Distribuir justi&ccedil;a requer uma postura discreta e aplica&ccedil;&atilde;o de paridade de armas das partes envolvidas. As reiteradas a&ccedil;&otilde;es espetaculosas dos agentes do Estado envolvidos nas investiga&ccedil;&otilde;es e processos dever&atilde;o, como sempre deveriam, serem extirpadas das futuras a&ccedil;&otilde;es de investiga&ccedil;&otilde;es e do Judici&aacute;rio.
+Se um membro do Minist&eacute;rio P&uacute;blico ou magistrado desejar ter fama, que abandone a carreira p&uacute;blica e siga o caminho da iniciativa privada. Enrique&ccedil;a &agrave;s custas de seu pr&oacute;prio esfor&ccedil;o privado, e n&atilde;o em raz&atilde;o de uma causa que &eacute; p&uacute;blica e de interesse da sociedade.
+Quando o Estado tomou para si o poder/dever de distribuir justi&ccedil;a, retirando das m&atilde;os dos reis a espada da Lei, assim o fez com alicerce na estrita obedi&ecirc;ncia do cumprimento dos Direitos Fundamentais. Distribuir justi&ccedil;a n&atilde;o &eacute; um favor, tampouco &eacute; palco para estrelas.
+Combater a corrup&ccedil;&atilde;o &eacute; pol&iacute;tica de Estado, n&atilde;o pol&iacute;tica de governo. O Poder Judici&aacute;rio n&atilde;o deve ser instrumento indevido de politiza&ccedil;&atilde;o e se lamenta muito que a Lava Jato tenha catalisado tantas causas e tenha errado tanto.
+Evidente que qualquer processo que j&aacute; foi anulado, ou que doravante seja arquivado, ser&aacute; utilizado politicamente por todos os beneficiados pelos erros grosseiros cometidos nos processos conduzidos pela Lava Jato e julgados pelo ent&atilde;o Juiz S&eacute;rgio Moro.
+Qualquer advogado melhor preparado buscaria incessantemente por nulidades nos processos que envolviam importantes e poderosas figuras da Rep&uacute;blica. Por isso, errar na aplica&ccedil;&atilde;o de direitos b&aacute;sicos, de conhecimento de qualquer acad&ecirc;mico de Direito, como ampla defesa, contradit&oacute;rio, equidist&acirc;ncia do julgador, prec&aacute;ria fundamenta&ccedil;&atilde;o de senten&ccedil;as, &eacute; imperdo&aacute;vel e um dano irrepar&aacute;vel ao Brasil.
+Milhares de empregos perdidos, empresas quebradas, desgaste da popula&ccedil;&atilde;o, descr&eacute;dito da justi&ccedil;a, este &eacute; o legado de fazer de Curitiba o foro de atra&ccedil;&atilde;o de todas os processos que possu&iacute;ssem qualquer fr&aacute;gil liame com a corrup&ccedil;&atilde;o na Petrobr&aacute;s.
+O erro foi das pessoas envolvidas nos processos, e n&atilde;o da aplica&ccedil;&atilde;o da Lei pelo STF.
+Transformaram-se agentes pol&iacute;ticos em estrelas pop, e o resultado est&aacute; a&iacute;: arquivamentos de processos sem julgamento de m&eacute;rito, liberdades precoces, prescri&ccedil;&atilde;o, preju&iacute;zo econ&ocirc;mico e moral, interfer&ecirc;ncia em processo eleitoral e desgaste.
+Daqui para frente, que tudo isso sirva de li&ccedil;&atilde;o. Aguardemos, com esperan&ccedil;a, que os conselhos e &oacute;rg&atilde;os superiores tomem o caminho de colocar ordem na postura de membros do Judici&aacute;rio e do Minist&eacute;rio P&uacute;blico que se julguem mais importantes que a Lei.
+C&aacute;ssio Faeddo. Advogado. Mestre em Direito. Especialista em Ci&ecirc;ncias Pol&iacute;ticas - USCS. MBA em Rela&ccedil;&otilde;es Internacionais &ndash; FGV/SP.

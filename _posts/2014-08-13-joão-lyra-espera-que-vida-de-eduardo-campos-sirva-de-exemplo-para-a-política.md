@@ -1,0 +1,21 @@
+---
+layout: post
+title: "João Lyra espera que vida de Eduardo Campos sirva de exemplo para a política"
+date: 2014-08-13
+tags: dívida,eduardo campos,joão d,Política,raquel lyra
+author: None
+---
+Governador de Pernambuco fala sobre a morte de Eduardo Campos
+Depois de passar sete anos como vice do ex-governador Eduardo Campos (PSB), falecido na manhã desta quarta-feira (13) em um acidente aéreo no interior de São Paulo, o atual governador João Lyra Neto (PSB) afirmou que espera que a vida do ex-presidenciável sirva de exemplo para a classe política.
+"Lamento o trágico acontecimento. Mas que a vida dele sirva de exemplo para todos nós, de muita voluntariedade e, acima de tudo, de muito compromisso com o povo pernambucano e do povo brasileiro", disse Lyra à imprensa.
+Leia também: Eduardo Campos morre em queda de avião em São Paulo
+O governador disse viver um dos momentos mais difíceis da vida, por ter perdido um amigo e o líder político. Ele também lembrou a trajetória de 15 anos fazendo política ao lado de Campos.
+"Quero levar ao povo de Pernambuco, ao povo brasileiro, a minha palavra de solidariedade, a minha palavra de muita tristeza. Mas, ao mesmo tempo, de muita esperança", disse.
+"Vou concluir o seu mandato até 31 de dezembro de 2014. Vou chegar lá com a consciência tranquila. A minha e com certeza seria a dele. Nós cumprimos a nossa missão durante oito anos à frente do Governo de Pernambuco", afirmou o governador.
+Íntegra da nota de pesar enviada pelo governador de Pernambuco, João Lyra
+Ainda chocado com a tragédia, em nome do povo de Pernambuco, lamento  profundamente a morte do ex-governador do Estado, Eduardo Campos, político que deixa um legado de serviços prestados, principalmente aos mais pobres. Sinto neste momento uma enorme dor, e a vejo compartilhada com todos os que conheceram Eduardo Campos e passaram a admirá-lo, nestes anos de dedicação à vida pública.
+Nossos profundos sentimentos à família de Eduardo Campos. Peço a Deus que conforte sua esposa, Renata, e seus filhos Maria Eduarda, João, Pedro, José e Miguel, além do seu irmão, o advogado Antônio Campos, e sua mãe, a ministra Ana Arraes.  Sei como este momento está sendo difícil, mas consola saber o exemplo de filho, irmão, esposo,  pai  e homem público que deixou para sua família. Também minhas condolências aos familiares das demais vítimas do acidente: Carlos Augusto Ramos Leal Filho (Percol), Pedro Almeida Valadares Neto, Alexandre Severo Gomes, Marcelo de Oliveira Lyra, Geraldo da Cunha e Marcos Martins.
+Eduardo conseguiu dar dimensão nacional e internacional  a Pernambuco com sua forma inovadora de governar, colocando o Estado na  agenda da política nacional. Como líder do Partido Socialista Brasileiro (PSB) conseguiu unir diversas lideranças em torno de um projeto de mudança para o Brasil.
+Herdou do seu avô Miguel Arraes os compromissos históricos de liberdade, igualdade social e democracia, da mais pura tradição das heroicas lutas pernambucanas. Como homem público, ocupante de diversos cargos no Legislativo e no Executivo, tanto em nível estadual como federal, obteve o respeito e a confiança do povo brasileiro.
+Na sua gestão como governador de Pernambuco, imprimiu um trabalho sério e inovador. Honrou seus compromissos, empenhando neles todas as suas forças, para dotar o Estado de uma máquina pública eficiente. Seu governo, do qual fiz parte com muita honra, deixou aos pernambucanos um Estado melhor para se viver, através de um modelo de gestão reconhecido nacional e internacionalmente e premiado pelas Nações Unidas.
+Com a dor dessa grande perda, consola saber o grande homem público que foi Eduardo Campos, que deixa um exemplo de luta em favor dos mais necessitados. Precisamos dar continuidade a esse trabalho, honrando seus compromissos de um Pernambuco cada vez mais consolidado no seu desenvolvimento econômico com  justiça social. Que o legado da vida política de Eduardo permaneça como sinal de esperança para o povo de Pernambuco.

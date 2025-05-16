@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Tarcísio de Freitas supreende em São Paulo e sanciona lei que prevê distribuição gratuita de remédios com cannabis no SUS"
+date: 2023-02-01
+tags: jamildo, Tarcísio de Freitas
+author: Jamildo Melo
+---
+O estado de S&atilde;o Paulo sancionou, neste 31 de janeiro, a distribui&ccedil;&atilde;o gratuita de cannabis medicinal atrav&eacute;s do Sistema &Uacute;nico de Sa&uacute;de (SUS). O texto, homologado pelo governador Tarc&iacute;sio Gomes de Freitas, faz parte do Projeto de Lei 1.180/2019, de autoria do deputado Caio Fran&ccedil;a, que j&aacute; havia sido aprovado pela Assembleia Legislativa de S&atilde;o Paulo (Alesp) em dezembro do ano passado.
+Segundo a Associa&ccedil;&atilde;o Brasileira das Ind&uacute;strias de Cannabis (ABICANN), a cannabis medicinal pode impactar tratamentos e pesquisas cl&iacute;nicas em dezenas de especialidades m&eacute;dicas e beneficiar milhares de pessoas.
+Em S&atilde;o Paulo, o n&uacute;mero de pacientes autorizados pela Anvisa a importar produtos de cannabis j&aacute; ultrapassa 40 mil pessoas. Entretanto, o alto pre&ccedil;o dessas f&oacute;rmulas limita o acesso de muitos pacientes.
+&ldquo;S&atilde;o Paulo vai ter uma pol&iacute;tica p&uacute;blica dedicada e esse medicamento. &Eacute; uma grande vit&oacute;ria&rdquo;, comemora o governador.
+&ldquo;O que n&atilde;o queremos &eacute; que ocorra o mesmo [que houve] em outros estados, em que a lei foi sancionada, mas n&atilde;o est&aacute; viva. Estamos convictos de que estamos fazendo a coisa certa&rdquo;, complementa.
+Agora, cabe &agrave; Secretaria de Sa&uacute;de a regulamenta&ccedil;&atilde;o da lei. A legisla&ccedil;&atilde;o prev&ecirc; que, ap&oacute;s a san&ccedil;&atilde;o, o prazo para a lei entrar em vigor &eacute; de 30 dias, e defineque os medicamentos devem ter registro pr&eacute;vio na Ag&ecirc;ncia Nacional de Vigil&acirc;ncia Sanit&aacute;ria (Anvisa) e s&oacute; ser&atilde;o distribu&iacute;dos mediante laudo m&eacute;dico para doen&ccedil;as com Classifica&ccedil;&atilde;o Internacional de Doen&ccedil;as e Problemas Relacionados &agrave; Sa&uacute;de (CID), como Parkinson, Alzheimer, epilepsia, autismo e doen&ccedil;as raras. Para ter acesso ao tratamento, o paciente deve realizar um cadastro pr&eacute;vio na Secretaria da Sa&uacute;de do Estado.
+&ldquo;Sofrer com uma condi&ccedil;&atilde;o cr&ocirc;nica e n&atilde;o encontrar al&iacute;vio adequado, mesmo j&aacute; existindo a alternativas dispon&iacute;veis no mercado, como o uso medicinal da cannabis, &eacute; um atraso para a sa&uacute;de p&uacute;blica e a medicina nacional&rdquo;, comenta Kathleen Fornari, CEO e cofundadora da Anna Medicina Endocannabinoide, startup brasileira que nasceu para desburocratizara o acesso &agrave; cannabis medicinal no pa&iacute;s.
+&ldquo;Com essa novidade, S&atilde;o Paulo estar&aacute; na vanguarda brasileira, atendendo principalmente aqueles pacientes que n&atilde;o t&ecirc;m recursos para o tratamento com medicina endocanabinoide&rdquo;, celebra.

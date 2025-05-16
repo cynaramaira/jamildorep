@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Augusto Coutinho propõe quarentena política para magistrados e delegados antes de disputar eleições"
+date: 2021-05-10
+tags: Augusto Aras,eleições,Philippe Coutinho,Política,quarentena,variantes
+author: None
+---
+O deputado federal Augusto Coutinho (Solidariedade-PE) apresentou, neste mês, o Projeto de Lei nº 56/2021 que cria uma espécie de “quarentena eleitoral” para membros do Ministério Público, Defensoria Pública, integrantes das Forças Armadas e dos órgãos de segurança, como policiais federais, policiais rodoviários federais, policiais civis e militares, caso eles decidam participar de processos eleitorais.
+Pela legislação proposta pelo parlamentar, esses profissionais precisariam respeitar o prazo mínimo de seis anos após a vacância ou exclusão do serviço ativo dos respectivos cargos para embarcar em projetos político-partidários em qualquer cargo público – vereador, prefeito, vice-prefeito, deputado, senador, governador, vice-governador, presidente e vice-presidente da República.
+“Alguns agentes estatais estão se aproveitando do sucesso repentino causado por ações de forte impacto midiático e comoção popular para investir em candidaturas futuras em cargos eletivos”, destaca Augusto Coutinho.
+“Ademais, de forma frequente, com o seu ativismo, alguns deles também abusam do poder do cargo para perseguir pessoas ou grupos políticos adversários. É lamentável que alguns integrantes do Poder Público tenham adotado esse comportamento, ferindo princípios constitucionais, ditames legais e valores republicados”, afirma, ao justificar o Projeto de Lei usando como exemplo o caso de magistrados e agentes de segurança que embarcam em projetos políticos logo após ações de forte apelo nos meios de comunicação.
+Ao apresentar a proposta, o deputado pernambucano utilizou como justificativa o poder da imprensa e da divulgação de fatos, construídos por narrativas, bem antes do período eleitoral.
+"Nessas narrativas, são criados “heróis” e “violões” a partir de denúncias que muitas vezes ganham ares de julgamento público. Essas denúncias e apurações acabam beneficiando e prejudicando possíveis candidatos ou representantes no exercício dos seus mandados eletivos, o que hoje em dia é potencializado pelo uso das redes sociais. Ou seja, tem influência contundente no jogo eleitoral”, justificou o deputado.
+O projeto de lei de Augusto Coutinho, no entanto, dá garantias jurídicas e preserva os direitos adquiridos aos agentes públicos que já são titulares de mandatos eletivos ou que serão candidatos à reeleição.
+“Ao deixar essas carreiras estratégicas no setor público, esses agentes não poderão usufruir de qualquer possível vantagem eleitoral decorrente de suas atividades. Acredito que, com essa medida, preservaremos um processo eleitoral justo e equânime para todos os atores envolvidos”.

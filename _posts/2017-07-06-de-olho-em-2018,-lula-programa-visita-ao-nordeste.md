@@ -1,0 +1,15 @@
+---
+layout: post
+title: "De olho em 2018, Lula programa visita ao Nordeste"
+date: 2017-07-06
+tags: eleições2018,Lula,nordeste,programa,visita
+author: None
+---
+O presidente do PT de Pernambuco, Bruno Ribeiro, se reuniu com o ex-presidente Lula nesta quinta-feira (6) e anunciou que o líder petista vai fazer uma viagem pelo Nordeste nos próximos meses, a um ano das eleições de 2018. Lula deve ser o candidato do partido à presidência, mas aliados reconhecem que o nome dele na disputa está ameaçado pela Operação Lava Jato - réu, ele pode ser declarado ficha suja caso haja uma condenação em segunda instância até lá.
+O partido ainda defende a convocação de eleições diretas antes das que estão previstas para 2018. Se Michel Temer (PMDB) deixar a presidência hoje, seja renunciando - o que ele afirmou que não vai fazer - ou por condenação, quem assume provisoriamente é o presidente da Câmara, Rodrigo Maia (DEM-RJ), que deverá convocar eleições indiretas. Há, porém, uma Proposta de Emenda à Constituição (PEC) para mudar o sistema para voto popular nesse caso.
+"A conversa foi sobre a profunda crise atual e sobre a única saída defensável, que é a devolução ao povo brasileiro da decisão sobre quem preside o País, através das Diretas Já", disse Bruno Ribeiro sobre a reunião.
+ Lula e o presidente do PT de Pernambuco, Bruno Ribeiro (Foto: Divulgação)
+Lula esteve na Paraíba em março, com a ex-presidente Dilma Rousseff (PT), para um ato político de "reinauguração" do eixo leste da transposição do rio São Francisco. Com uma movimentação de Temer para usar a entrega da obra para melhorar a popularidade na região, onde o peemedebista tem menor aceitação, o petista cobrou a paternidade do projeto. No palanque, já foi tratado por aliados e pela militância do partido como candidato em 2018 e chegou a afirmar: "Eles peçam a Deus para eu não ser candidato". Por causa do tom, o subprocurador-geral da República Francisco Vieira Sanseverino protocolou uma representação no Tribunal Superior Eleitoral (TSE) em maio contra o ele por por propaganda eleitoral antecipada e pediu aplicação de multa.
+"Falamos sobre Pernambuco e sobre uma viagem que Lula fará por todo o Nordeste nos próximos meses. Também sobre a disposição dele de ajudar a construir os caminhos no Estado, junto com o partido e suas instâncias."
+Essa semana, o senador pernambucano Humberto Costa, líder da oposição na Casa, levou a vereadora do Recife Marília Arraes para um encontro com Lula em São Paulo. O nome dela é cotado para tentar a eleição para o Governo de Pernambuco, apesar de ser filiada ao PT há apenas um ano e meio, depois de sair do PSB por brigas com o grupo do primo Eduardo Campos. Após duas eleições sem lançar candidatos ao cargo – em 2010 estava na chapa de Eduardo e em 2014 com o atual senador Armando Monteiro, do PTB -, o Partido dos Trabalhadores tem defendido ter um nome próprio.
+&nbsp;

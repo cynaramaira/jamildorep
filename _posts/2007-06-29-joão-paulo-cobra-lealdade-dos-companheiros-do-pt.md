@@ -1,0 +1,13 @@
+---
+layout: post
+title: "João Paulo cobra lealdade dos companheiros do PT"
+date: 2007-06-29
+tags: cobra,joão d,Paulo
+author: None
+---
+Em uma mensagem dura &agrave;s diferentes tend&ecirc;ncias dentro do PT,&nbsp;o prefeito do Recife Jo&atilde;o Paulo defendeu nesta sexta, durante&nbsp;entrevista &agrave; R&aacute;dio JC/ CBN, que&nbsp;a legenda construa&nbsp;internamente&nbsp;a &quot;verdadeira unidade na pol&iacute;tica e na alma do partido&quot;.&nbsp;&nbsp;
+&quot;N&atilde;o adianta voc&ecirc; ter uma rela&ccedil;&atilde;o onde sempre pensa que o&nbsp;companheiro est&aacute; conspirando. N&atilde;o est&aacute; sendo leal. E sempre&nbsp;tem uma conspira&ccedil;&atilde;o por tr&aacute;s&quot;, comentou, diante de novas&nbsp;especula&ccedil;&otilde;es sobre resist&ecirc;ncias quanto &agrave; sua condu&ccedil;&atilde;o do&nbsp;processo sucess&oacute;rio.
+&quot;O PT primeiro tem de se acertar, tem que construir esse&nbsp;di&aacute;logo franco, olhando nos olhos, numa atua&ccedil;&atilde;o fraterna&quot;,&nbsp;recomendou. &quot;Depois, &eacute; conversar com os outros partidos e consolidar um proteo pol&iacute;tico&quot;.
+De qualquer modo, o prefeito continua insistindo que a&nbsp;discuss&atilde;o em torno de nomes s&oacute; deve se dar a partir de&nbsp;janeiro -&nbsp; embora setores da esquerda reclamem de sua prefer&ecirc;ncia pelo secret&aacute;rio de Planejamento e Or&ccedil;amento&nbsp;Participativo, Jo&atilde;o da Costa,&nbsp;e pela&nbsp;secret&aacute;ria de Gest&atilde;o&nbsp;Estrat&eacute;gica e Comunica&ccedil;&atilde;o, Lygia Falc&atilde;o.
+&quot;&Eacute; l&oacute;gico que, como coordenador deste processo, inclusive&nbsp;reconhecido pelo PT e pelos partidos de esquerda, n&oacute;s vamos&nbsp;escolher o nosso candidato, que representar&aacute;, acima de&nbsp;tudo, nossas propostas pol&iacute;ticas para dar continuidade&nbsp;&agrave; nossa gest&atilde;o, a meu ver vitoriosa, que n&oacute;s estamos levando&nbsp;ao longo destes sete anos &agrave; frente da prefeitura da cidade do Recife&quot;,&nbsp;afirmou.
+O prefeito&nbsp;disse n&atilde;o acreditar que possa haver uma quebra de&nbsp;unidadade na frente de esquerdas para as elei&ccedil;&otilde;es municipais de 2008. &quot;Mas se acontecer, faz parte do processo democr&aacute;tico&quot;,&nbsp;avaliou. &quot;Qualquer partido que discordar da posi&ccedil;&atilde;o do PT tem o direito livre de escolher as suas candidaturas&quot;.&nbsp;&nbsp;  

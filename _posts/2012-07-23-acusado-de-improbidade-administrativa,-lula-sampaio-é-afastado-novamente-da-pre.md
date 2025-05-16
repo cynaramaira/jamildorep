@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Acusado de improbidade administrativa, Lula Sampaio é afastado novamente da Prefeitura de Araripina"
+date: 2012-07-23
+tags: Araripina,improbidade administrativa,Lula,Prefeitura
+author: None
+---
+Foto: divulga&ccedil;&atilde;o/Prefeitura de Araripina
+O prefeito de Araripina - no Sert&atilde;o do Estado -, Lula Sampaio (PTB), dever&aacute; deixar a Prefeitura nas pr&oacute;ximas horas. Na tarde desta segunda-feira (23), a Corte Especial do Tribunal de Justi&ccedil;a do Estado (TJPE) aceitou um recurso do Minist&eacute;rio P&uacute;blico que pedia a cassa&ccedil;&atilde;o da liminar do presidente do TJPE, desembargador Jovaldo Nunes, autorizando a volta do prefeito no dia 19 deste m&ecirc;s. O petebista ficou afastado por 180 dias do cargo por uma a&ccedil;&atilde;o civil p&uacute;blica de improbidade administrativa.
+TJPE suspende decis&atilde;o que mantinha prefeito de Araripina afastado por acusa&ccedil;&atilde;o de improbidade administrativa
+Ap&oacute;s volta de Lula Sampaio, Justi&ccedil;a bloqueia contas da Prefeitura de Araripina
+Deste retorno &agrave; Prefeitura foi que o Minist&eacute;rio P&uacute;blico recorreu. O julgamento do processo foi adiado duas vezes. Logo na primeira sess&atilde;o, instalou-se uma diverg&ecirc;ncia no julgamento: dois votos contra e quatro a favor da pretens&atilde;o do MP. Na ocasi&atilde;o, o desembargador Silvio Beltr&atilde;o pediu vista ao processo e o trouxe na pr&oacute;xima sess&atilde;o, com um voto arrasador. &quot;A perman&ecirc;ncia de Lula Sampaio na Prefeitura de Araripina &eacute; um atentado ao interesse p&uacute;blico&quot;, disse na ocasi&atilde;o. Nesse dia, foi o desembargador Frederico Neves quem pediu vistas.
+
+Na sua decis&atilde;o desta tarde, o desembargador Frederico Neves, ao votar pelo afastamento do prefeito, disse que sua perman&ecirc;ncia na Prefeitura &quot;pode significar grande les&atilde;o ao interesse p&uacute;blico&quot;. Todos os desembargadores que haviam votado pelo afastamento incluiram nos seus votos a argumenta&ccedil;&atilde;o do desembargador Silvio Beltr&atilde;o, que recomendava o afastamento imediato de Lula Sampaio.
+Na quinta-feira (19), a Justi&ccedil;a atendeu a um pedido do MP e determinou o bloqueio de todas as contas da Prefeitura com o objetivo de resguardar o patrim&ocirc;nio p&uacute;blico. Assim, qualquer pagamento s&oacute; pode ser efetuado com autoriza&ccedil;&atilde;o judicial. Na ocasi&atilde;o, a promotora Vanessa Cavalcanti de Ara&uacute;jo, que prop&ocirc;s a a&ccedil;&atilde;o, assegurou que n&atilde;o haver&aacute; preju&iacute;zo ao pagamento dos servidores e de fornecedores.
+Investiga&ccedil;&otilde;es do MPPE e de auditores do Tribunal de Contas do Estado (TCE) encontraram, entre 19 de junho e 3 de julho, v&aacute;rios pagamentos &quot;na boca do caixa&quot; realizados pelo munic&iacute;pio com recursos do Fundo de Participa&ccedil;&atilde;o dos Munic&iacute;pios (FPM) e do Fundo de Desenvolvimento da Educa&ccedil;&atilde;o B&aacute;sica (Fundeb), apesar de o TCE ter recomendado o fim da pr&aacute;tica.

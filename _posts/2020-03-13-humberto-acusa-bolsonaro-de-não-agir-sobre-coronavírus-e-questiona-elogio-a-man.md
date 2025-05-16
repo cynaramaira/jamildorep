@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Humberto acusa Bolsonaro de não agir sobre coronavírus e questiona elogio a manifestações"
+date: 2020-03-13
+tags: Bolsonaro,Coronavírus,Humberto Costa,Manifestações,Naomi Campbell
+author: None
+---
+O senador pernambucano Humberto Costa (PT) criticou em discurso no plenário do Senado, nesta sexta-feira (13), o vídeo divulgado pelo presidente Jair Bolsonaro (sem partido) sobre o coronavírus na noite anterior. Para o petista, o governo federal não tem agido para combater a doença. Além disso, questionou o elogio às manifestações que haviam sido convocadas para o próximo domingo (15), contra o Congresso Nacional, muitas delas adiadas.
+Em pronunciamento em rádio e televisão, na noite dessa quinta-feira (12), Bolsonaro falou sobre o coronavírus e recomendou que as pessoas não fossem às mobilizações para evitar a transmissão da doença, que foi declarada pandemia pela Organização Mundial da Saúde (OMS). Discurso semelhante foi usado em transmissão ao vivo no Facebook. O presidente afirmou no vídeo que os movimentos são "espontâneos e legítimos" e "atendem aos interesses da nação". "Balizados pela lei e pela ordem, demonstram o amadurecimento da nossa democracia presidencialista e são expressões evidentes de nossa liberdade", disse. Os protestos criticam o Congresso Nacional e o Supremo Tribunal Federal (STF).
+
+No Senado, Humberto Costa considerou que o elogio às manifestações em rádio e televisão poderia ser considerado crime de responsabilidade. Para o petista, as manifestações têm os objetivos de "derrubar a democracia" e "implantar uma ditadura no nosso País".
+"Eu pelo menos estava esperando que ele [Jair Bolsonaro] fosse falar do coronavírus, do que o governo estava fazendo, das medidas, de quantas UTIs o governo já contratou, de como é que ele vai enfrentar o problema, e o presidente vem para falar que a manifestação é justa, uma manifestação que tem por objetivo fechar o Congresso Nacional, fechar o Supremo Tribunal Federal. Diz que ela é justa e que a adiem, que botem para depois", afirmou o senado. "Quer dizer, ele continua com o facão em cima do Congresso, em cima do Supremo, mobilizando a população para desrespeitar a independência e a autonomia dos poderes, em torno de um problema do qual ele é o maior causador".
+Humberto Costa ainda criticou Bolsonaro por ter minimizado a crise provocada pelo coronavírus. O presidente chegou a afirmar que a questão se trataria de uma "fantasia" propagada pela mídia.
+"Imagine se a população tivesse acreditado que isso era uma fantasia criada pela imprensa? Isso com o objetivo claro; esse discurso veio com o objetivo claro de esconder a inoperância do próprio governo", disse o senador. "O presidente, na verdade, estimulou que muita gente não se prevenisse de forma adequada".
+
+Para o petista, o governo federal não tem um plano para enfrentar a doença nem as consequências econômicas e sociais dela. "O que vai acontecer com o conjunto de pessoas que sobrevivem do seu trabalho, muitas vezes até no meio da rua, ou que têm um pequeno estabelecimento? Como essas pessoas vão sobreviver com essa crise que está se avizinhando?", questionou. 
+"O ministro Paulo Guedes veio ao Congresso sem trazer nada, sem nada nas suas mãos. Não tem projetos, nada apresentou, nenhuma ação emergencial. É alguém que tem uma visão tão estreita quanto o seu próprio chefe, o presidente da República, que, ao longo de dois dias, passou por um vexame absurdo".

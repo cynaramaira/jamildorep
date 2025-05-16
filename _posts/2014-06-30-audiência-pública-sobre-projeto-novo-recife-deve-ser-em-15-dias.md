@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Audiência pública sobre Projeto Novo Recife deve ser em 15 dias"
+date: 2014-06-30
+tags: novos,projeto,Recife
+author: None
+---
+ Foto: Diego Nigro/JC Imagem
+Com informações de Mariana Dantas, do NE10
+O secretário de Desenvolvimento e Planejamento Urbano, Antônio Alexandre, anunciou em coletiva de imprensa realizada na tarde desta segunda-feira (30), que a audiência pública para debater as diretrizes urbanísticas do Projeto Novo Recife será em 15 dias. A convocação pública será publicada no Diário Oficial desta terça-feira (1º).
+Ativistas do Ocupe Estelita ocuparam o hall de entrada da sede da Prefeitura do Recife nesta manhã para pedir uma reunião com o prefeito Geraldo Julio (PSB), reclamando não estarem participando do processo de negociação, e reivindicando que a mediação seja feita pelo Ministério Público de Pernambuco, não pelo Executivo municipal.
+Para eles, a "confiança" no prefeito foi quebrada após a reintegração de posse do terreno no Cais José Estelita, onde estavam acampados. A ação da Polícia Militar foi considerada violenta. "A Prefeitura não teve habilidade política e não tem se colocado à disposição do diálogo como tem sido dito", disse o ativista Chico Ludermir. Depois de sair do terreno, o movimento foi para a área abaixo do viaduto Capitão Temudo, ao lado do cais.
+ Mobilização ganhou contornos políticos, com críticas a Geraldo Julio e gritos de que o Estelita vai tirá-lo do poder (Foto: Paulo Veras/Blog de Jamildo)
+Antônio Alexandre afirmou que o protocolo de negociação não será suspenso e que a PCR continuará sendo mediadora, como pediam os manifestantes. "Não será interrompido porque essa é uma questão da cidade, não de um movimento ou das construtoras", argumentou.
+Enquanto os ativistas ocupavam a Prefeitura, o prefeito se reunia com as entidades que têm participado da negociação - OAB, UFPE, Unicap, IAB, CAU, Crea e Observatório do Recife. Os representantes do Ocupe Estelita reclamaram que, desde a primeira reunião, no início de junho, não foram mais recebidos. Porém, o secretário assegurou que o encontro desta manhã estava marcado desde quinta somente com quem assinou o protocolo, para realinhar o acordo feito no dia 16 sobre o processo de diálogo. Para Antônio Alexandre, essa reunião foi necessária após a reintegração de posse, criticada tanto pelos manifestantes quanto pela PCR.
+Como o secretário de Segurança Urbana, Murilo Cavalcanti, fez pela manhã, o de Desenvolvimento e Planejamento Urbano considerou a ocupação do prédio ilegal, por ser um espaço público. O atendimento foi suspenso no primeiro andar do edifício, mantendo o funcionamento nos outros andares, das secretarias.
+ Foto: Diego Nigro/JC Imagem
+Chico Ludermir afirmou que o movimento ainda não foi informado oficialmente sobre a audiência pública. Depois que for informado, deverá realizar uma assembleia para decidir se desocupará o prédio.
+A desocupação foi motivo de forte debate desde o início da mobilização. As entidades interromperam a reunião e sugeriram ao prefeito que recebesse uma comissão de representantes do Ocupe Estelita, com a contrapartida de deixarem o edifício. Essa condição não foi aceita pelos ativistas, que chegaram a formar a comissão com sete pessoas, incluindo a advogada Liana Cirne Lins e o professor de filosofia Leonardo Cisneiros.
+No fim da manhã, o secretário de Juventude, Jayme Asfora, desceu para negociar a saída deles. Durante a discussão, o Executivo foi acusado de participar da reintegração de posse e defendido por Asfora, que considerou a ação policial violenta. Enquanto alguns gritavam "Ocupar e resistir!” e “Prefeito fuleiro, já bastam os empreiteiros!”, foi jogada uma casca de banana no secretário, que, visivelmente irritado, apanhou e mostrou ao grupo. Na coletiva de imprensa, Jayme Asfora disse que os outros ativistas ficaram indignados com a atitude e brincou: como estava com fome, se estivesse inteira, comeria. Veja em vídeo de Paulo Veras, repórter do blog:
+
+ENTENDA - Idealizado pelo Consórcio Novo Recife - formado pelas construtoras Moura Dubeux, Queiroz Galvão, GL e Ara Empreendimentos -, o projeto homônimo prevê 12 torres de aproximadamente 40 andares e R$ 62 milhões em ações mitigadoras no terreno do Cais José Estelita, no Centro do Recife. Contra o empreendimento, os ativistas ocuparam o local no dia 21 de maio, quando as empresas conseguiram o alvará e iniciaram a demolição dos armazéns.
+A reintegração de posse foi concedida pela Justiça ainda no fim de maio e feita no último dia 17, com o uso da força policial, considerado violento pelos manifestantes. Depois de deixar o cais, o Ocupe Estelita passou para uma área abaixo do viaduto Capitão Temudo, próximo ao terreno.

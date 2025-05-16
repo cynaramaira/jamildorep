@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Auditoria do TCE na COMPESA em licitação aberta por gestão de Paulo Câmara economiza R$ 92 milhões"
+date: 2024-01-17
+tags: jamildo, Compesa
+author: Jamildo Melo
+---
+O site oficial do Tribunal de Contas do Estado (TCE) informa que uma auditoria feita na Companhia Pernambucana de Saneamento (COMPESA), estatal estadual, resultou em uma economia de mais de 92 milh&otilde;es de reais para os cofres p&uacute;blicos, calculada para os cinco anos de validade do contrato.
+Conduzida pela Ger&ecirc;ncia de Saneamento, Meio Ambiente e Energia do TCE, a auditoria analisou a licita&ccedil;&atilde;o 402/2022, referente aos servi&ccedil;os de manuten&ccedil;&atilde;o e combate &agrave;s perdas no sistema de distribui&ccedil;&atilde;o de &aacute;gua (conserto de vazamentos) da Regi&atilde;o Metropolitana do Recife.
+"A economia foi obtida em raz&atilde;o de ajustes recomendados pela equipe de auditoria do TCE, que gerou uma diferen&ccedil;a entre o or&ccedil;amento inicial da licita&ccedil;&atilde;o e os novos valores dos servi&ccedil;os na republica&ccedil;&atilde;o do edital (licita&ccedil;&atilde;o n&ordm; 030/2023). Al&eacute;m disso, na primeira licita&ccedil;&atilde;o havia cinco empresas participando da disputa, que passou para 12 com o edital republicado. Esse aumento de interessados contribuiu para ampliar a disputa pelos lotes a serem contratados, e, consequentemente, elevar os descontos oferecidos pelos licitantes", informa o TCE.
+O novo modelo de contrata&ccedil;&atilde;o, denominado pela Compesa de &ldquo;Global Service&rdquo;, busca remunerar a contratada de acordo com o seu desempenho, ou seja, pela redu&ccedil;&atilde;o de perda de &aacute;gua, e tamb&eacute;m por metas de instala&ccedil;&atilde;o de ramais, diferindo do modelo anterior, no qual a remunera&ccedil;&atilde;o se dava por conserto de vazamentos.
+Segundo os t&eacute;cnicos, o modelo tradicional de contrata&ccedil;&atilde;o, muitas vezes, representa um conflito de interesses entre a Administra&ccedil;&atilde;o P&uacute;blica e o parceiro privado, segundo o TCE.
+A nova formata&ccedil;&atilde;o obedece a uma l&oacute;gica que tem por objetivo privilegiar a efici&ecirc;ncia, ao inv&eacute;s de simplesmente pagar por servi&ccedil;o realizado.
+Para os auditores, essa inova&ccedil;&atilde;o representa uma quebra de paradigma, e pode ser replicada para v&aacute;rios outros servi&ccedil;os na Administra&ccedil;&atilde;o P&uacute;blica que ainda utilizam o formato tradicional de contrata&ccedil;&atilde;o, como por exemplo, manuten&ccedil;&atilde;o de estradas, servi&ccedil;os de tapa buracos, entre outros, informa o TCE.
+A auditoria na Compesa foi iniciada em 2022, sob a relatoria do conselheiro Valdecir Pascoal, e atualmente est&aacute; sob a relatoria do conselheiro Eduardo Porto.

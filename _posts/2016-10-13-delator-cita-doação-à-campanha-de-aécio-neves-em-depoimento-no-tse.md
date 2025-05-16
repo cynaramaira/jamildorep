@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Delator cita doação à campanha de Aécio Neves em depoimento no TSE"
+date: 2016-10-13
+tags: campanha,depoimento,doação,Mozart Neves
+author: None
+---
+Estadão Conteúdo - Em depoimento na ação movida pelo PSDB que pede a cassação da chapa Dilma Rousseff-Michel Temer, reeleita em 2014, o ex-presidente da Andrade Gutierrez Otávio Marques de Azevedo confirmou ter se encontrado naquele ano com o empresário Oswaldo Borges da Costa - ex-presidente da Companhia de Desenvolvimento Econômico de Minas Gerais (Codemig) no governo de Aécio Neves (PSDB) - para tratar de doação eleitoral para a campanha presidencial do tucano.
+O executivo depôs no dia 19 de setembro perante o ministro do Tribunal Superior Eleitoral (TSE) Herman Benjamin, relator do processo. Ao explicar sobre como eram feitas as doações eleitorais da empreiteira, Otávio também foi indagado sobre repasses a partidos e políticos. Ele afirmou que todas as doações eleitorais saíam do mesmo caixa da empresa e, em relação ao PSDB, disse que se encontrou com Borges da Costa.
+Segundo o jornal Folha de S.Paulo e a revista Veja, Borges da Costa foi citado pelo empreiteiro José Adelmário Pinheiro Filho, Leo Pinheiro, da OAS, em sua delação como intermediário de propinas na construção da Cidade Administrativa, obra mais cara do governo Aécio - que custou R$ 1,2 bilhão. O ex-presidente da Codemig foi apontado como "operador" ou "tesoureiro informal" de Aécio, conforme as reportagens.
+Em 2014, segundo dados declarados à Justiça Eleitoral, a Andrade doou R$ 21 milhões para a campanha de Dilma e R$ 20 milhões para a de Aécio. Oficialmente, o coordenador financeiro de Aécio foi o ex-ministro José Gregori. Em nota, o PSDB informou que Borges da Costa atuou na campanha de 2014 "apoiando o comitê financeiro".
+"Fui procurado pelo senhor Oswaldo Borges da Costa, também, que era... trabalhava não sei em que função lá, com o candidato (Aécio Neves). E, basicamente, essas demandas (de doação) vinham através deles", afirmou o empresário sem se lembrar qual outro nome ligado ao PSDB o teria procurado.
+Questionado pelo advogado Flávio Caetano, da campanha de Dilma, o executivo disse que só encontrou o empresário uma vez e apenas para comunicar que teria feito uma doação para a campanha de Aécio.
+Um contato de Otávio com Borges da Costa foi identificado pela Polícia Federal em trocas de mensagens no celular do executivo da Andrade, conforme revelou o jornal O Estado de S. Paulo.
+As trocas de mensagens chamaram a atenção da PF ao analisar o celular de Otávio em 2015. Em uma mensagem encaminhada no dia 27 de agosto, Borges da Costa pergunta ao ex-presidente da Andrade se era possível "falar na quinta às 19h em SP". Dois dias depois, Otávio responde: "Já foi feito". Borges da Costa agradece no mesmo dia: "Obrigado Otávio. Com vc funciona!!!rsrs"
+Apesar de ter doado quantias próximas para as campanhas de Dilma e Aécio, ao TSE, Otávio afirmou que, em relação às doações para o tucano, não havia nenhuma vinculação com obras ou projetos da empresa. "Nenhum compromisso que levasse a uma doação... é... vinculada a obra, a projeto, não existiu isso. Não existiu isso "
+Ele também reafirmou que houve um acerto de propinas equivalente a 1% de todos os contratos da Andrade com o governo federal e também com o PMDB e com o PT referente às obras da Usina de Belo Monte. Questionado se as doações eleitorais de 2014 foram descontadas desse acordo, ele negou e disse que apenas uma doação para Dilma, no valor de R$ 1 milhão, em julho de 2014, "certamente" veio dos acordos de propina.
+Apoio
+A assessoria de Aécio indicou o PSDB Nacional para comentar. Em nota, o partido afirmou que Borges da Costa "atuou na campanha eleitoral do PSDB em 2014 - ao lado do senhor Sérgio Freitas e tendo sido o ex-ministro José Gregori coordenador financeiro -, apoiando o comitê financeiro, sendo esse um fato de amplo conhecimento público, não havendo nele nenhum tipo de incorreção".
+Segundo o PSDB, o empresário, em depoimento, "confirma a regularidade dos contatos, assim como das doações realizadas, todas elas declaradas".
+O PT, em nota, refutou "as ilações". "Todas as operações financeiras do partido foram realizadas estritamente dentro dos parâmetros legais."
+O jornal O Estado de S. Paulo não conseguiu contato com Borges da Costa. As informações são do jornal O Estado de S. Paulo.

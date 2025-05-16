@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Na reta final em Olinda, Antônio Campos aposta em carreta e faz novas promessas"
+date: 2016-10-29
+tags: Antonio Conte,apostas,Final,João Campos,olinda
+author: None
+---
+O PSB calculou em mais de 500 carros percorremdo ruas e avenidas de diferentes bairros da Marin dos Caetés acompanhando o candidato a prefeito Antônio Campos (PSB), neste sábado (29).
+O percurso teve início às 10h na Avenida Olinda e seguiu pela Orla da cidade, além dos bairros de Rio Doce, Jardim Atlântico, Bultrins, Peixinhos, Caixa D'Água, Passarinho, Alto da Bondade, Águas Compridas, Aguazinha, Jardim Brasil 1 e 2 e Vila Popular. A carreata teve fim, por volta das 15h30, na Avenida Pan Nordestina, após mais de cinco horas de percurso.
+O objetivo era criar uma 'Onda Amarela' e “levar esperança por uma Olinda mais digna para se viver”.
+"Hoje, fizemos uma grande carreata em Olinda. Passamos por mais de dez bairros e estamos convictos que só vai dar 40 amanhã. Olinda vai ter a mudança de verdade", disse Antônio Campos, após o evento.
+O socialista estava acompanhado da vice, a professora Ceça Silva, do deputado federal Pastor Eurico (PHS).
+
+Na sexta-feira, a caminhada foi em comunidades do Varadouro, com moradores do V8, V9 e Portelinha. O socialista estava acompanhado do deputado estadual Pastor Cleiton Collins (PP) e de vereadores eleitos de Olinda. Uma das reclamações mais feitas pelos moradores é a falta de pavimentação nas comunidades.
+"Deem uma chance pro 40 mudar a vida de vocês. Ninguém aguenta mais ser maltratado pelo poder público. Falta calçamento, falta posto, falta limpeza, falta tudo nesta cidade. Votem pela verdadeira mudança. Votem pelo rompimento com o PCdoB. Votem no 40 para Olinda mudar", pregou por lá.
+Em 2035, Olinda irá completar 500 anos. Entre outras promessas, o candidato a prefeito Antônio Campos (PSB) prometeu criar o "Plano Olinda 500 anos". “É um plano estratégico que visa criar metas a médio e longo prazos para o desenvolvimento econômico, social e sustentável. Os olindenses serão ouvidos para que as demandas da sociedade sejam atendidas”, disse.
+"Olinda tem sede do futuro, não quer volta e tem pressa para investimentos em infraestrutura, saúde e segurança. Nós temos uma visão estratégica de recolocar a cidade num novo eixo de desenvolvimento. A Olinda de amanhã temos que pensar hoje. Por isso, esse plano será essencial para uma cidade diferente da que temos agora. Queremos mais mobilidade, economia aquecida, turismo mais estruturado, política fiscal agressiva, mais emprego e mais desenvolvimento sustentável", pontuou Antônio Campos.
+Antônio Campos também prometeu implantar em Olinda o conceito de Cidade Criativa.
+"A economia criativa é a economia do Século XXI. Por exemplo, Londres fez uma grande Olimpíada e recuperou um bairro, que estava destruído, de forma sustentável. O que levantou o local foi o Polo de Economia Criativa. Iremos implantar esse moderno conceito em Olinda. Vamos transformar o nosso Carnaval em economia criativa, tornado-o mais rentável para os carnavalescos e artistas. Assim, também iremos fazer com as artes plásticas, músicas e outros segmentos da cultura olindense. Iremos fazer do Nascedouro de Peixinhos uma fábrica do audiovisual, com incentivo fiscal e espaço para locação e produção de filmes. Olinda terá um espaço que ficará à disposição do cinema brasileiro e internacional", disse Antônio Campos.
+Entre os projetos, está a promessa de construção do Museu Chico Sciense. “A memória de Chico, ícone do Movimento Mangue, será preservada na cidade onde nasceu e viveu. Com autorização da família do músico, parte de seu acervo será colocado nesse lugar. Será um novo ponto turístico da cidade Patrimônio Histórico e Cultural da Humanidade. Ele irá gerar inovação, conectivade e cultura. Esse museu será semelhante ao de Bob Marley, na Jamaica”.

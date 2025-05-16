@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Dilma pede ao STF que período em que pescas são proibidas continue suspenso"
+date: 2016-01-07
+tags: Dilma,são,voos suspensos
+author: None
+---
+ Foto: EBC
+Da ABr - O governo federal entrou com uma Ação Direta de Inconstitucionalidade (ADI) com o objetivo de manter suspenso o período de defeso, que é quando a pesca fica proibida para garantir a reprodução dos peixes.
+Na petição, feita ao Supremo Tribunal Federal (STF) nessa quarta-feira (6), a Advocacia-Geral da União pretende fazer com que continue valendo uma portaria editada em outubro por dois ministérios que suspende por até 120 dias o período no qual é vedada a atividade pesqueira.
+Em dezembro, um decreto legislativo do presidente do Senado, Renan Calheiros, sustou os efeitos da portaria, que havia sido assinado pelos ministérios da Agricultura, Pecuária e Abastecimento e do Meio Ambiente. De acordo com a ADI, o Congresso Nacional ultrapassou a prerrogativa de independência entre os Três Poderes ao interferir em matéria administrativa do Executivo.
+Com base neste argumento, a presidenta Dilma Rousseff, por meio do advogado-geral da União, Luís Inácio Adams, pede que o Supremo suspenda de imediato a eficácia do decreto legislativo por meio de uma decisão liminar e que depois analise o mérito da ação, decidindo pela inconstitucionalidade da medida.
+Com a portaria do governo (192/2015), que suspende dez períodos de defeso em vários estados do país, os pescadores não terão direito ao benefício conhecido como seguro-defeso, pago pelo Instituto Nacional do Seguro Social (INSS) ao pescador profissional artesanal, corresponde a um salário mínimo por mês.
+De acordo com o pedido da AGU, é necessária uma revisão das normas que instituíram o período de defeso porque o período de "recrutamento de uma determinada espécie pode mudar de um ano para outro devido a alterações climáticas ou variações ambientais".
+Como os ministros do STF estão em recesso e entram de férias a partir desta quinta-feira (7), a ADI será analisada inicialmente pelo presidente da Corte, Ricardo Lewandowski, que poderá considerar a questão urgente e aceitar ou rejeitar o pedido de liminar. Caso contrário, ele irá remeter a matéria ao ministro relator, Luís Roberto Barroso, fazendo com que a petição seja analisada somente após as férias, em fevereiro. Essa apreciação prévia de Lewandowski deve ocorrer nos próximos dias.
+O governo alega que os atos normativos sobre o tema foram editados há mais de dez anos e que não há estudos especializados que comprovem a efetividade da medida. A AGU também argumenta que a portaria editada pelos ministérios determinou o recadastramento dos pescadores artesanais tendo em vista "distorções no perfil dos beneficiários", com o objetivo de "coibir tentativas de fraude".
+Ainda de acordo com a petição, caso o decreto continuasse suspendendo os efeitos da portaria, os benefícios continuariam sendo pagos "em que pese a evidente situação de incerteza quanto aos seus reais destinatários, resultando em vultoso impacto financeiro [cerca de R$ 1,61 bilhão para o pagamento do seguro defeso] e operacionais [atendimento de cerca de 487.843 pescadores a um custo operacional de R$ 3 milhões], quantia essa a ser desembolsada pelos cofres do Erário a partir da próxima segunda-feira".

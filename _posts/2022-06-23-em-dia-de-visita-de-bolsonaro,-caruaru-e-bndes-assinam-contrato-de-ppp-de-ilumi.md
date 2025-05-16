@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Em dia de visita de Bolsonaro, Caruaru e BNDES assinam contrato de PPP de iluminação pública"
+date: 2022-06-23
+tags: jamildo, caruaru
+author: Jamildo Melo
+---
+Por coincid&ecirc;ncia, no mesmo dia em que Bolsonaro&nbsp;far&aacute; uma motociata e participar&aacute; de uma visita ao p&aacute;tio do forr&oacute; da cidade, o BNDES informou ao blog de Jamildo que foi assinado nesta quinta-feira, dia 23, o contrato de Parceria P&uacute;blico-Privada (PPP) para moderniza&ccedil;&atilde;o, expans&atilde;o, opera&ccedil;&atilde;o e manuten&ccedil;&atilde;o da rede de ilumina&ccedil;&atilde;o p&uacute;blica de Caruaru (PE), entre o munic&iacute;pio e o Cons&oacute;rcio Luz de Caruaru, formado pelas empresas Enel X Brasil, Mobit e Selt Engenharia. O banco fez quest&atilde;o de informar que quem marcou a data foi a gest&atilde;o municipal e que atua tecnicamente.
+O cons&oacute;rcio foi o vencedor do leil&atilde;o realizado no m&ecirc;s de fevereiro deste ano na B3 e ofertou contrapresta&ccedil;&atilde;o de R$ 388.204,86 (des&aacute;gio de 66,21% em rela&ccedil;&atilde;o ao valor m&aacute;ximo estabelecido no edital).
+O valor se refere ao pagamento mensal que o munic&iacute;pio far&aacute; ao prestador do servi&ccedil;o. A concess&atilde;o foi estruturada pelo Banco Nacional de Desenvolvimento Econ&ocirc;mico e Social.
+O contrato prev&ecirc; a moderniza&ccedil;&atilde;o de toda a rede, que passar&aacute; a contar com lumin&aacute;rias de tecnologia LED em todos os pontos de ilumina&ccedil;&atilde;o que a comp&otilde;e e dever&aacute; resultar em redu&ccedil;&atilde;o do consumo de energia de 48,4% com ilumina&ccedil;&atilde;o p&uacute;blica.
+
+    
+            Silas Malafaia se posiciona sobre escândalo de pastores do MEC e retórica de Bolsonaro
+            PP deve permanecer na Frente Popular, frustrando expectativa do grupo de Marília
+            Saiba tudo sobre a passagem de Jair Bolsonaro no São João de Caruaru; roteiro e horários
+        
+
+A concession&aacute;ria dever&aacute; implantar ainda um sistema de telegest&atilde;o nas principais vias do munic&iacute;pio, al&eacute;m de implantar projetos de ilumina&ccedil;&atilde;o de destaque em 16 locais escolhidos pela Prefeitura. O volume de investimentos estimados ao longo dos 20 anos de concess&atilde;o &eacute; de R$105 milh&otilde;es.
+Nesta quinta, no Rio, o diretor de Concess&otilde;es e Privatiza&ccedil;&otilde;es do BNDES, F&aacute;bio Abrah&atilde;o, destacou que &ldquo;a assinatura do contrato de PPP marca a entrega de mais um projeto estruturado com o apoio do BNDES e que ir&aacute; impactar positivamente toda a popula&ccedil;&atilde;o de Caruaru&rdquo;.
+&ldquo;O munic&iacute;pio receber&aacute; investimentos privados para a concretiza&ccedil;&atilde;o de um projeto de interesse p&uacute;blico, sendo cerca de R$ 57 milh&otilde;es j&aacute; nos primeiros anos de concess&atilde;o, resultando em vias mais bem iluminadas, reduzindo o consumo de energia el&eacute;trica, com economia para os cofres p&uacute;blicos, e tornando Caruaru uma cidade mais segura e sustent&aacute;vel&rdquo;, afirmou o executivo.
+O contrato &eacute; o quinto no setor de ilumina&ccedil;&atilde;o p&uacute;blica firmado com apoio do BNDES na estrutura&ccedil;&atilde;o da concess&atilde;o e contribuir&aacute; para melhora da qualidade de vida dos mais de 365 mil habitantes do Munic&iacute;pio de Caruaru.
+&ldquo;A carteira de projetos do BNDES em ilumina&ccedil;&atilde;o p&uacute;blica tem o potencial de beneficiar cerca de 8 milh&otilde;es de pessoas em diversos munic&iacute;pios do Pa&iacute;s, j&aacute; tendo sido levados a mercado com sucesso, at&eacute; o momento, 6 projetos, impactando 4,3 milh&otilde;es de pessoas&rdquo;, completa Abrah&atilde;o.
+O BNDES e PPPs de ilumina&ccedil;&atilde;o p&uacute;blica
+Para alcan&ccedil;ar os objetivos estrat&eacute;gicos de sua agenda para o desenvolvimento do Pa&iacute;s, o Banco passou a atuar como uma f&aacute;brica de projetos e servi&ccedil;os, estruturando parcerias com o setor p&uacute;blico, novos investidores e operadores qualificados, visando desenvolver solu&ccedil;&otilde;es privadas para problemas p&uacute;blicos. A carteira de ilumina&ccedil;&atilde;o p&uacute;blica do BNDES tem atualmente dez projetos. Cinco deles, al&eacute;m do projeto de Caruaru, j&aacute; foram leiloados (Porto Alegre, Teresina, Vila Velha, Petrolina e Jaboat&atilde;o dos Guararapes) e quatro est&atilde;o em andamento (Curitiba, Canoas, Caxias do Sul e Joinville).
+Juntos, eles totalizam mais de 600 mil pontos de luz e viabilizar&atilde;o uma melhoria no servi&ccedil;o de ilumina&ccedil;&atilde;o p&uacute;blica para mais de sete milh&otilde;es de pessoas, al&eacute;m de alavancar R$ 1,5 bilh&atilde;o em investimentos. Um dos destaques das a&ccedil;&otilde;es do Banco no setor foi o t&iacute;tulo de modelagem do ano do PPP Awards &amp; Conference Brazil 2019, com o qual foi premiada a PPP de ilumina&ccedil;&atilde;o p&uacute;blica de Teresina. 

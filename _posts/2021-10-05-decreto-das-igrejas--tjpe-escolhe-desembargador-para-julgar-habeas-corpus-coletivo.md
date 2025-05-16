@@ -1,0 +1,28 @@
+---
+layout: post
+title: "Decreto das igrejas: TJPE escolhe desembargador para julgar habeas corpus coletivo"
+date: 2021-10-05
+tags: igrejas, templos
+author: JAMILDO MELO
+---
+O habeas corpus contra o decreto de Paulo C&acirc;mara (PSB) para restri&ccedil;&otilde;es em cultos religiosos foi distribu&iacute;do para o desembargador Mauro Alencar de Barros, do Tribunal de Justi&ccedil;a de Pernambuco (TJPE).
+A a&ccedil;&atilde;o coletiva foi protocolada pelo deputado federal Bispo Ossesio Silva (Republicanos), da bancada evang&eacute;lica de Pernambuco.
+O habeas corpus chegou ao gabinete do desembargador nesta segunda-feira (4), ao meio-dia e ainda n&atilde;o h&aacute; decis&atilde;o sobre o pedido de liminar.
+
+    
+            Deputado do Republicanos aciona Justiça contra decreto que exige comprovante de vacinação e teste nas igrejas e templos religiosos em Pernambuco
+        
+
+Veja o que o blog publicou, na segunda
+Nesta segunda-feira (04/10), o deputado federal Ossesio Silva (Republicanos/PE), entrou com um Habeas Corpus coletivo no Tribunal de Justi&ccedil;a do Estado Pernambuco (TJPE), contra o decreto 51.460 do governo de Pernambuco que exige a apresenta&ccedil;&atilde;o de teste negativo de Covid-19 ou comprovante de vacina&ccedil;&atilde;o completa para liberar a presen&ccedil;a de fi&eacute;is em cerim&ocirc;nias religiosas com mais de 300 pessoas.
+A determina&ccedil;&atilde;o foi feita pelo governador Paulo C&acirc;mara (PSB), na &uacute;ltima segunda-feira (27), e foi regulamentada por portaria conjunta das secretarias de Sa&uacute;de e de Desenvolvimento Econ&ocirc;mico.
+O deputado disse que o objetivo da a&ccedil;&atilde;o &eacute; a suspens&atilde;o imediata dos efeitos do decreto do governo de Pernambuco.
+&ldquo;A ideia &eacute; suspender a ado&ccedil;&atilde;o do passaporte de imuniza&ccedil;&atilde;o para templos religiosos no estado. No pedido feito ao Tribunal de Justi&ccedil;a do estado Pernambuco (TJPE), aponto que apoio a campanha de vacina&ccedil;&atilde;o contra a Covid-19 para todos os pernambucanos e brasileiros e j&aacute; tomei &agrave;s duas doses da vacina, mas considero que o decreto fere o princ&iacute;pio da igualdade e liberdade de culto&rdquo; afirmou.
+&ldquo;Os dados oficiais mostram que menos de 38% da popula&ccedil;&atilde;o receberam a 2&deg; dose ou dose &uacute;nica, isso significa que mais de 62 % da popula&ccedil;&atilde;o ainda n&atilde;o completaram o esquema vacinal e n&atilde;o poderiam participar dos cultos, pelas regras publicadas pelo governo estadual. Um verdadeiro absurdo e d&aacute; a impress&atilde;o de que o decreto, da forma como foi feito, deixa invi&aacute;veis os trabalhos religiosos no nosso estado. Com essa decis&atilde;o do governo do estado, milh&otilde;es de crist&atilde;os ser&atilde;o prejudicados sem poderem ir &agrave;s igrejas e templos religiosos em Pernambuco&rdquo; afirmou o parlamentar.
+De acordo com Ossesio, o decreto seria inaceit&aacute;vel e discriminat&oacute;rio.
+&ldquo;Se o cidad&atilde;o n&atilde;o tiver com a carteira de vacina&ccedil;&atilde;o, perder ou esquecer n&atilde;o ir&aacute; entrar nas igrejas, mas pode entrar nos bares, show, supermercados, trens metr&ocirc;, &ocirc;nibus, feiras, clubes e outros lugares. Mostra a desigualdade do decreto estadual&rdquo; destacou.
+O deputado diz que o decreto do governador &eacute; inconstitucional e ilegal.
+&ldquo;Deve ser anulado por decis&atilde;o judicial. N&atilde;o se pode restringir direitos fundamentais, salvo se a restri&ccedil;&atilde;o estiver constitucionalmente autorizada, seria preciso que o Decreto estivesse amparado na Constitui&ccedil;&atilde;o Federal e isso n&atilde;o acontece nesse caso&rdquo; disse.
+O parlamentar republicano falou em import&acirc;ncia do trabalho dos crist&atilde;os para o estado.
+&ldquo;A igreja &eacute; essencial e tem salvado vidas. Tanto o trabalho social quanto o espiritual, &eacute; fundamental para milh&otilde;es de fam&iacute;lias em Pernambuco&rdquo; afirmou.
+A justificativa da a&ccedil;&atilde;o diz que o habeas corpus &eacute; o principal instrumento de prote&ccedil;&atilde;o dos direitos e garantias fundamentais. "&Eacute; por meio dele que se poder&aacute; provocar a atua&ccedil;&atilde;o do Estado a fim de cessar constrangimento ilegal advindo de qualquer autoridade. Esperamos a resposta do Poder Judici&aacute;rio".

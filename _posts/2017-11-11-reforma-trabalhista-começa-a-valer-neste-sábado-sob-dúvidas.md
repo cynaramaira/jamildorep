@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Reforma trabalhista começa a valer neste sábado sob dúvidas"
+date: 2017-11-11
+tags: reformas,regras trabalhistas
+author: None
+---
+Estadão Conteúdo - As novas regras da Consolidação das Leis Trabalhistas (CLT) aprovadas pelo Congresso Nacional entram em vigor, neste sábado (11), em meio a reações muito distintas. Empregadores estão otimistas com a aposta de dinamização do mercado de trabalho e a perspectiva de criação de novos empregos. Já os sindicalistas adotam tom mais cauteloso e alertam para o risco de deterioração das condições de trabalho. Mas patrões e empregados coincidem em um ponto: há muitas dúvidas sobre as mudanças.
+"A modernização da legislação trabalhista vai permitir a criação de milhões de novas vagas de emprego no médio e longo prazos. Haverá, sem dúvida, melhora no ambiente de negócios, o que estimulará novas contratações", disse ao Estado o ministro do Trabalho, Ronaldo Nogueira. Além de gerar empregos, a reforma deve reduzir o litígio na Justiça do Trabalho, diz o ministro. "Apenas no ano passado, foram 3 milhões de novas ações de processos protocolados. Isso não é bom nem para as empresas, nem para os trabalhadores porque demonstra que falta segurança jurídica".
+LEIA TAMBÉM
+» Professor da FGV explica o que muda com a nova reforma trabalhista
+» Reforma trabalhista ainda gera dúvidas entre empregados e empregadores
+» Reforma trabalhista entra em vigor neste sábado; veja o que muda
+Desde o início, a reforma trabalhista teve a aprovação comemorada pelos empresários. Um dos maiores entusiastas do projeto, o presidente da Confederação Nacional da Indústria (CNI), Robson Braga de Andrade, diz que as novas regras "modernizam as relações do trabalho tendo como premissas a valorização do diálogo, a segurança jurídica e a redução da burocracia".
+Um dos temas mais apoiados entre empregadores é a possibilidade de que os acordos poderão se sobrepor à legislação. Assim, será possível empregados concordarem com condições diferentes daquelas previstas na legislação. Para as empresas, isso dará flexibilidade às relações do trabalho e poderão criar novos empregos. Para os trabalhadores, o temor é que o desnível do poder de barganha entre as duas partes prejudique os funcionários.
+O presidente da União Geral dos Trabalhadores, Ricardo Patah, rebate a promessa dos patrões. "A reforma trabalhista não vai gerar nenhum emprego. O que gera emprego é reforma tributária, reforma do Estado e o fim da corrupção", disse, durante protesto realizado ontem. Ao citar que a reforma é "essencialmente empresarial", ele acusa a reforma de abrir brechas para a piora das condições de trabalho e, ao mesmo tempo, de sufocar o movimento sindical ao acabar com as fontes de financiamento das entidades.
+» Ministro do Trabalho diz que reforma trabalhista já está ajudando a gerar empregos
+Dúvidas. Para além dos elogios e críticas, há dúvidas e entendimentos contrários em várias questões, como jornada intermitente e "home office" (trabalho em casa). Um dos questionamentos é se as novas regras já alcançam todos os trabalhadores empregados imediatamente. De acordo com o Ministério do Trabalho, as novas regras valem para todos os trabalhadores com carteira assinada, exceto os que têm contrato específico firmado com o empregador. Nesse caso, terão de ser firmados aditivos contratuais com as modificações. Outro caso em que será necessário aditivo é para a migração para o teletrabalho.
+Outra dúvida é sobre que pontos poderão ser negociados diretamente entre patrão e o empregado, sem a participação de sindicatos. A lei prevê que regras de banco de horas e compensação de jornada, demissão em comum acordo, parcelamento de férias em até três vezes e trabalho em home office pode ser acordado com o trabalhador diretamente. Já a redução do horário de almoço de uma hora para 30 minutos deve ser feita por convenção coletiva.
+» Resistência de Juízes e procuradores à reforma trabalhista é criticada por parlamentar
+» Reforma trabalhista entra em vigor no próximo dia 11
+Para o presidente da Central dos Sindicatos Brasileiros (CSB), Antônio Neto, as dúvidas acerca da reforma foram geradas porque as alterações não foram suficientemente discutidas: "Temos agora a chance de ter acordos que ultrapassem o legislado, o que queremos é ter uma relação que respeite as categorias e os trabalhadores. Não vamos permitir que o trabalhador seja prejudicado."

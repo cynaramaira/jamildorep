@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Aliado do governo cobra votação de requerimento contra Fachin na CCJ"
+date: 2017-06-13
+tags: cobra,Contran,Edson Fachin,governo,votação
+author: None
+---
+Estadão Conteúdo - Um dos autores do requerimento que pede explicações ao ministro do Supremo Tribunal Federal (STF) Edson Fachin, o deputado Fausto Pinato (PP-SP) cobrou nesta terça-feira (13), o agendamento da votação do pedido na Comissão de Constituição e Justiça (CCJ) da Câmara. O presidente da comissão, Rodrigo Pacheco (PMDB-MG), ignorou o apelo e não anunciou a data para que o requerimento entre em pauta.
+No requerimento, um grupo de 32 deputados da base governista questiona a relação do ministro com o executivo da J&amp;F Ricardo Saud, que teria colaborado na campanha de Fachin para que ele fosse aprovado ao cargo pelos senadores. "Eu preciso da resposta, senhor presidente, para dar explicação para meus eleitores", insistiu Pinato, um dos membros da "tropa de choque" do governo na CCJ.
+Os deputados fazem cinco perguntas ao ministro no pedido: em que condições os pedidos de apoio aos senadores se fizeram e se deles resultou algum compromisso com parlamentares e a JBS; se na época o ministro tinha conhecimento das práticas criminosas da JBS, em especial a atuação de Saud; se o fato de estar acompanhado de Saud poderia implicar desabono de sua conduta como ministro ou comprometer o exercício de suas funções; qual o motivo da escolha de Saud para a "delicada missão" junto aos senadores; e quando e onde Fachin conheceu Saud e quantas vezes esteve com ele no Congresso ou fora dele.
+Como revelou o Broadcast Político (serviço de notícias em tempo real do Grupo Estado), o requerimento faz parte da estratégia dos governistas para pressionar o ministro, relator da Operação Lava Jato no STF. Se não for aprovado na CCJ, os parlamentares articulam apresentar o mesmo requerimento na futura CPMI da JBS, que ainda não foi instalada.
+Nesta terça, Pinato acusou a Justiça de permitir que os delatores da JBS, incluindo o empresário Joesley Batista, saíssem do País "pela porta da frente". "Precisamos saber por que essa delação foi premiadíssima. Alguma coisa está errada nisso aí", declarou.

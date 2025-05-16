@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Miguel Coelho lamenta greve da Polícia Civil, critica mortes violentas em janeiro e aponta ineficiência do governo"
+date: 2024-02-07
+tags: jamildo, Segurança
+author: Jamildo Melo
+---
+O ex-prefeito de Petrolina e ex-candidato ao governo do Estado Miguel Coelho lamentou o an&uacute;ncio feito pelos Policiais Civis de Pernambuco, nesta ter&ccedil;a-feira (06), sobre a paralisa&ccedil;&atilde;o das atividades a partir da pr&oacute;xima sexta-feira (9), v&eacute;spera do carnaval oficial.
+A greve foi anunciada como resultado de insatisfa&ccedil;&atilde;o gerada depois de uma reuni&atilde;o entre o Sindicato dos Policiais Civis de Pernambuco (Sinpol-PE) e representantes do Governo do Estado.
+O pol&iacute;tico de oposi&ccedil;&atilde;o criticou tamb&eacute;m os resultados dos dados divulgados pela Secretaria de Defesa Social (SDS) de Pernambuco referentes ao primeiro m&ecirc;s de 2024, revelando um aumento alarmante no n&uacute;mero de mortes violentas letais intencionais.
+"Diante do caos instaurado na Seguran&ccedil;a P&uacute;blica de Pernambuco, enfatizo a urgente necessidade de enfrentar esse problema de frente. O estado precisa encarar de frente esse problema da seguran&ccedil;a. As vidas das pessoas dependem da a&ccedil;&atilde;o do governo, mas nada est&aacute; sendo feito. Prova disso &eacute; a real insatisfa&ccedil;&atilde;o da Pol&iacute;cia Civil ao realizar essa paralisa&ccedil;&atilde;o&rdquo;, disse.
+&ldquo;Como sempre tenho falado, &eacute; preciso tomar decis&otilde;es s&eacute;rias, estruturar as for&ccedil;as policiais, reajustar sal&aacute;rios, melhorar o efetivo, cuidar da sa&uacute;de mental e f&iacute;sica. Dar estas condi&ccedil;&otilde;es de trabalho &eacute; necess&aacute;rio para que haja um servi&ccedil;o qualificado pelos profissionais tanto da Pol&iacute;cia Civil quanto a Militar&rdquo;, discursou.
+Mortes violentas
+Al&eacute;m da preocupa&ccedil;&atilde;o com a greve da Pol&iacute;cia Civil, Miguel criticou o aumento da viol&ecirc;ncia em Janeiro em Pernambuco. Foram registrados 359 casos no primeiro m&ecirc;s do ano, um crescimento de 24,22% em compara&ccedil;&atilde;o ao mesmo per&iacute;odo do ano anterior, marcando o m&ecirc;s com o maior &iacute;ndice de mortalidade desde o in&iacute;cio da atual gest&atilde;o estadual.
+&ldquo;A criminalidade, o tr&aacute;fico de drogas, o feminic&iacute;dio, os assaltos em todo o estado precisam de uma resposta atrav&eacute;s de a&ccedil;&otilde;es eficazes, mas o que vemos &eacute; a inefic&aacute;cia das medidas adotadas pelo Governo Estadual, que n&atilde;o t&ecirc;m surtido efeitos significativos&rdquo;, disse.
+Segundo a SDS, 3.637 pessoas foram assassinadas em Pernambuco ao longo de 2023, destacando uma disparidade em rela&ccedil;&atilde;o &agrave; tend&ecirc;ncia nacional, que registrou uma queda de 4% nos &iacute;ndices de viol&ecirc;ncia, segundo o Minist&eacute;rio da Justi&ccedil;a e Seguran&ccedil;a P&uacute;blica.
+"O atual governo precisa reconhecer a gravidade da situa&ccedil;&atilde;o e tomar medidas urgentes para fortalecer as for&ccedil;as de seguran&ccedil;a e intelig&ecirc;ncia do estado. A popula&ccedil;&atilde;o n&atilde;o pode ser ref&eacute;m da viol&ecirc;ncia e nem pagar o pre&ccedil;o da incompet&ecirc;ncia dos governantes. N&atilde;o adianta ficar de bra&ccedil;os cruzados."

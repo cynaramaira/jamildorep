@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Suspenso por donos de redes sociais, Bolsonaro aposta em TV aberta"
+date: 2021-10-27
+tags: eleições 2022
+author: JAMILDO MELO
+---
+J&aacute; se sabia desde julho ao menos. Jovem Pan e CNN Brasil travaram uma breve batalha nos bastidores pela concess&atilde;o de sinal do canal 32, que ent&atilde;o hospedava o Loading. A r&aacute;dio de Ant&ocirc;nio Augusto Amaral de Carvalho Filho, o Tutinha, que &eacute; o ve&iacute;culo de comunica&ccedil;&atilde;o mais alinhado com o governo de Jair Bolsonaro, levou a melhor, e a partir do segundo semestre passar&aacute; a ser tamb&eacute;m uma emissora da TV aberta.
+Pois bem.
+O presidente da Rep&uacute;blica, Jair Bolsonaro, foi entrevistado nos programas Jornal da Manh&atilde; e P&acirc;nico na estreia do Jovem Pan News, canal de not&iacute;cias do grupo Jovem Pan, que estreiou nesta quarta (27) nas operadoras de TV por assinatura, nas antenas parab&oacute;licas no canal 7 e no Panflix.
+O Jornal da Manh&atilde; teve in&iacute;cio &agrave;s 9h, com apresenta&ccedil;&atilde;o de Thiago Uberreich e Adriana Reid. O presidente foi entrevistado para falar sobre o momento da pandemia no Pa&iacute;s, o aumento dos pre&ccedil;os dos combust&iacute;veis e as proje&ccedil;&otilde;es para as elei&ccedil;&otilde;es de 2022. J&aacute; no P&acirc;nico, sob o comando de Em&iacute;lio Surita, &agrave;s 23h, o presidente tamb&eacute;m far&aacute; uma entrada ao vivo para conversar com o apresentador.
+O canal Jovem Pan News estar&aacute; dispon&iacute;vel na frequ&ecirc;ncia 581 do Vivo Play &ndash; plataforma de TV por assinatura da Vivo, 576 da SKY e no aplicativo de streaming DIRECTV GO e na Oi Play at&eacute; o final deste m&ecirc;s.
+"A emissora nasce carregando o DNA de quase 80 anos da r&aacute;dio, com o foco no hard news, esportes, opini&atilde;o e entretenimento. A cobertura ter&aacute; como principais atributos agilidade e objetividade, caracter&iacute;sticas da linguagem do r&aacute;dio, liderados por um time de comentaristas e especialistas nos mais diversos temas para a cobertura de not&iacute;cias do Brasil e do mundo", diz o grupo, que apoia o bolsonarismo.
+O grupo de m&iacute;dia Jovem Pan foi fundado em 1942 e &eacute; o maior na &aacute;rea de radiodifus&atilde;o da Am&eacute;rica Latina.
+O Grupo Jovem Pan tem o compromisso de promover o di&aacute;logo aberto entre os brasileiros, a an&aacute;lise cr&iacute;tica, abrindo seu espa&ccedil;o para as mais diferentes opini&otilde;es e pontos de vista. Um dos maiores canais de not&iacute;cias do Youtube, no Brasil, o grupo de m&iacute;dia conta com a R&aacute;dio Jovem Pan, com quatro emissoras pr&oacute;prias, 110 afiliadas, sendo 85 emissoras em FM e 20 emissoras em AM, mais de 150 v&iacute;deos novos todos os dias, 20.000 horas de programa&ccedil;&atilde;o original por ano exibidas em mais de 42 canais online, via Youtube; e a nova plataforma de transmiss&atilde;o de streaming, Panflix.

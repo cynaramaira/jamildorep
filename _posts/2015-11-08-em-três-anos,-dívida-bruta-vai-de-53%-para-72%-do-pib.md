@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Em três anos, dívida bruta vai de 53% para 72% do PIB"
+date: 2015-11-08
+tags: dívida,Planos
+author: None
+---
+ Foto: Rafael Neddermeyer/ Fotos Públicas
+Estadão Conteúdo - Após três anos seguidos de baixo crescimento e recessão, com aumento de desemprego, a dívida pública bruta saltará fortemente, deixando o governo mais dependente de um ajuste fiscal para evitar uma crise mais grave. Essa descrição, usada para explicar as turbulências dos últimos anos na Europa, deve servir ao Brasil de 2014 a 2016.
+O próprio governo admitiu ao Congresso que a dívida pública bruta chegará a quase 72% do Produto Interno Bruto (PIB) em 2016. Haverá, portanto, um salto de quase 20 pontos porcentuais da dívida pública em apenas três anos - em dezembro de 2013, ela representava 53,2% do PIB.
+LEIA TAMBÉM:
+&gt; Dívida pública federal avança em setembro e chega a R$ 2,73 trilhões
+&gt; PIB encolheu 2,9% no trimestre encerrado em julho, aponta FGV
+&gt; Despesas dos governos sobem para 19% do PIB em 2013, diz IBGE
+A combinação entre recessão e debilidade fiscal pode ser explosiva? Para o economista Luis Eduardo Assis, ex-diretor do Banco Central, o risco para o País é se aproximar da realidade de alguns países europeus, como Itália, Espanha e Portugal, que viram sua dívida pública subir muito em poucos anos e hoje convivem com baixo crescimento econômico. "A diferença é que eles já enriqueceram, nós não. O grande risco aqui não é mesmo o de uma explosão, como na Grécia, mas de uma mediocridade de crescimento por muitos anos."
+Para Nelson Marconi, coordenador do curso de Economia da Fundação Getulio Vargas em São Paulo (FGV-SP), o quadro de baixo crescimento e alta do endividamento é semelhante ao de países europeus, mas, no limite, o Brasil "se salva" pelo fato de a dívida ser predominantemente lastreada em moeda nacional. "Os europeus estão presos ao euro, uma moeda comum, mas que não é controlada por cada país. Nós, no limite, desvalorizamos muito a moeda para pagar a dívida. Seria uma opção dramática, mas é uma saída limite."
+Erros
+Segundo Marconi, a trajetória de forte alta da dívida desde o fim de 2013 é resultado dos erros de política econômica do governo Dilma e da elevada taxa básica de juros, que corrige os títulos do governo. "O governo concedeu uma série de estímulos fiscais e aumentou muito os gastos para fazer a economia crescer, mas a estratégia não deu certo. Isso piorou o quadro das contas públicas e não gerou crescimento. Os dois problemas, juntos, fazem a dívida pública crescer. Não ajuda o fato de termos a maior taxa de juros do mundo", afirmou.
+Segundo o economista Alexandre Schwartsman, ex-diretor do Banco Central, o governo precisa, urgentemente, "arrumar sua casa". Isto é, reduzir gastos com despesas obrigatórias, em especial na Previdência Social. "O governo precisa fazer um ajuste fiscal que possa, no mais curto espaço de tempo possível, sinalizar que voltará a produzir um superávit fiscal. Isso permitirá ao menos uma estabilização do endividamento público e também a redução dos juros, o que ajuda no crescimento econômico", disse ele.
+Para Schwartsman, a saída preconizada por economistas que defendem mais gastos e mais estímulo ao crédito (como sugeriu o ex-presidente Lula), não faz o menor sentido. "Se gastar fosse a saída, não haveria pobreza no mundo. Bastaria que todos os governos imprimissem dinheiro e entregassem para todas as pessoas."
+Segundo ele, a busca por receitas extraordinárias faz parte do jogo. Nos anos 90, o então governo Fernando Henrique Cardoso (PSDB) usou recursos das privatizações de empresas estatais para pagar os juros da dívida. Agora, o governo Dilma Rousseff pretende usar o dinheiro que pode vir com a regularização e repatriação de ativos de brasileiros mantidos ilegalmente no exterior para reforçar o ajuste fiscal. "A receita extraordinária ajuda. Mas serve apenas para um ano específico, não dá para ficar dependente dela."
+Os analistas, no entanto, concordam que nenhuma reforma estrutural, como mudanças em aposentadorias e pensões e ajustes nas contas públicas, sairá do papel no atual contexto de crise política. "A sociedade brasileira precisa discutir o Estado que ela quer, e isso terá impacto no futuro da dívida pública. Mas esse debate hoje é absolutamente impossível. Só depois de resolvida a crise política", disse Assis. As informações são do jornal O Estado de S. Paulo.

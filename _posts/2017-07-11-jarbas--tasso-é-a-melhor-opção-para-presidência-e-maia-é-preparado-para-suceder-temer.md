@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Jarbas: Tasso é a melhor opção para presidência e Maia é preparado para suceder Temer"
+date: 2017-07-11
+tags: jarbas vasconcelos,Michel Temer,rodrigo maia
+author: None
+---
+Durante uma entrevista à Rádio Jornal, na manhã desta terça-feira (11), o deputado federal Jarbas Vasconcelos (PMDB-PE) afirmou que o melhor nome para assumir a presidência da República é o presidente interino do PSDB, o senador Tasso Jereissati (PSDB-CE). O político pernambucano também declarou que o presidente da Câmara dos Deputados, Rodrigo Maia (DEM-RJ), é preparado para suceder o presidente Michel Temer (PMDB) em uma eventual saída do peemedebista. 
+Questionado se Maia ainda é "verdinho" para substituir Temer, Jarbas defendeu o presidente da Câmara. "Acho uma pessoa preparada. Ele tem presidido a Câmara, desde que assumiu, com muita determinação e equilíbrio. Ele tem mostrado isso de forma muito firme, muita clara e transparente. Acho ele preparado. Preparado, inclusive, para um eventual passagem pro comando do País", revelou.
+Sobre nomes que possam assumir a presidência, o deputado disse que ainda vai aparecer, mas aposta no nome do senador Tasso Jeirissati (PMDB-CE) que preenche os requisitos pela "seriedade e competência". "Acho que o único 'pecado' que ele tem é de ser nordestino. Tirando esse empecilho, ele é o nome que talvez tenha mais condição de presidir o País", declarou.
+O deputado também avaliou a situação do presidente e disse que acredita na probabilidade do afastamento de Temer. "Eu acho que a situação do presidente é difícil e muito perigosa. Ele não está numa situação saudável. Está fora dos trilhos, fora da realidade. Eu vejo a possibilidade de um estrangulamento político e culminar na saída de Temer. Eu não contesto isso", expressou.
+Jarbas Vasconcelos também analisou o "pessimismo exacerbado" na troca de políticos e disse que a crise política favorece o PT e o ex-presidente Lula. "Aquele velho ditado 'quanto pior, melhor'. É isso que o PT sempre jogou. Esse sobe-desce da política, esses desvios e atalhos que temos percorrido na política são coisas boas, deliciosas para o PT. Eles navegam na tempestade. Natural que todo esse contratempo ajuda a negabilidade do PT", criticou o deputado.
+"Fogo de Palha"
+Ainda sobre os nomes cotados para 2018, o peemedebista falou que o deputado federal e possível candidato a presidente da República Jari Bolsonaro (PSC-RJ) não tem chance e que ele só joga no que lhe favorece. "Fogo de palha. Ele aparece com um percentual bastante razoável, mas quando ele botar a cara e falar, vai mostrar ao eleitorado que não é isso que ele quer", analisou.
+Doria
+Jarbas também fez a mesma análise para o prefeito de São Paulo, João Doria (PSDB-SP), e também disse que ele não teria chance nas eleições de 2018, alegando que o tucano ainda tem muita estrada para percorrer. "Ele tem um quadro promissor, que está surgindo e que tem apresentado com muita competência. Mas muita estrada para percorrer", enfatizou.

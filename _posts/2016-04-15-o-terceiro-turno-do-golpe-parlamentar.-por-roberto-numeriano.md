@@ -1,0 +1,13 @@
+---
+layout: post
+title: "O terceiro turno do golpe parlamentar. Por Roberto Numeriano"
+date: 2016-04-15
+tags: golpe,parlamentares,Roberto Alvim,Saturno
+author: None
+---
+Por Roberto Numeriano,em artigo enviado ao blog
+O terceiro turno das eleições de 2014 se institui na forma de um golpe de Estado do tipo parlamentar. E, como todos vemos, vem a galope. Mas os golpistas aquartelados no Congresso Nacional são apenas parte do cenário de horrores que empurra o país para o confronto social, político e ideológico, cujos desdobramentos não se esgotarão na "posse" do vice-presidente. Para além do cenário de sangue e morte com que o golpismo flerta, temos a ruptura de princípios do Estado democrático de Direito, sobre os quais repousam os fundamentos básicos de uma nação e um povo livres.
+O golpismo e seus ideólogos autoritários, o golpismo e seus defensores reacionários (inocentes úteis ou não), o golpismo e seus tipos mais odiosos (os corruptos com mandato comprados nas periferias de capitais e grotões, os corruptos que sonegam mas adoram “impostômetros”, os corruptos que não aceitam a derrota das urnas), toda essa camada podre, em conluio com o que há de mais aético e imoral no jornalismo político (capitaneado pela Rede Globo), está no limiar de destituir, por meio da mentira e da demagogia, a presidente da República.
+No avanço ao poder, como hienas famintas, imaginam que a história real será contada pelo ataque à Constituição Federal. Não vai ser. Como também não foi no caso do golpe civil-militar de 1964. Estamos, a passo acelerado, entrando na zona cinzenta do espaço político onde começamos a sentir o mal tomar forma e se espraiar, insidioso e fétido, entre as pessoas e nas instituições. Quem, por aí, já não está sentindo esse cheiro de algo podre no ar da República?
+Quem, por aí, mesmo sem ser um legalista antigolpe, vai negar que há uma sombra que obscurece tudo e começa a nos sufocar? É assim quando a mentira vence a verdade, seja no parlamento, na família, numa relação ou numa nação. Que Deus não permita o ódio e a mentira, mais uma vez, ferirem a nação brasileira.
+Candidato pelo PCB, a prefeito do Recife e governador, e a deputado federal pelo PSOL,  Roberto Numeriano apresenta-se como jornalista e professor, doutor em Ciência Política pela UFPE, pós-doutor em Ciência Política pelo Instituto Português de Relações Internacionais (IPRI) e autor do livro O que é Golpe de Estado (em coautoria com Mário Ferreira, pela Editora Brasiliense).

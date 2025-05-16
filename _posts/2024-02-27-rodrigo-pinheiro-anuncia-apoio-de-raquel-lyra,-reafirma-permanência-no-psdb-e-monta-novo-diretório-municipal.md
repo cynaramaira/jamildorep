@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Rodrigo Pinheiro anuncia apoio de Raquel Lyra, reafirma permanência no PSDB e monta novo diretório municipal"
+date: 2024-02-27
+tags: jamildo, caruaru
+author: Jamildo Melo
+---
+Em um encontro que ajuda a definir o cen&aacute;rio pol&iacute;tico local, o prefeito de Caruaru, Rodrigo Pinheiro, disse que estava ratificou sua perman&ecirc;ncia no Partido da Social Democracia Brasileira (PSDB) e reafirmou sua pr&eacute;-candidatura &agrave; reelei&ccedil;&atilde;o. Com o apoio do PSB a Z&eacute; Queiroz, possivlemente tamb&eacute;m o PT, Raquel Lyra pode ser obrigada a apoiar o atual prefeito.
+A reuni&atilde;o com Rodrigo Pinheiro ocorreu nesta ter&ccedil;a-feira, dia 27, na sede do PSDB, no Recife, com a presen&ccedil;a do presidente estadual do partido, Fred Loyo.
+No evento, foi anunciado o novo presidente municipal do partido, o secret&aacute;rio de Desenvolvimento Econ&ocirc;mico de Caruaru, Pedro Augusto Cavalcanti. Tamb&eacute;m comp&otilde;em o partido, na Capital do Agreste, o vereador Bruno Lambreta, a secret&aacute;ria municipal Luana Marabuco, o presidente da Funda&ccedil;&atilde;o de Cultura, H&eacute;rlon Cavalcanti, e a secret&aacute;ria executiva Ellen Lemoine.
+Rodrigo Pinheiro disse que continuaria trabalhando em prol do desenvolvimento de Caruaru, principalmente "com o total apoio da governadora Raquel Lyra", vice-presidente nacional do Partido.
+&ldquo;&Eacute; necess&aacute;rio dar continuidade aos projetos iniciados durante a nossa gest&atilde;o e buscar novas oportunidades de crescimento para a cidade e seus moradores&rdquo;, ressaltou.
+Fred Loyo expressou confian&ccedil;a na lideran&ccedil;a e na capacidade administrativa de Rodrigo Pinheiro.
+&ldquo;Desde que assumi a presid&ecirc;ncia do partido, que eu vinha conversando com o Rodrigo no sentido de ele construir a reelei&ccedil;&atilde;o conosco, e hoje se consolida isso. &Eacute; uma cidade importante, &eacute; a cidade da governadora Raquel Lyra, &eacute; uma cidade que Rodrigo ajudou ela a governar e que est&aacute; dando continuidade. Considero muito simb&oacute;lico para todos n&oacute;s, do PSDB, termos Rodrigo candidato pelo nosso partido, n&atilde;o s&oacute; ele como a maior parte dos vereadores. Vamos fazer uma bela campanha em Caruaru este ano&rdquo;, afirmou.
+Avante reafirma apoio &agrave; reelei&ccedil;&atilde;o de Rodrigo
+O partido Avante, liderado por Sebasti&atilde;o Oliveira, reafirmou, em encontro realizado nesta ter&ccedil;a-feira (27), seu apoio ao atual prefeito Rodrigo Pinheiro, do PSDB, nas pr&oacute;ximas elei&ccedil;&otilde;es municipais em Caruaru.
+&ldquo;N&oacute;s n&atilde;o temos a menor d&uacute;vida de que a reelei&ccedil;&atilde;o de Rodrigo ser&aacute; um grande condutor para grandes processos, grandes transforma&ccedil;&otilde;es. Ano passado eu tive a oportunidade, antes de sair da C&acirc;mara dos Deputados, de alocar recursos no valor de mais de 4 milh&otilde;es para a sa&uacute;de de Caruaru e, sem d&uacute;vida nenhuma, falando com o deputado Waldemar, meu irm&atilde;o, esse ano n&oacute;s vamos contribuir de novo com o Caruaru, n&atilde;o s&oacute; eleitoralmente com o Avante na sua reelei&ccedil;&atilde;o, mas tamb&eacute;m contribuindo com emendas que mudem a vida das pessoas para melhor&rdquo;, detalhou Sebasti&atilde;o Oliveira.

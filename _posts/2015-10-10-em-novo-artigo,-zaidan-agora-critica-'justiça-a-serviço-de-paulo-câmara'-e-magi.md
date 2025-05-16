@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Em novo artigo, Zaidan agora critica 'Justiça a serviço de Paulo Câmara' e magistrada que emitiu intimações"
+date: 2015-10-10
+tags: artigo,crítica,Paulo,Serviço
+author: None
+---
+Assistência judiciária gratuíta
+Por Michel Zaidan, em artigo enviado ao Blog
+O Conselho Nacional de Justiça (CNJ) foi criado, no âmbito das discussões sobre a reforma do Poder Judiciário, como uma forma de controle da prestação jurisdicional à sociedade brasileira.
+A prestação jurisdicional é uma modalidade de serviço público, subordinado à Constituição do país e deve ser exclusivamente aos reclamos dos cidadãos e cidadãs, indiscriminadamente.
+A criação do CNJ veio atender à reivindicação de mais agilidade, acessividade e justiça da maioria do povo brasileiro. Foram também criados os Juizados Especiais para desafogar a justiça comum da imensa quantidade de processos físicos que se amontoam nas prateleiras dos cartórios das inúmeras varas judiciais.
+Os oficiais de justiça se queixam rotineiramente de que não dispõe de tempo para entregar no domicílio dos intimados os inúmeros mandados de citação expendidos pelos magistrados brasileiros a propósitos da multidão dos conflitos e litígios que ocorrem diariamente no país.
+Pois, eis que diante desse quadro dramático da prestação jurisdicional no Brasil há um cidadão, que ocupa o cargo de Governador do estado, que tem o privilégio de utilizar uma das varas da justiça criminal de Pernambuco para conseguir que sejam entregues, com celeridade, 3 mandados de citação, sobre o mesmo assunto, sendo que dois num mesmo dia, num espaço de menos de um mês!
+Qual é o cidadão brasileiro que tem o privilégio de utilizar a prestação jurisdicional, ao seu bel prazer, para intimar um desafeto público três vezes, em tão pouco espaço de tempo, sobre um “pedido de interpelação judicial” em relação a algum comentário ou informação pública relacionado com a administração estadual?
+Quando o atual Presidente da Câmara, o senhor Eduardo Cunha, usou a Advocacia Geral da União, para se defender das denúncias assacadas contra ele pela Procuradoria geral da República, afirmou o Procurador que ele não podia usar as atribuições de seu cargo para a defesa de interesses pessoais. Isto tinha um nome: patrimonialismo. Usar as instituições públicas para fins particulares.
+Então, o que dizer de um mandatário estadual – cuja formação é da área de contabilidade públicas – que se vale da prerrogativa do cargo para utilizar o serviço judiciário – tão criticado pela sua morosidade e inoperância – para intimidar, constranger, perseguir adversários políticos ou simplesmente críticos de sua gestão?
+Mais grave é o fato de ter sido procurado pela imprensa (o Blog de Jamildo tentou mais de euma vez sem sucesso falar com assessoria do Palácio e com advogado pessoal do governador, sem sucesso) para se pronunciar publicamente sobre o motivo dessa perseguição judicial, e a autoridade não fazer nenhuma declaração.
+Isso depois de ter conseguido um feito na justiça: a marcação de uma audiência na 7ª Vara criminal para o dia 11 de novembro, às 14:00, sem acostar ao mandato a queixa-crime e dizer qual era o motivo da interpelação judicial. Só ele, do alto de sua grandeza incontestável, pode fazer tal coisa. Ciente dos erros cometidos na expedição do primeiro mandato, manda senhor Paulo Henrique Saraiva Câmara, através de seus advogados, entregar – logo depois – mais duas intimações no mesmo dia, em lugares e horários diferentes, sobre o mesmo assunto.
+Provavelmente, o magistrado deve ter interpretado que a honra, os direitos de personalidade, a estima social, do senhor governador é muito mais importante e cara do que a maioria de seus concidadãos que sustentam – com aumento de impostos – a perdulária e ineficiente administração do governador.
+Assim, é preciso agir com urgência para preservar o patrimônio moral do administrador.
+Talvez o magistrado tão dedicado assim, não tenha percebido que muitas suspeitas recaem sobre os gestores e a administração pública de nosso país.
+Não é crime – ainda – a sociedade exigir uma cabal e convincente explicação pelas brumosas dúvidas e incertezas que pairam sobre os atos administrativos que envolvem o erário público, tão em falta no estado de Pernambuco, até para a própria atividade judiciária, que sofreu com os cortes orçamentários de tão competente gestor/auditor.

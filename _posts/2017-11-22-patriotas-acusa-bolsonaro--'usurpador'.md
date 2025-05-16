@@ -1,0 +1,36 @@
+---
+layout: post
+title: "Patriotas acusa Bolsonaro: 'usurpador'"
+date: 2017-11-22
+tags: Bolsonaro
+author: None
+---
+Estadão Conteúdo - O Coronel Castro, presidente dos Patriotas, partido em processo de formação desde 2015, acusa o deputado Jair Bolsonaro (PSC-RJ) e o presidente do PEN - legenda já deu início ao processo para mudar o nome para Patriota - Adilson Barroso, de "roubo de nome, estelionato político e atitude usurpadora". O Patriotas entrou com dois processos por uso indevido da marca e participa de um pedido de impugnação no Tribunal Superior Eleitoral (TSE) contra a legenda que pretender abrigar o sonho presidencial de Bolsonaro no ano que vem.
+Sem as assinaturas necessárias para a formalização da sigla, Castro já havia desistido de disputar as eleições de 2018, mas trabalhava tendo 2020 como horizonte possível. Eis que em julho o telefone tocou no escritório: "Vocês fecharam com o Bolsonaro?", perguntou um seguidor. Foi assim que Castro descobriu que o PEN (Partido Ecológico Nacional) estava mudando o seu nome para Patriota e lançando Bolsonaro como seu candidato à Presidência.
+LEIA TAMBÉM
+» Cientista política Vera Chaia vê Bolsonaro repetindo Collor
+» FHC diz ter medo da possibilidade de Bolsonaro conquistar o poder
+» STJ confirma condenação de Bolsonaro por danos morais a Maria do Rosário
+"Nós nos sentimos ultrajados. Foi uma falta de ética. O nome no singular só serve para ludibriar o eleitor. Não éramos um partido clandestino. Nosso CNPJ está registrado em Brasília e no site do TSE. Fiquei até doente. Vi todo nosso trabalho indo embora - e vários apoiadores ficando confusos", disse.
+Além do nome parecido, o Patriota tem usado a denominação abreviada PATRI, a mesma os organizadores do Patriotas usam para identificar o partido em formação. A confusão pode ser acompanhada nas páginas do Patriotas nas redes sociais - onde diversos seguidores têm perguntado sobre a campanha do deputado Jair Bolsonaro. A confusão se justifica. Até a identidade visual dos dois partidos é semelhante.
+» Para vice-PGE, decisão sobre Lula e Bolsonaro balizará eleições de 2018
+» Fux anuncia adiamento de julgamento sobre Lula e Bolsonaro no TSE
+Para Castro, a diferença mais importante é mesmo o "s". "O Patriota é uma sigla personalista, que serve apenas para reforçar a imagem do próprio Bolsonaro. A ideia deles é: ‘Bolsonaro, o Patriota’. Já a nossa é uma ideia coletiva de pessoas que lutam por um Brasil melhor, os patriotas", disse.
+Reposicionamento
+O aparecimento do Patriota fez com que o Patriotas deixassem um pouco um discurso de extrema direita para flertar com o centro. "Não defendemos intervencionismo. Nosso lema agora é "Nem para esquerda, nem para a direita. É para frente que o Brasil deve andar".
+O advogado do Patriotas, e filho do presidente do partido, Vinícius de Castro, conta que chegou a ligar para Jair Bolsonaro em busca de explicações. "Ele foi omisso. Disse que não tinha nada a ver com isso, que sequer estava fechado com ele (Adílson Barroso) e que uma briga judicial iria prejudicar toda a direita", contou. O telefonema seguinte foi para o próprio Barroso, que, ainda segundo o advogado, teria sido "ríspido" e dito que "eles não tinham direitos sobre o nome e que não estava nem aí". Por fim, Barroso teria sugerido que o grupo do Patriotas se agregasse ao Patriota nas eleições e, assim, pudesse usufruir da legenda".
+» Bolsonaro divulga carta aos brasileiros e nega autoritarismo 
+Bolsonaro e sua assessoria de imprensa não responderam aos questionamentos da reportagem sobre o assunto. Já Barroso tem outra versão sobre o telefonema e a paternidade do nome. "O nome foi uma ideia do Bolsonaro e da sua equipe. Não foi minha. Eles sequer têm um partido. Quando nos falamos por telefone, eu disse que desistiria do nome se eles me apresentassem 10 mil assinaturas de apoiadores. Eles não tinham nada. Ou seja, não existiam", disse.
+Sem acordo, o Patriotas entrou com dois processos sobre registro de marcas e patentes. Um deles corre em São Paulo, no Tribunal Regional Federal da 3ª Região (TRF-3) e o outro no Tribunal de Justiça do Distrito Federal e dos Territórios (TJDFT), em Brasília. O partido em formação também é um dos autores do processo de impugnação da legenda movida por dois deputados do próprio PEN/Patriota, Junior Marreca (MA) e Walney Rocha (RJ), devido às mudanças feitas no estatuto do partido.
+TSE
+Segundo o TSE, "duas legendas não podem ter nomes similares a ponto de serem distinguidos apenas pelo singular e o plural da mesma palavra." Apesar da norma, "a decisão sobre a existência de usar o nome Patriota(s) deve ser apreciada pela Corte Eleitoral após a apresentação de um pedido nesse sentido - o que ainda não aconteceu". Apesar da regra, a decisão da Corte pode permitir a convivência de nomes similares, como já acontece, por exemplo, com PCB e PCdoB.
+» TSE quer julgar Bolsonaro e Lula por antecipar 2018
+Oficialmente, o PEN ainda não é Patriota. De acordo com o TSE, "o processo número 153572, da alteração do registro do PEN, ainda está tramitando e encontra-se atualmente no gabinete do ministro Jorge Mussi." Não existe data definida para a apreciação do tema. O novo nome do PEN só passa a valer após a publicação, no Diário da Justiça Eletrônico, da decisão do plenário da Corte Eleitoral que acatou a alteração. Já no caso de um partido novo, como o Patriotas, o nome passou a valer no momento do protocolo do pedido de registro. "Acredito que a lei está do nosso lado. Não vamos desistir do nome. Bolsonaro é impulsivo, doidão, toma atitudes que a gente não tomaria. Se ele tivesse a ética que diz que tem, deveria ter me ligado antes, deveria sentar para conversar com as forças de direita antes de sair...", disse Castro.
+Resistência interna
+A mudança de nome e estatuto tem encontrado resistência dentro do próprio Patriota/PEN. Dois deputados da sigla, Junior Marreca (MA) e Walney Rocha (RJ), entraram com pedido de impugnação contra as alterações no Tribunal Superior Eleitoral.
+Dois pontos incomodam os parlamentares: os poderes concedidos a Jair Bolsonaro (presidente de honra do Patriota sem ter se filiado formalmente à sigla) e a impossibilidade, de acordo com o novo estatuto, de coligações com partidos considerados de "extrema esquerda", como PT e PCdoB.
+Rocha, que é Presidente Nacional do Conselho do PEN, afirma que a convenção que decidiu sobre o novo estatuto foi convocada de forma irregular. Ao invés de ser chamada com uma semana de antecedência foi informada por com apenas três dias.
+» Pesquisa aponta Lula e Bolsonaro no 2º turno para 2018
+O deputado fluminense ainda se diz incomodado com os "superpoderes" de Bolsonaro - que já tem indicado nomes para ocupar cargos-chave em diretórios. Além disso, com a entrada da família Bolsonaro no partido, Rocha terá de dividir espaço com eles no Estado.
+Já Marreca, que é vice-presidente nacional do partido, reclama da norma que proíbe coligações com partidos de esquerda. No Maranhão, ele é aliado do governador Flávio Dino (PCdoB).
+Bolsonaro e sua assessoria não responderam os questionamentos da reportagem. O presidente da legenda, Adilson Barroso, diz que não houve nenhuma irregularidade na constituição do novo estatuto e que os deputados que estão reclamando "deveriam se preocupar mais em unir do que desunir o partido".

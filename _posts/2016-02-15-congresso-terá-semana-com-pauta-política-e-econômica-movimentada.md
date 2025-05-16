@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Congresso terá semana com pauta política e econômica movimentada"
+date: 2016-02-15
+tags: Caixa Econômica,Congresso,Política,Semana Santa,terapia
+author: None
+---
+ Entre os temas que voltam à mesa, estão medidas de ajuste fiscal, análise das contas do governo Dilma e ação contra o presidente da Câmara, Eduardo Cunha. Foto: Valter Campanato/Agência Brasil
+Estadão Conteúdo - Depois de uma abertura morna do ano legislativo, o Congresso segue com as atividades nesta semana, agora com pautas que vão movimentar o embate político e econômico. Entre os temas que voltam à mesa, estão medidas de ajuste fiscal, análise das contas do governo Dilma Rousseff, fim da CPI do BNDES e ações contra o presidente da Câmara, Eduardo Cunha (PMDB-RJ) e o senador Delcídio Amaral (PT-MS).
+O Conselho de Ética da Câmara vai retomar as discussões sobre o Processo contra Cunha. O parlamentar é acusado de mentir aos membros da CPI da Petrobras, ao afirmar que não possuía contas em seu nome no exterior. No Conselho de Ética do Senado, por sua vez, as discussões vão envolver o senador Delcídio Amaral (PT-MS). O ex-líder do governo, preso pela Operação Lava Jato, tem até quinta-feira (18) para encaminhar sua defesa ao colegiado.
+Na comissão Mista do Orçamento (CMO) do Congresso, os parlamentares pretendem avançar na análise das contas da presidente Dilma Rousseff em 2014. No ano passado, o Tribunal de Contas da União (TCU) recomendou a reprovação das contas, usando, entre os argumentos, a ilegalidade das chamadas "pedaladas fiscais", atrasos em repasses do Tesouro a bancos públicos e ao FGTS.
+A questão é base de argumento para o pedido de impeachment da petista. Apesar da recomendação, o relator Acir Gurgacz (PDT-RO) apresentou parecer pela aprovação com ressalvas das contas e recebeu críticas da oposição. De acordo com membros da comissão, o relatório final deve ser votado até o início de março.
+No plenário da Câmara, os deputados devem votar duas medidas provisórias que trancam a pauta. Uma delas reabriu prazos para times de futebol parcelarem dívidas, além de permitir que a loteria instantânea, chamada "raspadinha", explore comercialmente eventos de apelo popular. A segunda MP integra o pacote de ajuste fiscal e trata da reforma administrativa. A medida reduziu o número de ministérios de 30 para 31.
+Os deputados também devem votar o projeto de lei que regulamenta o teto de remuneração do serviço público. O texto prevê a criação de um sistema para controle do teto salarial, hoje em R$ 33,7 mil. Reportagem do Estado mostrou que, caso o limite fosse cumprido, a economia as cofres públicos chegaria a quase R$ 10 bilhões por ano.
+A CPI do BNDES, que investiga possíveis irregularidades em operações de crédito do banco de fomento, deve ter trabalhos concluídos nesta semana. A votação do relatório final está prevista para terça-feira (16), mas há possibilidade de um adiamento, caso haja um pedido de vista. Se isso ocorrer, a conclusão fica para quinta-feira (18), prazo final para o fim dos trabalhos.

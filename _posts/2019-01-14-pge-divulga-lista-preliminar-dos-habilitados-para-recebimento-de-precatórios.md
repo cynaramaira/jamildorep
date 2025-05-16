@@ -1,0 +1,13 @@
+---
+layout: post
+title: "PGE divulga lista preliminar dos habilitados para recebimento de precatórios"
+date: 2019-01-14
+tags: divulgação,Lista,precatórios,Recebimento
+author: None
+---
+A Procuradoria Geral do Estado de Pernambuco (PGE-PE) publicou em seu site a lista preliminar de requerimentos deferidos e indeferidos de acordos diretos para pagamento de precatórios mediante deságio. Dos 668 requerimentos apresentados, 664 foram deferidos e quatro indeferidos, conforme os requisitos do edital de convocação da PGE-PE. A lista está disponível em www.pge.pe.gov.br, na guia Acordo Precatórios. Os interessados têm prazo de cinco dias para apresentar eventuais impugnações por meio de petição dirigida ao procurador-geral do Estado.
+Em novembro do ano passado, a PGE-PE publicou o Edital nº 2/2018, estabelecendo prazo para credores do Estado com precatórios inscritos até 1º/7/2018 requererem a formalização de acordo direto mediante deságio de 10% a 40% sobre o valor atualizado, na forma autorizada pela Lei Estadual nº 15.690/2015. Após análise realizada pela Procuradoria do Contencioso, os habilitados foram classificados em lista, respeitadas as prioridades legais definidas no edital.
+O procurador do Estado Antiógenes Viana, da Assessoria do Gabinete do Procurador-Geral, informa que foram classificados 664 requerimentos de acordo direto, contemplando quatro grupos distintos: Credores Portadores de Doença Grave, Credores Maiores de 60 Anos, Credores com Crédito de Natureza Alimentar (menores de 60 anos) e Credores de Crédito Não Alimentar. “Na mesma lista, constam quatro pedidos indeferidos, alertando-se para o prazo de cinco dias para impugnação”, destaca o procurador.
+O prazo para impugnação vai até o dia 18 de janeiro. “Após apreciadas e resolvidas as eventuais impugnações, a lista definitiva será encaminhada ao Núcleo de Precatórios do Tribunal de Justiça do Estado de Pernambuco, a quem competirá deliberar em definitivo quanto ao enquadramento dos pedidos nos permissivos da lei e, ainda, processar os pagamentos, de acordo com a disponibilidade financeira, dentro dos valores que foram destinados a tal finalidade”, explica Antiógenes Viana.
+A quitação dos valores deverá consumir, como previsto, metade dos R$ 198 milhões aportados pelo Governo do Estado na conta judicial administrada pelo TJPE para pagamento de precatórios. Os R$ 99 milhões restantes serão destinados ao pagamento de precatórios remanescentes, conforme ordem de classificação.
+Clique aqui para acessar a Lista Preliminar de Precatórios

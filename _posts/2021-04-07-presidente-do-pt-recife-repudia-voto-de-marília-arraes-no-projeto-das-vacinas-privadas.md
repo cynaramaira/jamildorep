@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Presidente do PT Recife repudia voto de Marília Arraes no projeto das vacinas privadas"
+date: 2021-04-07
+tags: Marília Arraes,Presidente,projeto,Recife,redes privadas,vacinas
+author: None
+---
+O presidente do PT Recife, Cirilo Mota, disse ter recebido com indignação o voto da deputada Federal Marília Arraes no PL 948/21, que abre a possibilidade das empresas comprarem vacinas e doarem metade ao SUS.
+"Tal ato, que vai contra toda a nossa bancada, é favorável à bancada Bolsonarista",  disse Cirilo Mota, presidente Municipal do PT.
+."No momento que ultrapassamos mais de 4 mil mortes nas últimas 24 horas, causada por um governo genocida e vivemos a maior crise sanitária da história deste país, Bolsonaro é responsável pelo desmonte do SUS e defender a PL vai contra a maioria da população brasileira e todos os princípios defendido historicamente pelo Partido dos Trabalhadores em defesa do SUS".
+O PT Pernambuco já tem até um discurso contra a proposta, apostando na velha tese da luta de classes. Veja os termos abaixo
+"Legalização do "fura-fila" escancara apartheid histórico no Brasil"
+Os inimigos da democracia parecem escolher a dedo os piores momentos da história do País para desempacotarem seus pacotes de maldades contra a soberania do povo brasileiro. O golpe mais recente aconteceu na última terça-feira (6), dia em que o Brasil bateu mais um recorde macabro, de 4.211 mortes por covid-19 em um intervalo de 24 horas, totalizando 337.364 vítimas fatais da doença durante a pandemia.
+Enquanto essa tragédia sem precedentes ocorria, o plenário da Câmara Federal aprovou o Projeto de Lei nº 948/21, que autoriza empresas a comprarem diretamente, e sem o aval da Agência Nacional de Vigilância Sanitária (Anvisa), vacinas contra a covid-19. A Bancada do Partido dos Trabalhadores votou contra e denunciou que a proposta vai desorganizar o Plano Nacional de Imunização (PNI), privilegiando quem tem dinheiro, sem respeitar os grupos prioritários. Além do próprio fato em si, dissonante em relação a todas as medidas que vêm sendo executadas em todo o mundo para conter a doença, a aprovação alarga um dos problemas mais crônicos do País, que os mesmos inimigos da democracia se esforçam para velar ao longo do tempos: o apartheid social.
+Disfarçado da boa intenção, o PL nº 948/2021 visa criar uma lei para permitir a aquisição e distribuição de vacinas por pessoas jurídicas de direito privado. Na prática, é uma tentativa do atual desgoverno e de seus aliados no Congresso Nacional de permitir que empresários não apenas furem a fila da vacinação contra a covid-19 como façam isso às custas de toda a população, principalmente os mais pobres. Não à toa já ficou conhecido como o "camarote" da vacina - e ainda com redução de imposto de renda. Um verdadeiro escândalo.
+Vacina não é mercadoria. O Brasil possui uma expertise e um know-how acumulado durante décadas no que diz respeito ao PNI, além do Sistema Único de Saúde (SUS), criado na gestão do PT, capaz de levar a vacina para todo o povo brasileiro em tempo hábil - o que até agora não ocorreu porque o atual desgoverno não assegurou a vacina para o Brasil, pelo contrário, vem sabotando-a desde o início da pandemia. Como se não bastasse, tentar privilegiar uma parte da sociedade, ligada diretamente à atividade econômica, além de desonesto, é criminoso.
+Parabenizamos, em especial, o deputado federal Carlos Veras (PE), por seu posicionamento e voto contrário ao PL e a favor dos direitos inalienáveis do povo brasileiro, do SUS e da própria vida. Ao mesmo tempo, lamentamos a decisão de parlamentares, com principal menção a de Pernambuco, que se posicionaram a favor do PL ou se absteve do voto, que, neste caso, significa o mesmo que votar contra os interesses de toda a população.
+Defender a aquisição e distribuição de vacinas por pessoas jurídicas de direito privado é incentivar ainda mais o processo de desigualdade, o verdadeiro apartheid que acontece no Brasil e que tornou a ser incentivado desde o golpe de 2016.
+#VacinaJá! #VacinaPeloSUS!
+Recife, 7 de abril de 2021

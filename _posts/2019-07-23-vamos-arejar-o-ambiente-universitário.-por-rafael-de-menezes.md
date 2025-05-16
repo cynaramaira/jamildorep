@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Vamos arejar o ambiente universitário. Por Rafael de Menezes"
+date: 2019-07-23
+tags: ambiente,Margareth Menezes,Rafael Nadal
+author: None
+---
+Por Rafael de Menezes, professor de Direito Civil da Universidade Católica de Pernambuco (Unicap), em artigo enviado ao Blog
+Professores conservadores e liberais em todo o país estão se organizando através de um movimento nacional de professores pela liberdade. O grupo começou a interagir pelas redes sociais e hoje já somos centenas em todo o Brasil, interessados em contribuir para a melhoria do nosso ambiente universitário.
+Problemas não faltam, como professor de Direito Civil há 23 anos numa excelente universidade, não compreendo que formandos sequem passem no exame da OAB. Como assim, bacharel em direito e sequer advocacia pode exercer? Onde está a falha do ensino?
+Em outras áreas o problema se repete, em matéria recente na Gazeta do Povo, dia 9 deste mês, com o titulo "Atraso no Brasil: formamos doutores, para formar doutores… que formam doutores", o prof. de informática Silvio Meira da UFPE alerta "Nos países economicamente bem-sucedidos, as pesquisas científicas estão em sintonia com o desenvolvimento econômico e o crescimento das empresas – que geram lucros e empregos.”
+
+Ou seja, as universidades dialogam com o setor produtivo. Enquanto isso no Brasil, o preconceito com o empreendedor, o viés hostil ao lucro de muitos professores, isolaram nossa academia que vive em “looping”, formando doutores, para formar outros doutores sem contribuir aos problemas estruturais do país.
+Da mesma forma o prof. Marcelo Hermes, de bioquímica da UnB (Universidade de Brasília), em artigo também na Gazeta do Povo, em 27.02.19, com o título "Falta de dinheiro não é causa para o baixo impacto da ciência brasileira", destaca que num ranking internacional de impacto científico, nossos professores pesquisam muito, publicam muito, mas suas conclusões não tem relevância internacional. Ou seja, nos últimos anos o pagador de impostos brasileiro investiu bastante no ensino universitário mas a qualidade da produção acadêmica foi tímida.
+Por isso, quando universidades bradam que querem mais dinheiro, e que não vão aceitar corte de verbas, na verdade o que elas precisam é de gestão eficiente, melhor formação dos pesquisadores, interação com o setor produtivo e liberdade para produzir fora da cartilha política que predominou no país nas últimas décadas.
+Outro dado relevante da nossa decadência educacional se revela nos números do Pisa: Programa Internacional de Avaliação de Alunos, que mede o nível educacional de jovens de 15 anos em todo o mundo, organizado pela OCDE (Organização para Cooperação e Desenvolvimento Econômico), com sede em Paris.
+Nas últimas décadas caímos para os últimos lugares dos países que tiveram seus jovens avaliados em ciência, leitura e matemática... E nas últimas décadas o pensamento conservador e liberal foi asfixiado no país, após seguidas eleições de presidentes de esquerda, que pautaram a educação brasileira, administraram os recursos públicos e deixaram de legado esses índices lamentáveis de qualidade. Não faltou dinheiro, faltou gestão, faltou liberdade.
+Por isso o movimento nacional dos professores conservadores e liberais, através do seu núcleo pernambucano, em reunião este mês na UFPE, redigiu uma carta aberta, qual a educação que queremos? Uma academia que respeite todas as correntes de pensamento; que valorize nossas origens históricas na cultura clássica ocidental; que dialogue com o setor produtivo, que não hostilize quem visa ao lucro, gera empregos e paga impostos no país; que valorize o professor e o aluno, cada um no seu contexto.

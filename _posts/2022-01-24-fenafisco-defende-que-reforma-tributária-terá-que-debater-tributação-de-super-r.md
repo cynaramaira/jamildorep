@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Fenafisco defende que reforma tributária terá que debater tributação de super-ricos, em 2022"
+date: 2022-01-24
+tags: eleições 2022, imposto
+author: JAMILDO MELO
+---
+A entidade diz que o aumento da quantidade e do patrim&ocirc;nio dos bilion&aacute;rios brasileiros desde o in&iacute;cio da pandemia, alguns dos super-ricos pedindo para pagarem mais impostos e o aumento da desigualdade no pa&iacute;s trar&aacute; de volta as discuss&otilde;es sobre a urg&ecirc;ncia de uma reforma tribut&aacute;ria ampla.
+Segundo a Federa&ccedil;&atilde;o Nacional do Fisco Estadual e Distrital (Fenafisco), al&eacute;m da simplifica&ccedil;&atilde;o de tributos sobre o consumo, uma reforma tribut&aacute;ria focada na renda e patrim&ocirc;nio, implementando a progressividade no sistema brasileiro pode gerar R 292 bilh&otilde;es ao ano,
+Segundo estudo realizado pela Reforma Tribut&aacute;ria Solid&aacute;ria, um projeto desenvolvido pela Fenafisco (Federa&ccedil;&atilde;o Nacional do Fisco Estadual e Distrital) e pela Anfip (Associa&ccedil;&atilde;o Nacional dos Auditores da Receita Federal do Brasil), a tributa&ccedil;&atilde;o sobre grandes fortunas no pa&iacute;s poderia arrecadar cerca de R 40 bilh&otilde;es em apenas um ano.
+Para a Federa&ccedil;&atilde;o, as altas rendas e patrim&ocirc;nio precisam ser parte dos debates sobre reforma tribut&aacute;ria.
+Atualmente, tramitam no Congresso Nacional propostas de tributa&ccedil;&atilde;o sobre a renda e o patrim&ocirc;nio, uma delas - a Emenda Substitutiva Global 178/2019 &agrave; PEC 45/2019, inspirada nos estudos encabe&ccedil;ados pela Fenafisco, que desde 2017 atua por uma reforma tribut&aacute;ria com a&ccedil;&otilde;es direcionadas aos super-ricos e que protegem as classes mais pobres do aumento de impostos.
+"A Emenda 178/2019, se aprovada, ajudaria a reduzir a desigualdade, melhor a receita do Estado e reequilibrar o pacto federativo".
+Charles Alcantara, presidente da Fenafisco, destaca que parte da popula&ccedil;&atilde;o acredita que ser&aacute; afetada com tributa&ccedil;&atilde;o dos super-ricos, mas isto n&atilde;o seria verdade.
+&ldquo;A tributa&ccedil;&atilde;o de grandes fortunas precisa ser desmistificada. Milion&aacute;rios e bilion&aacute;rios &eacute; que ser&atilde;o afetados. Em nada esse imposto afetar&aacute; as classes mais baixas. Pelo contr&aacute;rio, taxar mais os mais ricos &eacute; o que permite reduzir a taxa&ccedil;&atilde;o dos mais pobres&rdquo;.
+Segundo a Oxfam Brasil, o Brasil tem 55 bilion&aacute;rios com patrim&ocirc;nio estimado em R$ 961 bilh&otilde;es. A soma patrimonial dos 20 primeiros bilion&aacute;rios da lista &eacute; maior do que 128 milh&otilde;es de brasileiros possuem.
+&ldquo;Neste ano de elei&ccedil;&atilde;o, precisamos discutir como ser&aacute; feita essa tributa&ccedil;&atilde;o. At&eacute; os pr&oacute;prios bilion&aacute;rios ao redor do mundo sabem que &eacute; justo e urgente aumentar os impostos para essa pequena parcela que det&eacute;m uma riqueza t&atilde;o absurda quanto escandalosa&rdquo;, afirma Alcantara.
+Outro estudo encomendado pela Fenafisco aponta que 70% da renda dos super-ricos n&atilde;o &eacute; tributada, gerando uma disparidade com as classes mais baixas que pagam proporcionalmente mais impostos.
+Al&eacute;m de corrigir a distor&ccedil;&atilde;o no sistema que livra milion&aacute;rios e bilion&aacute;rios do pagamento de tributos, as medidas sugeridas pela Federa&ccedil;&atilde;o aproximariam o Brasil do padr&atilde;o tribut&aacute;rio da OCDE (Organiza&ccedil;&atilde;o para a Coopera&ccedil;&atilde;o e Desenvolvimento Econ&ocirc;mico).

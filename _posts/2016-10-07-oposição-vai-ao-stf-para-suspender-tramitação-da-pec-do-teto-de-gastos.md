@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Oposição vai ao STF para suspender tramitação da PEC do teto de gastos"
+date: 2016-10-07
+tags: gastos,Oposição,Teto
+author: None
+---
+Estadão Conteúdo - Parlamentares do PT e do PCdoB protocolaram nesta sexta-feira (7) um mandado de segurança, com pedido de liminar, no Supremo Tribunal Federal (STF) pedindo a suspensão da Proposta de Emenda Constitucional (PEC) do teto de gastos públicos. Considerado prioridade do presidente Michel Temer, o projeto foi aprovado na quinta-feira (6) na Comissão Especial da Câmara dos Deputados e deve ser apreciado na próxima segunda (10) pelo plenário da Casa. A PEC limita as despesas do governo federal aos gastos do ano anterior, mais a variação da inflação
+A medida é contra o presidente da Câmara, Rodrigo Maia (DEM-RJ), que, segundo os parlamentares, estaria impedido de colocar o projeto na pauta de votações por ser coautor do texto, e, portanto, ser parte interessada. Como Maia foi responsável por permitir a análise da PEC na Comissão de Constituição e Justiça (CCJ) e determinar a instalação da Comissão Especial que aprovou o relatório do projeto, os deputados afirmam que houve "ilegalidade e abuso de poder" na tramitação da proposta na Casa.
+LEIA TAMBÉM
+» Ex-vice-líder de Dilma na Câmara declara voto a favor da PEC do teto
+» Comissão Especial da Câmara aprova PEC que limita gastos públicos por 20 anos
+» Enquete: Você concorda com a PEC que propõe o teto para os gastos públicos?
+Na ação, os parlamentares também argumentam que a proposta, se aprovada, vai restringir o poder do Legislativo e do Judiciário para aumentar seus orçamentos. O pedido aponta limitação "ao exercício de atribuições e competência dos Poderes da República" e "restrição da liberdade" dos deputados federais que se elegerão no futuro para deliberar sobre a destinação dos recursos públicos, na votação das leis orçamentárias anuais, inclusive para concessão de aumento a servidores públicos.
+"Ao retirar, ou ao limitar a competência constitucional dos Tribunais, do Ministério Público da União e da Defensoria Pública da União, e especialmente das próximas legislaturas das Casas Legislativas do Congresso Nacional, a PEC 241/2016 projeta para o cenário normativo nacional grave restrição, que por fragilizar a relação dos Poderes Legislativo e Judiciário perante a condução administrativa que o Poder Executivo implementará tende a abolir aspecto central da atividade legislativa, qual seja aferir e deliberar sobre a projeção de receitas e a previsão de despesas da União", diz a peça.
+Orçamento
+Os deputados alegam que o projeto pretende "afastar a Lei de Diretrizes Orçamentárias (LDO) como ato normativo balizador para a elaboração dos orçamentos dos demais órgãos". "Ao afastar a discussão que o Poder Legislativo tem anualmente sobre as diretrizes que entenda cabível para a elaboração do orçamento geral da União, a sistemática do sugerido Novo Regime Fiscal concebido pelo Poder Executivo passa a ser a referência, privando-se os representantes do titular do poder, o povo, do exercício constitucional de apreciação e deliberação sobre quais e em quais valores as despesas da União devem ser previstas. "
+No STF, o mandado de segurança foi encaminhado por sorteio para análise do ministro Luís Roberto Barroso. Caberá a ele, como relator, examinar também um pedido de liminar para suspender ou não a tramitação da PEC.
+Assinam a peça os deputados Jandira Feghali (PCdoB-RJ), Luciana Santos (PCdoB-PE), Daniel Almeida (PCdoB-BA), Afonso Florence (PT-BA), Angela Albino (PCdoB-SC), Jô Moraes (PCdoB-MG), Francisco Lopes (PCdoB-CE) e Alice Portugal (PCdo -BA).

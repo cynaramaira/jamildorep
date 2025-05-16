@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Para Krause, os dois se merecem"
+date: 2007-04-22
+tags: caixa dois,Pará
+author: None
+---
+Sealopra
+Por Gustavo Krause
+“Afirmo que o governo Lula é o mais corrupto de nossa história nacional. Corrupção tanto mais nefasta por servir à compra de congressistas, à politização da Polícia Federal e das agências reguladoras, ao achincalhamento dos partidos políticos e à tentativa de dobrar qualquer instituição do Estado capaz de se contrapor a seus desmandos.
+Afirmo ser obrigação do Congresso Nacional declarar prontamente o impedimento do presidente. As provas acumuladas de seu envolvimento em crimes de responsabilidade podem ainda não bastar para assegurar sua condenação em juízo. Já são, porém, mais do que suficientes para atender ao critério constitucional do impedimento. 
+Desde o primeiro dia de seu mandato, o presidente desrespeitou as instituições republicanas. Imiscuiu-se, e deixou que seus mais próximos se imiscuíssem, em disputas e negócios privados. E comandou, com um olho fechado e outro aberto, um aparato político que trocou dinheiro por poder e poder por dinheiro e que depois tentou comprar, com a liberação de recursos orçamentários, apoio para interromper a investigação de seus abusos”.
+Esta é a abertura do artigo “Pôr fim ao governo Lula”, publicado na edição de 15 de novembro de 2005, Folha de São Paulo, de autoria do senhor Roberto Mangabeira Unger que vem a ser o mais novo integrante do governo Lula, ocupando a 36º pasta ministerial, denominada Secretaria Especial de Assuntos de Longo Prazo. 
+O humor brasileiro já deu um nome apropriadíssimo ao novo penduricalho: SEALOPRA, e assim será tratado aqui e alhures.
+Das duas uma (ou as duas): o Presidente nunca deu um tostão furado no que diz Mangabeira Unger e, neste caso, não mereceria confiança nem para servir cafezinho no Alvorada; Mangabeira esqueceu o que escreveu ou nunca acreditou no que havia escrito e aceitou integrar o “honrado” governo. Então como é que os brasileiros vão acreditar nas ações propostas pelo SEALOPRA?
+Há uma hipótese, esta, a mais provável: Unger acredita em Da Silva e Da Silva acredita em Unger. Conclusão: ambos estão certos e se merecem. Não sei se o Brasil merece. 
+Com efeito, o professor Mangabeira tem a missão de formular políticas e ações para um país que tem enorme dificuldade em dar a devida atenção ao valor do amanhã. Tudo que é estratégico tem se desmanchado na praga do imediatismo; o tempo ensina, porém mata os seus alunos. 
+Para reverter esta tendência, o titular da SEALOPRA comandará o Núcleo de Assuntos Estratégicos que abrigou Gushiken, aquele que imaginou pensar o Brasil a partir das verbas publicitárias e do esperto manejo dos fundos de previdência. Deu problema. Mas nada que o sucesso eleitoral não apagasse. 
+Conta, ainda, na sua estrutura com respeitável instituição – o IPEA –, criado em 64, transformado em fundação em 1967 e que, na história do nosso planejamento governamental, exerceu, em várias ocasiões, o papel de consistente “think tank” na missão original de “apontar caminhos” para o Brasil.
+Como militante, a trajetória política do professor Mangabeira prima pela versatilidade: foi ideólogo do PDT de Brizola, do candidato presidencial do PPS Ciro Gomes, atualmente é filiado e guru das duas maiores lideranças do partido que mais cresce no ocidente, o PRB, que são o Vice-Presidente José de Alencar e o senador-bispo Marcelo Crivela. 
+Em 1990, candidatou-se a deputado federal pelo Rio de Janeiro na legenda do PDT. Diziam seus adversários que nos comícios da Rocinha e da Favela da Maré citava Kierkegaard, Wittgenstein e a “Teoria comunicativa” de Habermas. Teve escassos dez mil votos. Mas já prometeu: se José de Alencar não for candidato à sucessão de Lula em 2010, Unger vai à luta.
+Se o seu currículo político-eleitoral não é essa coisa toda, o mesmo não pode se dizer de seu percurso intelectual. Professor de direito em Harvard aos 22 anos, contratado, e titular aos 26, o professor Mangabeira Unger é autor de vasta obra e um dos intelectuais brasileiros de mais prestígio no exterior. 
+Deve-se à síndrome de Caim, ou seja à enfermidade congênita ou adquirida que mistura inveja e vaidade, a crítica dos seus desafetos intelectuais segundo a qual o Professor Mangabeira pensa, escreve de forma obscura, prolixa e fala “portinglês”, isto é, português com acentuado sotaque americano.
+Nessa história, o que causa espanto não é a mudança das idéias do professor, nem o hibridismo do papel de quem professa a política da cultura – o intelectual – e, ao mesmo tempo, incorpora a cultura dos políticos – o militante partidário. 
+No primeiro caso, o que espanta é a rápida mudança das idéias contundente e dos conceitos devastadores em relação ao governo; no segundo, a completa negação de que a história das idéias e a história das ações correm sobre trilhos paralelos que raramente se encontram.
+Na cultura dos políticos, há mudanças legítimas, alianças circunstanciais e o condenável adesismo oportunista; na política da cultura, o que se espera, mesmo do intelectual engajado (além do pudor), é que mantenha íntegra, ensinava Benedetto Croce, “a força não-política, a força moral que é a missão do homem de cultura” ou, no mínimo, que o Brasil do futuro não seja pensado com o sotaque americano. 

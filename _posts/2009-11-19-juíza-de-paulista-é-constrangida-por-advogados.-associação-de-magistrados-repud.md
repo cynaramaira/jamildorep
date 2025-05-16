@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Juíza de Paulista é constrangida por advogados. Associação de Magistrados repudia tentativa de intimidação"
+date: 2009-11-19
+tags: Advogados,juíza Selma,Paulista
+author: None
+---
+A Associa&ccedil;&atilde;o dos Magistrados do Estado de Pernambuco lan&ccedil;ou, na manh&atilde; desta quinta-feira(19), uma nota p&uacute;blica de rep&uacute;dio a um grupo de advogados que, em pleno expediente forense promoveram, ontem, um tumulto na tentativa de intimidar a magistrada Regina C&eacute;lia Maranh&atilde;o, do Juizado Especial da Comarca de Paulista.
+Na nota, a diretoria da AMEPE entende que &ldquo;o papel constitucional do Poder Judici&aacute;rio de resolver conflitos resulta no mais das vezes na contrariedade de interesses, pois a decis&atilde;o quase sempre desagradar&aacute; uma das partes. O sistema jur&iacute;dico p&otilde;e &agrave; disposi&ccedil;&atilde;o do cidad&atilde;o os meios necess&aacute;rios para insurg&ecirc;ncia das decis&otilde;es desfavor&aacute;veis, no que est&aacute; desaprovada qualquer irresigna&ccedil;&atilde;o fora dos autos&rdquo;.
+Segundo a ju&iacute;za, o tumulto teria sido promovido pela Ordem dos Advogados de Pernambuco(OAB-PE), por solicita&ccedil;&atilde;o da advogada Maria Lu&iacute;sa Torres Ribeiro, supostamente atingida por ato expedido pela magistrada Regina C&eacute;lia Maranh&atilde;o.
+&ldquo;N&oacute;s achamos que a OAB n&atilde;o podia reagir dessa forma, porque existem os dispositivos legais quando qualquer pessoa se sente v&iacute;tima de uma decis&atilde;o desfavor&aacute;vel, mas tentar intimidar o magistrado em pleno expediente forense isso n&atilde;o pode acontecer&rdquo;, afirmou o presidente da AMEPE, juiz Laiete Jatob&aacute;.
+Na nota p&uacute;blica, a AMEPE ressaltou ainda que &ldquo;adotar&aacute; todos os meios legais para restaurar o estado de direito, inclusive para possibilitar &agrave; magistrada o exerc&iacute;cio constitucional e legal da fun&ccedil;&atilde;o prec&iacute;pua do Poder Judici&aacute;rio&rdquo;. Contato para entrevista: juiz Laiete Jatob&aacute;, presidente da AMEPE, 9225-6127
+NOTA P&Uacute;BLICA
+A Associa&ccedil;&atilde;o dos Magistrados do Estado de Pernambuco &ndash; AMEPE, Entidade de Classe que congrega cerca de seiscentos magistrados, vem a p&uacute;blico externar o seu veemente rep&uacute;dio aos advogados que, em pleno expediente forense, promoveram manifesta&ccedil;&atilde;o de solidariedade a advogado supostamente atingido por ato expedido pela magistrada Regina C&eacute;lia de Albuquerque Maranh&atilde;o, do Juizado Especial da Comarca de Paulista, provocando tumulto e revelando n&iacute;tida e frustrada inten&ccedil;&atilde;o de intimidar, em evidente atentado ao estado democr&aacute;tico de direito.
+Reafirma esta associa&ccedil;&atilde;o que a independ&ecirc;ncia do magistrado no exerc&iacute;cio da fun&ccedil;&atilde;o judicante &eacute;, antes de um direito, um dever, constituindo-se em verdadeira garantia da sociedade.
+O papel constitucional do Poder Judici&aacute;rio de resolver conflitos resulta no mais das vezes na contrariedade de interesses, pois a decis&atilde;o quase sempre desagradar&aacute; uma das partes.
+O sistema jur&iacute;dico p&otilde;e &agrave; disposi&ccedil;&atilde;o do cidad&atilde;o os meios necess&aacute;rios para insurg&ecirc;ncia das decis&otilde;es desfavor&aacute;veis, no que est&aacute; desaprovada qualquer irresigna&ccedil;&atilde;o fora dos autos.
+A AMEPE adotar&aacute; as medidas necess&aacute;rias a assegurar a independ&ecirc;ncia da magistratura e o respeito devido aos membros do Judici&aacute;rio, colocando &agrave; disposi&ccedil;&atilde;o de sua associada o apoio institucional e jur&iacute;dico necess&aacute;rio ao exerc&iacute;cio da fun&ccedil;&atilde;o prec&iacute;pua do Poder Judici&aacute;rio. 
+A DIRETORIA 
+&nbsp; 

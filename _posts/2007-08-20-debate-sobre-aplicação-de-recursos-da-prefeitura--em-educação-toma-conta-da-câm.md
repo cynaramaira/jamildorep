@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Debate sobre aplicação de recursos da prefeitura  em educação toma conta da Câmara do Recife"
+date: 2007-08-20
+tags: Câmara,Debate,Educação,Prefeitura,Reaplicação,Recife,recursos
+author: None
+---
+Da editoria de Pol&iacute;tica do JC
+No que depender dos l&iacute;deres do governo e da oposi&ccedil;&atilde;o na C&acirc;mara dos Vereadores, o embate acerca da aplica&ccedil;&atilde;o, ou n&atilde;o, pela Prefeitura do Recife do m&iacute;nimo constitucional de 25% em Educa&ccedil;&atilde;o ser&aacute; travado na tribuna da Casa. 
+L&iacute;der da oposi&ccedil;&atilde;o, Daniel Coelho (PV) afirmou, ontem (domingo, 19), que seu partido n&atilde;o ser&aacute; co-autor do pedido de interven&ccedil;&atilde;o na PCR - que dever&aacute; ser enviado nesta segunda (20) ao Minist&eacute;rio P&uacute;blico pelo PPS e o PSDB - mas que, independente da quest&atilde;o jur&iacute;dica, o assunto ser&aacute; discutido pela bancada, que cobrar&aacute; explica&ccedil;&otilde;es. 
+&ldquo;N&atilde;o houve tempo para o PV se reunir para tratar do pedido de interven&ccedil;&atilde;o. Mas existe a&iacute; um fato pol&iacute;tico importante, que n&atilde;o deixaremos de tratar. O prefeito faz um discurso de que a educa&ccedil;&atilde;o &eacute; prioridade e que a maior obra &eacute; cuidar das pessoas, mas, na pr&aacute;tica, n&atilde;o investe nem o m&iacute;nimo em educa&ccedil;&atilde;o&rdquo;, disse Coelho. 
+Segundo ele, os partidos de oposi&ccedil;&atilde;o dever&atilde;o se reunir antes da sess&atilde;o desta segunda para definir o tratamento que dar&atilde;o ao tema. &ldquo;Teremos uma conversa de bancada e isso ser&aacute; levado &agrave; sess&atilde;o&rdquo;, explicou. 
+L&iacute;der do governo, o vereador Henrique Leite (PT) tamb&eacute;m tentar&aacute; fazer pronunciamento, mas em defesa da prefeitura. Ele informou que coletar&aacute; dados com a secret&aacute;ria de Educa&ccedil;&atilde;o do munic&iacute;pio, Maria Luiza Al&eacute;ssio. &ldquo;Vamos mostrar que isso &eacute; jogo de cena da oposi&ccedil;&atilde;o e que a gest&atilde;o aumentou o n&uacute;mero de escolas municipais e de matr&iacute;cula, acabou com escolas comunit&aacute;rias e instalou creches&rdquo;, defendeu. 
+Sobre o pedido de interven&ccedil;&atilde;o na prefeitura, Leite afirmou que n&atilde;o passa de &ldquo;desespero&rdquo;. &ldquo;O PSDB, principalmente, est&aacute; no desespero para ter candidato pr&oacute;prio. Ent&atilde;o tenta jogar isso para a plet&eacute;ia e posar de paladino da &eacute;tica&rdquo;, criticou, informando que o PT cogita processar PSDB e PPS por apresentarem &ldquo;informa&ccedil;&otilde;es distorcidas&rdquo;, disse. 

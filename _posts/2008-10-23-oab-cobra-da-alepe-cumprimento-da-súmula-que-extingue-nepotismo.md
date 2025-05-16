@@ -1,0 +1,15 @@
+---
+layout: post
+title: "OAB cobra da Alepe cumprimento da súmula que extingue nepotismo"
+date: 2008-10-23
+tags: alepe,cobra
+author: None
+---
+Of&igrave;cio
+View SlideShare document or Upload your own.
+
+A Ordem dos Advogados do Brasil - Seccional Pernambuco (OAB/PE) enviou of&iacute;cio nesta quinta-feira (23) ao presidente da Assembl&eacute;ia Legislativa de Pernambuco, deputado estadual Guilherme Uch&ocirc;a, solicitando que sejam informadas todas as medidas concretas j&aacute; tomadas a fim de que o &oacute;rg&atilde;o cumpra o que est&aacute; previsto na S&uacute;mula Vinculante n&ordm; 13 do Supremo Tribunal Federal (STF) publicada no dia 29 de agosto de 2008 - que extinguiu a pr&aacute;tica do nepotismo em todo o Pa&iacute;s e em todos os Poderes.
+O of&iacute;cio encaminhado ressalta ainda que, segundo inciso V do artigo 56 do Regimento Interno da pr&oacute;pria Assembl&eacute;ia, cabe &agrave; Mesa Diretora da Casa &quot;nomear, promover, comissionar, conceder gratifica&ccedil;&atilde;o e licen&ccedil;as, p&ocirc;r em disponibilidade, demitir, aposentar e deliberar sobre qualquer outra mat&eacute;ria referente aos servidores da Assembl&eacute;ia&quot;.
+&quot;O presidente nacional da OAB, Cezar Britto, j&aacute; informou que ajuizar&aacute; uma reclama&ccedil;&atilde;o junto ao STF contra todos os casos de nepotismo que continuarem a existir no Pa&iacute;s em detrimento do que est&aacute; determinado na S&uacute;mula Vinculante n&ordm; 13. Para tanto, nos foi solicitado pelo Conselho Federal da OAB (CFOAB) que inform&aacute;ssemos os casos de nepotismo em nosso Estado. Segundo Asfora, &eacute; preciso que a S&uacute;mula n&ordm; 13 seja cumprida integralmente.
+Ele concorda com o procurador-geral da Rep&uacute;blica, Antonio Fernando de Souza, de que, para acabar de vez com o nepotismo, &eacute; preciso romper com uma tradi&ccedil;&atilde;o no Pa&iacute;s. &quot;Na reclama&ccedil;&atilde;o que fez ao STF contra a Mesa Diretora do Senado por causa da tentativa de burlar a S&uacute;mula, o procurador-geral lembrou que nem mesmo a dr&aacute;stica ruptura na forma de Estado, com a proclama&ccedil;&atilde;o da Rep&uacute;blica em 1889, foi capaz de resolver o problemal&quot;, escreveu o procurador.&nbsp;
+Com o objetivo de cumprir a determina&ccedil;&atilde;o do CFOAB, a Seccional Pernambuco tamb&eacute;m enviar&aacute; of&iacute;cios solicitando informa&ccedil;&otilde;es sobre poss&iacute;veis casos de nepotismo aos Poderes Judici&aacute;rio e Executivo, Minist&eacute;rio P&uacute;blico de Pernambuco, Tribunal de Contas do Estado e Associa&ccedil;&atilde;o Municipalista de Pernambuco (Amupe). &quot;Al&eacute;m disso, nossa Ouvidoria continua &agrave; disposi&ccedil;&atilde;o para quem quiser fazer alguma den&uacute;ncia, inclusive, casos de nepotismo cruzado&quot;, explica Asfora. 

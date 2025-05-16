@@ -1,0 +1,27 @@
+---
+layout: post
+title: "Por 61 a 20, Dilma é afastada em definitivo e deixa a presidência"
+date: 2016-08-31
+tags: Dilma
+author: None
+---
+Nove meses após a abertura do processo de impeachment, o plenário do Senado decidiu, por 61 a 20, já na tarde desta quarta-feira (31), afastar definitivamente a presidente Dilma Rousseff (PT), após quase uma semana do início do julgamento final.
+Para que a petista deixasse a presidência, 54 parlamentes teriam que votar contra ela, representando dois terços da Casa. Assim, com o resultado do longo julgamento, Dilma sai da presidência e o ex-vice e ex-interino Michel Temer (PMDB) fica no cargo definitivamente.
+Não houve abstenções. Até o presidente da Casa, Renan Calheiros (PMDB-AL), que não havia se posicionado nas outras duas votações, decidiu se manifestar na decisão final.
+Quando sofreu o impeachment, o agora senador Fernando Collor (PTC-AL) perdeu os direitos políticos por oito anos. Um requerimento apresentado pelo PT nesta quarta-feira, porém, colocou essa penalidade como destaque a ser votado depois. Em decisão considerada surpreendente, por 42 a 36 votos, Dilma não perdeu o direito de disputar novas eleições. Houve ainda três abstenções. Eram necessários 54 votos, da mesma forma que para aprovar o impeachment.
+Como foi o julgamento de Dilma
+O julgamento começou na última quinta (25) e teve seis reuniões no plenário da Casa, entre as realizadas para ouvir testemunhas e informantes, que teve o pronunciamento e a inquirição de Dilma e, por último, a fase de discussão, com debate entre acusação e defesa e falas de parlamentares dos dois lados.
+LEIA:
+» Primeiro dia do julgamento de Dilma em 10 palavras
+» Entre choro e pérolas, saiba como foi o quinto longo dia de julgamento do impeachment
+O impeachment desde o início
+O processo de impeachment começou a ser articulado no início do ano passado, mas só foi aceito no dia 2 de dezembro, quando o então presidente da Câmara, Eduardo Cunha (PMDB-RJ) – afastado pelo Supremo Tribunal Federal (STF) por usar o cargo para agir em benefício próprio, além de ser réu na Operação Lava Jato – acolheu pedido dos juristas Helio Bicudo, Miguel Reale Junior e Janaína Paschoal. Veja linha do tempo com alguns dos principais fatos do impeachment até agora:
+
+O pedido de afastamento, apresentado em outubro, usou como argumento o atraso no repasse de recursos para a Caixa Econômica Federal e o Banco do Brasil, referentes a despesas com programas sociais do governo e com o Programa de Sustentação de Investimentos (PSI), que é a chamada “pedalada fiscal”. Além disso, os juristas alegam que houve três decretos envolvendo créditos suplementares assinados pela presidente sem autorização do Congresso Nacional. Em documento de centenas de páginas, o advogado de Dilma usou testemunhas e documentos do Ministério Público Federal (MPF) para defender que essas ações não configuram crime de responsabilidade. O relatório da Comissão Especial do Impeachment, elaborado por Antonio Anastasia (PSDB-MG), argumentou o contrário.
+» Dilma depõe e troca farpas com adversários no quarto dia de julgamento do impeachment
+» Após 12 horas de trabalhos no terceiro dia de julgamento, termina fase de depoimentos
+» Segundo dia de julgamento tem testemunhas defendendo que não houve crime de responsabilidade
+A admissibilidade do processo foi votada em maio, quando, por 55 votos a 22, Dilma foi afastada e Michel Temer assumiu o Palácio do Planalto interinamente. Depois, a Casa teria seis meses para analisar o impeachment, ouvindo testemunhas e colhendo provas. Os trabalhos do colegiado especial duraram dois meses e, em agosto, o relatório final de Anastasia, recomendando que Dilma virasse ré e fosse a julgamento, foi aprovado por 59 a 21 em plenário.
+Dilma foi reeleita em 2014, novamente com apoio do PMDB, que teve Michel Temer pela segunda vez como vice na chapa. Apesar disso, o peemedebista Eduardo Cunha, eleito meses depois para a presidência da Câmara, nunca foi para ela um aliado. O peemedebista aceitou a denúncia dos juristas um dia depois de a bancada petista decidir votar contra ele no Conselho de Ética da Casa, o que provocou, durante o julgamento, diversas acusações da antiga base do governo petista de que o peemedebista teria aberto o processo depois que os petistas não cederam a uma suposta chantagem.
+Antes mesmo da abertura do processo na Câmara, o PMDB já havia dado sinais de afastamento do governo, com o desgaste da imagem da presidente. O partido, antes do mesmo lado político, lançou um plano econômico próprio. Não são poucos os que dizem que o problema de Dilma foi não saber escolher os próprios aliados.
+A própria petista reclamou, durante o julgamento, de "traição" de Temer. “Michel Temer foi escolhido para ser meu vice porque supúnhamos que ele era integrante do PMDB democrático, progressista e transformador. Mas isso começou a mudar entre o fim do primeiro mandato e o início do segundo. Eu lamento muito por ter construído essa hipótese de que o vice representava o centro democrático que até então havia dado governabilidade ao País”, disse, em resposta a Cristovam Buarque (PPS-DF), se mostrando arrependida. “Eu respeito muito a tradição de luta do PMDB pela democracia, mas infelizmente esse processo não teve continuidade nos tempos recentes. Este impeachment é fruto dessa mudança de comportamento.”

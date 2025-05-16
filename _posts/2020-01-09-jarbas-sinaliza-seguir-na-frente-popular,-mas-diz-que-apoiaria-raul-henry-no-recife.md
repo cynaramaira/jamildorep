@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Jarbas sinaliza seguir na Frente Popular, mas diz que apoiaria Raul Henry no Recife"
+date: 2020-01-09
+tags: Frente Popular,jarbas vasconcelos,Raul Henry,Recife
+author: None
+---
+Duas das principais lideranças do MDB de Pernambuco divergem sobre a participação do partido nas eleições municipais de 2020 no Recife. O senador Jarbas Vasconcelos afirmou nesta quinta-feira (9), em entrevista à Rádio Jornal, que, se o deputado federal Raul Henry não se candidatar a prefeito da capital pernambucana, pretende ficar na Frente Popular. Enquanto isso, o também senador Fernando Bezerra Coelho tenta "animar" Raul Henry a encabeçar uma chapa, para retirar o apoio aos socialistas.
+"Raul não me disse hora nenhuma que era ou não candidato", ressaltou Jarbas em entrevista à Rádio Jornal, nesta quinta-feira (9). O senador, porém, disse ter o aliado como "um quadro altamente qualificado" que "tem qualidades reais de homem público e preenche todos os requisitos".
+Mesmo com os elogios ao deputado, Jarbas sinalizou principalmente para a manutenção do apoio ao PSB. Ao ser questionado sobre a candidatura do socialista João Campos, filho do ex-governador Eduardo Campos, respondeu: "Quem deve decidir isso é o partido, o PSB. O que o PSB decidir, evidentemente, a gente vai acompanhar, vai participar".
+Jarbas disse que não comentaria o conflito familiar entre os Campos e os Arraes, exposto na entrevista da ministra do Tribunal de Contas da União (TCU) Ana Arraes, mãe de Eduardo. Ela criticou o neto e disse querer ser candidata a governadora de Pernambuco pelo PSB. "Envolve questões familiares que ficam à margem do ambiente político", disse.
+O senador também lembrou que o MDB ocupa espaço no governo Paulo Câmara (PSB). No Governo de Pernambuco, o partido indicou o secretário de Desenvolvimento Urbano. "A gente faz parte hoje da Frente Popular inclusive dando contribuição para a gestão do governador Paulo Câmara, é um apoio político e administrativo", disse Jarbas Vasconcelos. "Uma relação respeitosa e sobretudo de muita colaboração. Fernando já tem seu espaço no partido".
+Coelho entrou no MDB em 2017, em uma articulação nacional para que a sigla deixasse a Frente Popular, que faria oposição ao governo de Michel Temer. Apesar da crise provocada pela negociação na cúpula do partido, que chegou à Justiça, Jarbas Vasconcelos disputou e foi eleito em 2018 ao lado de Paulo Câmara.
+Na eleição do diretório estadual do MDB este ano, tanto o grupo de Raul Henry e Jarbas Vasconcelos quanto o de Fernando Bezerra Coelho ficaram com espaços no comando estadual da legenda. Jarbas afirmou que o partido agora está pacificado. "Como o partido é grande, sempre tem suas divergências e é normal", minimizou o racha.
+Fernando Bezerra Coelho, no entanto, continua na oposição ao PSB e quer retirar o apoio do MDB à gestão socialista. Adversário histórico do ex-governador Miguel Arraes e do neto dele Eduardo Campos, Jarbas selou o acordo nas eleições de 2012 no Recife, quando o PSB havia rompido com o PT.

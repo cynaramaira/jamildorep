@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Polícia Federal manteve investigação na Refinaria Abreu e Lima parada por 3 anos"
+date: 2014-10-30
+tags: clima,investigação,katia abreu,Polícia Federal,refinarias
+author: None
+---
+ Refinaria Abreu e Lima. Foto: reprodução
+Do Jornal do Commercio desta quinta-feira (30).
+A Polícia Federal (PF) em Pernambuco manteve praticamente paralisado, por três anos, um inquérito aberto para apurar suspeitas de superfaturamento de R$ 1,3 bilhão nos principais contratos da Refinaria Abreu e Lima, em construção no município de Ipojuca, em Pernambuco. A investigação, instaurada em fevereiro de 2011, só foi retomada em maio deste ano, quando foram determinadas as primeiras perícias nos contratos. O ministro de Minas e Energia, Edison Lobão, chegou a ser oficiado para que informasse eventual "repactuação dos contratos envolvidos", ainda no início das apurações, mas não houve resposta nem cobrança por parte da PF.
+Durante a tramitação do inquérito, os investigadores ignoraram a recomendação do Ministério Público Federal (MPF) para que prosseguissem na apuração e consultaram a Justiça sobre a competência para atuar no caso, o que impediu a produção de provas num período de três anos e três meses. Nesse período, o esquema de desvios de recursos e pagamento de propina, a partir dos contratos superfaturados de Abreu e Lima, operou sob o comando do doleiro Alberto Youssef e do ex diretor de Abastecimento da Petrobras Paulo Roberto Costa. Os dois firmaram acordo de delação premiada e citaram políticos envolvidos no esquema.
+A Operação Lava-Jato, que levou à prisão de Youssef e Costa, foi deflagrada em março deste ano, sob a condução da PF e do MPF no Paraná. O inquérito da PF em Pernambuco, instaurado a partir do encaminhamento de decisões do Tribunal de Contas da União (TCU), em 2010, sobre o superfaturamento de R$ 1,3 bilhão em Abreu e Lima, só foi retomado após vir à tona o escândalo envolvendo o doleiro e o ex- diretor da estatal.
+Nos anos em que o inquérito ficou quase parado, os negócios de Youssef e Costa prosperaram. Laudo feito pela PF no Paraná mostra que, só da Sanko Sider, empresa subcontratada do consórcio liderado pela Camargo Corrêa, as empresas controladas pelo doleiro receberam R$ 31,4 milhões entre 2011 e 2013.
+O delegado que assumiu a investigação em Pernambuco pediu - em ofício enviado em junho - que o setor técnico-científico da PF informasse a previsão para a realização das perícias. O temor era a prescrição de crimes relacionados ao suposto superfaturamento nos contratos. "Considerando o tempo que nos distancia dos fatos e o risco dos efeitos da prescrição, solicito informar uma previsão para a realização dos exames, nada obstando que haja oportuno pedido de prorrogação do prazo", escreveu o delegado.
+Leia mais no JC desta quinta.

@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Contra denúncia, Temer avalia reforma ministerial"
+date: 2017-07-15
+tags: avaliação,Contran,Michel Temer,reformas
+author: None
+---
+Estadão Conteúdo - O presidente Michel Temer (PMDB) planeja promover uma reforma ministerial em duas etapas para garantir um apoio seguro na votação no plenário da Câmara da denúncia da Procuradoria-Geral da República (PGR), que está marcada para o dia 2 de agosto. As pastas que estão na mira são Cultura, Transparência, Cidades, Secretaria de Governo e Direitos Humanos. Os dois primeiros estão vagos e os demais são controlados pelo PSDB.
+O recado enviado nos últimos dias aos tucanos é claro: o governo não vai retaliar quem o está apoiando. Se os tucanos não deixarem o governo por iniciativa própria, a permanência na Esplanada dos Ministérios vai depender do volume de votos a favor de Temer dentro bancada, que tem 46 deputados.
+O discurso do Palácio do Planalto nesse ponto mudou. Antes da votação da denúncia na Comissão de Constituição e Justiça (CCJ) - onde 5 dos 7 tucanos votaram contra o governo - e do acirramento da divisão interna no PSDB, auxiliares de Temer diziam que a legenda ficaria na administração federal mesmo que votasse em peso contra o governo no plenário.
+O primeiro movimento, porém, será negociar com o Centrão, bloco que reúne PP, PR, PSD e PRB, a indicação de um nome do grupo para ocupar a Cultura, uma pasta com poucos recursos, mas muita visibilidade e capilaridade.
+A ideia é que o titular da pasta seja anunciado antes do fim do recesso. O novo ministro da Transparência também deve ser escolhido nas próximas duas semanas, mas a decisão nesse caso tende a ser técnica, segundo o governo.
+A segunda etapa da reforma deve ocorre depois da votação, e os acordos estarão diretamente condicionados ao nível de fidelidade no plenário. Apesar de ser o partido do presidente, o PMDB reivindica mais espaço no governo e pressiona Temer a redistribuir os cargos do PSDB, que caminha para romper com o governo.
+Juntos, o Centrão e o PMDB somam 208 deputados. O presidente precisa de 172 votos para barrar a denúncia. O ministro da Casa Civil, Eliseu Padilha, disse ontem em entrevista à Rádio Gaúcha que é natural que o governo tenha mais consideração com os partidos da base e com aliados mais fiéis, mas descartou no período do recesso uma reforma ministerial.
+"Por certo, os partidos que têm maior representatividade dentro do Congresso em favor do governo têm de ter maior consideração do governo e isso será analisado no devido tempo. Por enquanto, a posição do presidente Michel Temer é pedir que apoiem as posições do governo e no devido momento essas posições serão avaliadas", disse Padilha.
+Já o deputado Lúcio Vieira Lima (PMDB-BA), um dos líderes da tropa de choque de Temer na Câmara, reconhece que a reforma acontecerá, e logo. "Desde que me entendo por gente, o governo faz reforma ministerial ou por desempenho ou para ajustes na base. E isso sempre acontece quando se completa um ano de gestão "
+Dilema. Dos quatro ministérios ocupados atualmente pelo PSDB, o mais cobiçado pela base aliada é Cidades, pasta comandada por Bruno Araújo (PE). Se o PSDB votar em peso contra o governo em plenário, esse seria o primeiro foco da segunda etapa da reforma
+De acordo com interlocutores tucanos com trânsito no gabinete presidencial, Temer gostaria de manter Aloysio Nunes Ferreira nas Relações Exteriores em qualquer cenário, mesmo que fosse em sua cota pessoal da Esplanada.
+A avaliação na cúpula do PSDB é de que, além de Aloysio, Temer também manteria Antonio Imbassahy (BA) no comando da Secretaria de Governo, mas trocaria os titulares de Direitos Humanos e Cidades.
+Enquanto o governo Temer já desenha sua reforma, no PSDB a pressão pelo desembarque só aumenta. "O PSDB ficaria melhor se tomasse uma decisão. Já passou da hora de o partido se antecipar a um movimento como esse do Temer", disse o deputado Silvio Torres, secretário-geral do PSDB. 

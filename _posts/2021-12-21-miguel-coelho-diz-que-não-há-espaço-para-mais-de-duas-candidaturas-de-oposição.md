@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Miguel Coelho diz que não há espaço para mais de duas candidaturas de oposição"
+date: 2021-12-21
+tags: eleições 2022
+author: JAMILDO MELO
+---
+O prefeito de Petrolina, Miguel Coelho, disse nesta ter&ccedil;a-feira, no Recife, n&atilde;o acreditar que haver&aacute; espa&ccedil;o para tr&ecirc;s candidaturas de oposi&ccedil;&atilde;o ao governo do Estado, em 2022.
+"Essa discuss&atilde;o j&aacute; est&aacute; na mesa de negocia&ccedil;&otilde;es das oposi&ccedil;&otilde;es e precisamos refletir qual seria a melhor estrat&eacute;gia. N&atilde;o acredito em tr&ecirc;s candidaturas no Estado, n&atilde;o cabe tr&ecirc;s, pode caber duas", afirmou.
+Miguel Coelho disse que essa defini&ccedil;&atilde;o deve ser tomada at&eacute; fevereiro do ano que vem, uma vez que no come&ccedil;o de abril os candidatos precisam abrir m&atilde;o dos cargos p&uacute;blicos, no caso dos candidatos prefeitos.
+Na entrevista desta ter&ccedil;a-feira, no Recife, Miguel Coelho demonstrou alguma resist&ecirc;ncia a admitir pedir votos para o candidato do Podemos, Moro. "N&atilde;o sabemos ainda quem ser&atilde;o os candidatos dos partidos, mas Moro pode estar na nossa alian&ccedil;a (j&aacute; que o Podemos faz parte do grupo de oposi&ccedil;&atilde;o)"
+Miguel Coelho tamb&eacute;m n&atilde;o se alongou muito ao falar da possibilidade de Gilson Machado assumir uma candidatura no Estado. "Ele tem que se filiar a um partido", disse, inicialmente. "Tem que perguntar para ele", respondeu ao ser questionado se ele sairia para o Senado ou o governo do Estado.
+Neste manh&atilde;, o prefeito ter&aacute; uma reuni&atilde;o com Luciano Bivar para tratar da forma&ccedil;&atilde;o de chapas com vistas ao pleito de 2022.
+Miguel Coelho anuncia mais dois prefeitos do PSB para a oposi&ccedil;&atilde;o
+Em caravana por v&aacute;rios munic&iacute;pios do Estado, o prefeito Miguel Coelho visitou os munic&iacute;pios de Machados e Lagoa de Itaenga. As duas cidades s&atilde;o administradas por gestores do PSB, Juarez da Banana e Gra&ccedil;a do Moinho.
+Alegando estarem insatisfeitos com os rumos de Pernambuco, os dois prefeitos decidiram apoiar a pr&eacute;-candidatura de Miguel ao Governo do Estado.
+A ades&atilde;o dos socialistas foi formalizada, nesta segunda-feira (20), em reuni&otilde;es com o gestor de Petrolina. Na primeira agenda, em Machados, o prefeito Juarez da Banana creditou o apoio pela experi&ecirc;ncia administrativa de Miguel, que tem mais de 90% de aprova&ccedil;&atilde;o da popula&ccedil;&atilde;o petrolinense.
+&ldquo;Tenho certeza que Miguel Coelho tem as condi&ccedil;&otilde;es de fazer nosso Estado voltar a ser grande, como conseguiu, com muito trabalho, fazer Petrolina destaque no Brasil&rdquo;, frisou o prefeito de Machados.
+A outra ades&atilde;o ao bloco das oposi&ccedil;&otilde;es foi a do grupo Moinho, que tem forte inser&ccedil;&atilde;o no Agreste e Mata Norte. Miguel se reuniu, em Lagoa da Itaenga, com a prefeita Gra&ccedil;a, sete vereadores e o ex-prefeito Carlinhos. Tamb&eacute;m estiveram no encontro a vereadora de Carpina, Cassia do Moinho; o senador Fernando Bezerra; os deputados federais Ricardo Teobaldo, Fernando Filho; e o estadual Gustavo Gouveia.
+Ao anunciar apoio a Miguel, Gra&ccedil;a do Moinho lamentou o tratamento que Lagoa de Itaenga recebeu nos &uacute;ltimos anos por parte do Governo do Estado.
+&ldquo;N&atilde;o vou falar de partido, n&atilde;o vou falar de ningu&eacute;m. Mas o motivo de eu ter sa&iacute;do foi o desmando com a Lagoa de Itaenga. Foram cinco anos da gente sofrendo e calados, ent&atilde;o tem uma hora que precisa dar um basta. Agora vamos seguir com Miguel e tenho certeza que o povo da Lagoa de Itaenga tamb&eacute;m vai seguir Miguel&rdquo;, cravou a prefeita do PSB.
+De acordo com a campanha de Miguel Coelho, a chegada de Juarez da Banana e Gra&ccedil;a do Moinho representa a terceira baixa entre os prefeitos filiados ao PSB. Em novembro, o gestor de Jo&atilde;o Alfredo, Z&eacute; Martins, fez duras cr&iacute;ticas ao PSB, acusando o partido de persegui&ccedil;&atilde;o pol&iacute;tica. Na mesma ocasi&atilde;o, o prefeito Z&eacute; Martins assegurou que ir&aacute; defender a pr&eacute;-candidatura de Miguel ao Governo de Pernambuco.

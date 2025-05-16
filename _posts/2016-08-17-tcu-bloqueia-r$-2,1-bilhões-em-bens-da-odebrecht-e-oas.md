@@ -1,0 +1,26 @@
+---
+layout: post
+title: "TCU bloqueia R$ 2,1 bilhões em bens da Odebrecht e OAS"
+date: 2016-08-17
+tags: 
+author: None
+---
+Estadão Conteúdo - O Tribunal de Contas da União (TCU) decidiu bloquear nesta quarta-feira (17) R$ 2,1 bilhões em bens das construtoras Odebrecht e OAS, de executivos das duas empresas e do ex-presidente da Petrobras José Sérgio Gabrielli. A medida visa a eventual ressarcimento, no futuro, de prejuízos em duas obras da Refinaria Abreu e Lima, em Pernambuco, causados pelo esquema de cartel, corrupção e superfaturamento investigado na Operação Lava Jato.
+Conforme antecipou o jornal O Estado de S. Paulo na terça-feira (16) a decisão é baseada em auditoria da corte de contas que apurou sobrepreço nos contratos de construção e montagem das unidades de Destilação Atmosférica e de Hidrotratamento de Abreu Lima, tocadas pelas empreiteiras em consórcio, cujos valores ultrapassaram R$ 5,5 bilhões. Por conta das fraudes, os preços pagos pela Petrobras estavam inflados em cerca de 25%.
+A indisponibilidade patrimonial decretada pelo TCU, inicialmente de um ano, é mais um revés às empreiteiras, mergulhadas numa crise financeira desde que o esquema de corrupção foi descoberto, agravada pela recessão no País. O relator do processo, ministro Benjamin Zymler, afirmou que não cabe ao tribunal fazer juízo dos impactos da decisão. "Não significa que a empresa terá de parar suas operações. Terá dificuldade de fazer transações. Mas continua usufruindo do patrimônio", ponderou.
+LEIA TAMBÉM
+» Empresa de terraplenagem na Refinaria Abreu e Lima é o elo entre esquemas da Lava Jato e Operação Turbulência
+» Polícia Federal afirma que refinaria Abreu e Lima foi alvo de cartel
+O ministro José Múcio Monteiro questionou se a restrição não prejudicará o funcionamento das construtoras, a recuperação judicial da OAS, em andamento, e acordos de leniência em negociação com o governo e o Ministério Público Federal. Ele propôs um acompanhamento da situação patrimonial das empresas. "Minha preocupação é com a operação do que resta", alegou.
+No entanto, após discussões em plenário, todos os ministros, inclusive Múcio, acompanharam o voto de Zymler, pela indisponibilidade. "Uma planta da Braskem (petroquímica da Odebrecht) com certeza vale muito mais que isso (R$ 2,1 bilhões) A empresa continuará funcionando", comentou Bruno Dantas, explicando que o bloqueio poderá atingir, por exemplo, imóveis. "Não há risco de que a decisão do tribunal acarrete uma lesão ao interesse público", acrescentou.
+A ordem alcança também Marcelo Odebrecht, que chefiava a holding Odebrecht na época das obras; José Aldemário Pinheiro, o Léo Pinheiro, ex-presidente da OAS, e outros quatro dirigentes das duas empreiteiras envolvidos na Lava Jato. Trata-se de Márcio Faria da Silva, Rogério Santos Araújo e César Ramos Rocha, da Odebrecht, e de Agenor Franklin Magalhães Medeiros, da OAS.
+Outro implicado é o ex-diretor de Serviços da Petrobras Renato Duque, por suposta omissão no seu "poder-dever de agir" para impedir as fraudes, "mediante recebimento de vantagem indevida"
+» Notícia de delação de Odebrecht faz Moro suspender ação penal
+» Delações da Odebrecht atingem 100 políticos, entre eles dez governadores
+Os técnicos do TCU não haviam proposto o bloqueio dos bens de Gabrielli, mas Zymler o incluiu, sob o argumento de que, embora soubesse de irregularidades nas obras, ele não foi "diligente" e não atuou para impedi-las. O ministro afirmou que o tribunal aponta sobrepreço nos contratos desde 2008, mas o então presidente da estatal não se indispôs contra as impropriedades. "Sempre esteve ciente."
+O patrimônio de Gabrielli já está indisponível por conta de processo do tribunal que apura prejuízos de US$ 792 milhões na compra da Refinaria de Pasadena, no Texas (EUA).
+O tribunal sustenta que Marcelo Odebrecht e Léo Pinheiro praticaram e conduziram atos ilícitos para fraudar processos licitatórios da Petrobras e obter contratos superfaturados, "de forma a maximizar indevidamente os lucros" dos grupos empresariais que representavam, "mediante formação de cartel e pagamento de propinas a agentes da estatal."
+» José Serra recebeu R$ 23 milhões via caixa dois, revela Odebrecht
+» Odebrecht diz que repassou R$ 10 mi a pedido de Temer
+A responsabilidade pelo dano ao erário é atribuída também a outras pessoas físicas e jurídicas. Todas podem, ao fim do processo, ser condenadas ao ressarcimento bilionário. O TCU, contudo, decidiu bloquear somente os bens daqueles que, no seu entendimento, tiveram "intenção deliberada" de fraudar os contratos.
+Colaboradores da Lava Jato, como o ex-gerente Pedro Barusco e o ex-diretor da Petrobras Paulo Roberto Costa (Abastecimento), estão na lista de responsáveis, mas não tiveram os bens atingidos agora. Zymler afirmou que teve severas dúvidas a respeito, mas optou por excluí-los. "Teria todas as razões para fazê-lo (propor a indisponibilidade do patrimônio). Faço isso em homenagem ao instituto da delação premiada. Entendo que a delação não é perfeita, não é panaceia, mas tem sido um divisor de águas no aspecto penal no Brasil", justificou.

@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Ministro da Educação diz que PT sabe fazer oposição, mas não sabe governar"
+date: 2016-09-02
+tags: Educação,Ministro,Naomi Campbell,Oposição
+author: None
+---
+O ministro da Educação, Mendonça Filho (DEM), esteve no Recife na noite desta sexta-feira (2) para reforçar pela primeira a campanha de rua da candidata do Democratas na capital pernambucana, a deputada estadual Priscila Krause. Apesar de o foco no fim de semana ser a eleição, a um mês do pleito, o impeachment da agora ex-presidente Dilma Rousseff (PT) esteve na pauta, assim como as críticas ao partido dela. "Se tem uma coisa que o PT sabe é fazer oposição e se tem uma coisa que o PT não sabe é governar. Eles vão cumprir a missão que eles cumprem com maior tradição, que é ser oposição", disparou Mendonça.
+No primeiro pronunciamento após o impeachment, Dilma convocou deputados e senadores que eram da sua base aliada a fazer forte oposição ao governo Michel Temer (PMDB). O líder do PT no Senado, o pernambucano Humberto Costa, com quem o ministro tem trocado farpas pela imprensa, também adiantou que a oposição será incisiva.
+Mendonça Filho afirmou que considera esse posicionamento natural. "Democracia pressupõe um lado forte, o governo, e outro lado também muito forte, que é a oposição",  argumentou.
+LEIA TAMBÉM
+» Projeto de lei prevê multa de R$ 3.830 para pedestre que bloquear trânsito sem autorização
+"Eu espero apenas o seguinte: que o aprendizado de um governo petista leve para eles na oposição a missão de exercer com fidelidade à verdade, e não com mentiras e engodos", disse. Mais cedo, classificou como uma "mentira" a afirmação de Humberto Costa de que a pasta que ele comanda é um "cemitério de políticas públicas". "Agindo com seriedade e com responsabilidade, podem exercer a função com dureza com rigidez e com coerência", opinou o ministro.
+Impeachment
+Dois dias depois da votação que tirou Dilma Rousseff do cargo, Mendonça Filho defendeu o processo, alegando que ele "se deu dentro das bases constitucionais". O ministro classificou, porém, como uma "aberração" o fatiamento da votação, mantendo os direitos políticos da petista.
+"Qualquer pessoa o mínimo de conhecimento de direito sabe que não dá para você separar o texto constitucional por um destaque. Se fosse assim, a Constituição seria dilacerada por todas as vontades para descumprir um item da Constituição. A pena que a perda do cargo impõe também a condição de que a presidente punida com tal sanção fique inabilitada para função pública. Mas o importante é que o Brasil também virou a pagina. Ela está afastada e não voltará mais", afirmou.
+"Agora cabe ao presidente Michel Temer unir o País e iniciar um lento, mas, se Deus quiser, vigoroso processo de recuperação para gerar empregos e bem-estar para a população, que sofreu muito nos últimos dois anos, na maior recessão da história do Brasil", disse ainda.
+Na primeira reunião ministerial após ser empossado, ainda na tarde de quarta-feira (31), o agora presidente afirmou aos aliados que não admitissem a pecha de "golpista" que ganharam com o impeachment, o que Dilma considerou o início de um processo autoritário.
+"Eu acho que a ex-presidente Dilma ainda não se achou do ponto de vista, digamos, de nova realidade. Depois de ter deixado o poder mostrando que o seu governo foi caracterizado pela incompetência, por ter jogado o Brasil na maior recessão da história, com 12 milhões de desempregados, o País todo sofrendo bastante, empresas quebrando e a população mais pobre sofrendo as consequências mais perversas", concluiu Mendonça Filho.

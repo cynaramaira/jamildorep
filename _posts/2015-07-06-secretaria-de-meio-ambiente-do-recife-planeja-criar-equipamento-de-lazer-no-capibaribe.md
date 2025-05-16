@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Secretaria de Meio Ambiente do Recife planeja criar equipamento de lazer no Capibaribe"
+date: 2015-07-06
+tags: co Capibaribe,equipamentos,lazer,meio ambiente,Recife
+author: None
+---
+A Prefeitura do Recife anunciou, nesta segunda, que as ruínas de um antigo cais, localizado na Avenida Martins de Barros (Santo Antônio), vai se transformar em uma nova área de lazer e contemplação do Rio Capibaribe. A previsão de termino das obras é de seis meses.
+O espaço já foi utilizado como uma subestação de ônibus elétricos é considerado histórico, mas hoje funciona como estacionamento para carros na porta do Ministério Público do Estado.
+O Cais do Imperador será formado por uma área aberta para contemplação, um ponto comercial, um posto de informação turística e um econúcleo. No ambiente externo, será realizado um tratamento paisagístico, com grama e árvores nativas, somando 142m2 de área verde. Também haverá um local para pequenas exposições e apresentações culturais.
+Para estimular a ocupação do novo espaço de lazer, a edificação usada na operação de ônibus elétricos será demolida e, no lugar dele, será construído um ponto gastronômico de 98 m2, com espaço para mesas na área interna e externa. Esse empreendimento, a ser escolhido por meio de seleção pública, ficará responsável pela manutenção e operação não só do ponto, como de todo o espaço.
+Os dois banheiros públicos, localizados nas extremidades do Cais do Imperador, serão transformados em centro de informação turística e outro abrigará o terceiro econúcleo da secretaria – um espaço voltado à educação ambiental para crianças e jovens, e à divulgação de informações ecológicas. Embora as edificações dos banheiros ganhem nova função, a arquitetura deles datada da primeira metade do século 20 será preservada.
+A Secretaria de Meio Ambiente e Sustentabilidade do Recife batizou o projeto de “Estação Eco-turística Cais do Imperador”, numa alusão a construção, em 1859, para o desembarque do Imperador Dom Pedro II e sua família, em visita à cidade.
+A PCR informou que o projeto está orçado em R$ 632 mil. A primeira etapa do projeto é realizada em pareceria com o Colégio Boa Viagem.
+“Assim como fizemos com o Jardim Botânico, agora queremos devolver à população outra área privilegiada, que tem uma relação direta com um importante elemento da natureza no Recife: o Rio Capibaribe. Esse é o único lugar na área central em que a cidade realmente entra no rio, do ponto de vista físico. Além disso, ele é um pedaço importante da nossa história que poucas pessoas conhecem. Essa nova área de lazer e contemplação é mais um passo que ajuda a reatar os laços do recifense com o Capibaribe e com a própria cidade”, disse a secretária de Meio Ambiente e Sustentabilidade, Cida Pedrosa.
+O píer foi construído em frente à Praça 17 para que Dom Pedro II pudesse desembarcar com conforto e exclusividade. A família imperial desceu ali, foi à igreja, seguiu pela Rua do Imperador até o palácio.  “A intervenção que vamos fazer no Cais do Imperador ainda refletirá no resgate dessa história e do conjunto arquitetônico da área. Essas informações serão expostas no equipamento e também planejamos fazer uma exposição quando a obra for concluída”, disse Cida Pedrosa
+Em uma segunda etapa, o projeto ainda prevê a construção de um píer para que pequenas embarcações possam atracar no local, como já foi no passado, com as lanchas da CTTU. A idéia é integrar as atividades do econúcleo com o barco-escola da Secretaria de Educação da Prefeitura do Recife. Além disso, a PCR pretende implantar um piso elevado (na altura das calçadas) entre o Cais do Imperador e a Praça 17, reforçando a idéia de um conjunto arquitetônico único, mas que não incidiria em mudanças no trânsito da área.
+ 
+ Cais do imperador  from Jamildo Melo

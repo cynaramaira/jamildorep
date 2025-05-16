@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Convocação de ato pró-Bolsonaro expõe rusgas na base"
+date: 2019-05-22
+tags: Bolsonaro,PROS
+author: None
+---
+Do Jornal do Commercio e Blog de Jamildo
+Depois das críticas de integrantes de peso da base aliada, o presidente Jair Bolsonaro (PSL), anunciou que não deve comparecer às manifestações convocadas por seus apoiadores para o próximo domingo (26). Pessoas próximas ao chefe do executivo alegam que a decisão de Bolsonaro está pautada em "respeito pelo cargo e por suas responsabilidades".
+O ato foi convocado por setores do governo e, expôs, mais uma vez, uma rusga na base de apoiadores do presidente. Na última quinta-feira (16), um movimento nas redes sociais pedia a ida dos apoiadores do presidente às ruas para defender a reforma da Previdência, o ministro da Justiça, Sérgio Moro e a Medida Provisória 870 (da reforma administrativa), além de criticar o Centrão e ministros do Supremo Tribunal Federal (STF), por classificá-los como “inimigos do Brasil”.
+As declarações de apoio de muitos políticos, repercutiram de forma negativa em muitas bases, como foi o caso dos tweets de Janaina Paschoal (PSL), deputada estadual do estado de São Paulo.
+De acordo com o deputado federal Silvio Costa Filho (PRB), que também integra a base de sustentação do governo, as manifestações populares são “legítimas”, no entanto “o presidente precisa compreender que ele é presidente de todos os brasileiros e a eleição acabou”, disse. “Eu acho que a hora agora é de trabalhar para o País. A nossa posição é nessa direção. Todo o congresso, parlamento, precisa se unir numa construção coletiva para ajudar o Brasil”, avaliou
+Assim como Silvio Filho, as críticas dos políticos vem do fato de não entender o motivo de setores governistas em participar de convocações para atos políticos. Como foi o caso do deputado federal Pastor Eurico (Patriota), que admitiu “não ver necessidade de manifestação”, já que “as coisas estão bem, o governo arrumando a casa”. Apesar do comentário, o parlamentar também anunciou que “havendo oportunidade”, deve comparecer ao ato.
+O Movimento Brasil Livre (MBL) de Pernambuco, denunciou ter sido atacado nas redes por se recusar a participar das manifestações. A coordenadora do movimento, Tatielly Salustiano, afirmou que os trechos do texto foram vazados por uma “pseudomilitante” e que há uma “onda massiva de ataques promovidos pelos setores mais radicais da recente direita brasileira”.
+Procurado, o presidente do PSL, deputado Luciano Bivar, limitou-se a explicar seu posicionamento por meio de nota. “O partido liberou para quem quiser pode se manifestar. É um movimento vindo das ruas, não temos como controlá-lo. Apoiamos sim o nosso Presidente e a pauta do governo, o mais é de responsabilidade de cada militante ou manifestante”.

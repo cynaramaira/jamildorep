@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Bolsonaro adia reunião com líderes governistas para amenizar insatisfações"
+date: 2019-02-21
+tags: Bolsonaro,reunião
+author: None
+---
+Estadão Conteúdo - Com a ainda latente insatisfação entre governistas e a possibilidade de ter um quórum esvaziado, o Palácio do Planalto adiou uma reunião que o presidente Jair Bolsonaro (PSL) realizaria na manhã desta quinta-feira (21) com líderes de partidos que devem compor a base aliada na Câmara. A avaliação feita pelo governo é de que é preciso ganhar tempo para apaziguar os ânimos de modo a não desperdiçar a chance de ter uma aproximação mais efetiva do presidente com a sua possível rede de apoio.
+O encontro será realizado na próxima terça-feira (26), pela manhã. Bolsonaro pretende conversar com os parlamentares sobre a proposta de reforma da Previdência. A ideia é que o próprio presidente explique pontos da matéria e tire dúvidas. Ele deve, no entanto, ouvir críticas e reclamações sobre a condução da articulação do seu governo com o Congresso.
+Foram convidados os partidos que o governo acredita que estarão em sua base de apoio. Já da oposição, foram chamados apenas o PSB e o PDT. Os líderes do PT, PCdoB, PSOL, Rede e PPL não foram convidados.
+O líder do governo na Câmara, Major Vitor Hugo (PSL-GO) afirmou ao Broadcast Político (sistema de notícias em tempo real do Grupo Estado) que a decisão de adiar o encontro foi tomada porque o texto da reforma da Previdência foi apresentado oficialmente ao Congresso nesta quarta, 20, e seria melhor dar tempo aos parlamentares se aprofundarem na questão.
+"Estivemos na quarta com os líderes quando o presidente foi levar a PEC da previdência. Já foi um movimento importante. Achamos melhor, então, dar um tempo maior para a leitura e estudo da proposta por parte dos líderes, para aproveitar a oportunidade da semana que vem e falar sobre a nova Previdência na reunião", disse o parlamentar.
+Para ele, o encontro mostrará ao Congresso que o governo quer "prestigiar as lideranças partidárias" e que "estará aberto para negociações" porque sabe que o projeto será modificado pelo Congresso.
+Um outro motivo que levou ao adiamento da reunião foi a possível falta de alguns líderes ao encontro. À reportagem, deputados afirmaram que não compareceriam porque já tinham outros compromissos marcados em seus estados. Agora, o Planalto tem reforçado o convite.
+O governo pretende formar uma base aliada que chegue a 350 deputados. O número é considerado como fundamental para garantir a aprovação da reforma da Previdência na Câmara. Por se tratar de uma emenda à Constituição, é necessário ter o voto de 308 parlamentares para aprovar o texto. A expectativa é de que ele tenha sua tramitação concluída na Câmara até o fim do primeiro semestre. Depois, seguirá para análise do Senado.
+Os encontros de Bolsanaro com lideranças partidárias começaram a ser articuladas na semana passada como uma forma de aproximar o governo do parlamento. Na quarta, o presidente se reuniu com a bancada do PSL no Palácio do Planalto. O objetivo é que eles sejam os primeiros a fazer uma defesa enfática do texto que foi enviado pelo governo ao Congresso no mesmo dia.

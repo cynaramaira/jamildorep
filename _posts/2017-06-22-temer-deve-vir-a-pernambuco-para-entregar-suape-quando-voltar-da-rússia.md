@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Temer deve vir a Pernambuco para entregar Suape quando voltar da Rússia"
+date: 2017-06-22
+tags: Michel Temer,pernambuco
+author: None
+---
+Após desmarcar duas vezes a visita a Pernambuco para retomar a autonomia do Porto de Suape, o presidente Michel Temer (PMDB) deve marcar uma nova data quando voltar da Rússia, no próximo sábado (24). Foi o que o peemedebista falou ao vice-governador Raul Henry, do mesmo partido, na semana passada, segundo o governador Paulo Câmara (PSB). "Eu espero que não aconteça nada", brincou o socialista.
+Temer havia marcado uma viagem ao Estado para 27 de abril, mas desistiu dois dias antes para concentrar os esforços em Brasília por causa da votação da reforma trabalhista. Além disso, o clima não estava bom com o PSB, que fechou questão contra a proposta do governo, apesar de ter a pasta de Minas e Energia, com Fernando Filho, e acabou rachando a bancada.
+O presidente, então, programou a agenda para finalmente assinar a autonomia de Suape no dia 19 de maio. Dois dias antes, porém, foram divulgadas as gravações do empresário Joesley Batista, da JBS, dando início a uma crise política que o governo tenta superar até hoje. Temer passou a ser investigado por corrupção passiva e obstrução e Justiça e a definição do procurador-geral da República, Rodrigo Janot, sobre uma eventual denúncia do peemedebista é aguardada.
+Se desta vez Temer conseguir superar as crises e visitar o Estado, depois que ele assinar o decreto, o governo estadual terá competência para a condução de estudos, a elaboração dos editais, a realização dos procedimentos licitatórios e a celebração dos contratos relativos aos arrendamentos portuários em Suape.
+Assim, Suape também passará a ser responsável pela aprovação das expansões e adensamento de áreas e prorrogações antecipadas de contratos em vigência. “Essa medida corrigirá uma injustiça que foi cometida contra Pernambuco e contra Suape e permitirá que o nosso porto continue crescendo num ritmo acelerado”, disse Paulo Câmara após uma reunião com Temer há dois meses.
+Caso Temer confirme o compromisso em Pernambuco, será a quarta viagem dele ao Estado. As anteriores foram todas para a transposição do Rio São Francisco. A última vez foi no dia 10 de março, quando foi às cidades de Sertânia, no Sertão pernambucano, e Monteiro e Campina Grande, na Paraíba, para entregar o eixo leste.
+Antes, em janeiro, ele esteve em Floresta (PE) em janeiro, também para visitar as obras do projeto. Em dezembro, teve duas agendas no Nordeste, a primeira em Pernambuco e a segunda em Alagoas, onde provocou polêmica ao afirmar que gostaria de ser lembrado como “o maior presidente nordestino” do Brasil. Temer só viajou ao Nordeste sete meses depois de assumir.

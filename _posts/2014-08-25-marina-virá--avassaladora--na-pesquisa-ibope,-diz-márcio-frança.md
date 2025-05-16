@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Marina virá "avassaladora" na pesquisa Ibope, diz Márcio França"
+date: 2014-08-25
+tags: Ibope,Márcio França,Marina Lima,o viral,pesquisa
+author: None
+---
+
+ Foto: BlogImagem
+O coordenador financeiro da campanha de Marina Silva, deputado Márcio França, disse na tarde desta segunda-feira, 25, que pesquisas internas mostram um resultado "avassalador" em favor da candidata do PSB. De acordo com ele, a pesquisa Ibope que será divulgada nesta terça-feira, 26, mostrará que Marina é uma das favoritas na corrida presidencial.
+"Para quem era uma zebra, eu acho que hoje a Marina é favorita", disse o coordenador ao chegar para acompanhar o debate promovido pelo SBT com os candidatos ao governo de São Paulo. França é candidato a vice na chapa do tucano Geraldo Alckmin (PSDB). França não respondeu qual é o patamar "avassalador" em que Marina deve aparecer amanhã, mas disse que os "números são muito fortes". 
+"Os números que a gente tem de pesquisas internas, que o Ibope vai revelar amanhã, são avassaladores. Vai ter que se acostumar a um outro patamar", disse. "O Eduardo brigava para ficar famoso. Agora é como se as pessoas quisessem conhecê-lo. Ficaram com saudade de uma coisa que não conheciam. Tudo isso, de certa forma, deságua na Marina", avaliou.França comentou ainda as declarações de Aécio Neves (PSDB) de que o bom desempenho de Marina Silva é como uma "onda", e que acredita voltar ao segundo lugar isolado nas pesquisas "dentro de 15 ou 20 dias". "O problema é o tamanho da onda. Tem onda de 2 metros, de 5 metros, de 10 metros. Aí não tem depois o que fazer se for muito grande", disse. França afirmou ainda que na classe C "em especial" os números de Marina são impressionantes. "A classe C desloca sempre junto, as pessoas falam entre si. Ao se convencerem (em quem votar), as pessoas convencem outras", disse. Questionado sobre seu novo papel de tesoureiro de campanha, França afirmou que assumiu o cargo nesta segunda e que ainda "não entrou nada". "Mas soube por amigos que vai entrar. Empresário entra muito pela chance (nas pesquisas). É da índole se deslocar pela chance", afirmou. França comentou ainda a situação de resistência de Marina em dividir o palanque com Alckmin em São Paulo. Segundo o pessebista, a situação é a mesma de antes da morte de Eduardo Campos e agora caberá ao vice de Marina abrir espaço para o tucano. "Caberá a Beto Albuquerque pedir votos a Alckmin no programa eleitoral", afirmou.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "STJ rejeita denúncia contra desembargador que mandou pagar R$ 34 milhões a juízes de Pernambuco por férias retroativas"
+date: 2023-04-20
+tags: jamildo, Justiça, tjpe
+author: Jamildo Melo
+---
+O site do jornal O Estado de S&atilde;o Paulo, em mat&eacute;ria do jornalista Fausto Macedo, informa que, por unanimidade, a Corte Especial do Superior Tribunal de Justi&ccedil;a rejeitou nesta quarta-feira, 19, den&uacute;ncia que atribuiu ao desembargador Adalberto de Oliveira Melo e ao juiz Silvio Romero Beltr&atilde;o, ambos do Tribunal de Justi&ccedil;a de Pernambuco, crime de peculato pelo suposto desvio de R$ 34 milh&otilde;es por meio do pagamento de f&eacute;rias retroativas a magistrados da Corte estadual.
+O Minist&eacute;rio P&uacute;blico Federal narrou que, em 2019, Oliveira Mello e Beltr&atilde;o autorizaram a indeniza&ccedil;&atilde;o de todos os ju&iacute;zes e desembargadores da Corte pernambucana por f&eacute;rias n&atilde;o gozadas anteriores a 2018 - permitindo o pagamento de valores correspondentes at&eacute; o ano de 1992.
+Em nota conjunta, divulgada ap&oacute;s o julgamento do STJ, Oliveira Melo e Beltr&atilde;o afirmaram que, com a rejei&ccedil;&atilde;o da den&uacute;ncia, 'foi feita justi&ccedil;a na medida certa'. "Dentre os diversos conceitos de justi&ccedil;a, h&aacute; o que diz que Justi&ccedil;a &eacute; dar a cada um o que &eacute; seu".
+Tanto o desembargador como o juiz tamb&eacute;m foram beneficiados pela decis&atilde;o dada em 2019 - Oliveira Mello recebeu R$ 104 mil e Beltr&atilde;o R$ 294 mil.
+Nesta quarta, 19, os ministros do STJ rejeitaram a den&uacute;ncia. O ministro Jo&atilde;o Ot&aacute;vio de Noronha, relator, destacou a 'atipicidade da conduta imputada aos magistrados e a aus&ecirc;ncia de dolo espec&iacute;fico por parte dos mesmos'.
+Noronha argumentou que as condutas apontadas pela Procuradoria n&atilde;o se amoldam aos tipos penais de peculato-apropria&ccedil;&atilde;o e peculato-desvio.
+Para o ministro, tal enquadramento 'n&atilde;o se configura evidente quando as condutas do acusado s&atilde;o inerentes ao exerc&iacute;cio das atribui&ccedil;&otilde;es praticadas com amparo na lei, mas decis&atilde;o do plen&aacute;rio de origem'.
+O relator indicou que a decis&atilde;o de pagar valores a magistrado a t&iacute;tulo de indeniza&ccedil;&atilde;o por f&eacute;rias n&atilde;o gozadas tem embasamento legal e no &acirc;mbito do Tribunal de Justi&ccedil;a de Pernambuco. Assim, a quest&atilde;o 'se o magistrado merecia perceber a remunera&ccedil;&atilde;o em raz&atilde;o de direito de indeniza&ccedil;&atilde;o' deve ser discutida na esfera administrativa, mas n&atilde;o na penal, 'por falta de tipicidade', anotou.
+Os magistrados se manifestaram para a mat&eacute;ria do Estad&atilde;o.
+"Dentre os diversos conceitos de justi&ccedil;a, h&aacute; o que diz que Justi&ccedil;a &eacute; dar a cada um o que &eacute; seu. No julgamento realizado no Superior Tribunal de Justi&ccedil;a (STJ), o eminente ministro relator destacou: "pagar o que &eacute; devido n&atilde;o &eacute; crime". Essas palavras resumem o Ato Administrativo do Tribunal de Justi&ccedil;a de Pernambuco (TJPE), o qual pagou a magistradas e magistrados o Direito Constitucional a f&eacute;rias n&atilde;o gozadas. Com a rejei&ccedil;&atilde;o da den&uacute;ncia oferecida contra magistrados do TJPE, foi feita justi&ccedil;a na medida certa. A decis&atilde;o de rejeitar a den&uacute;ncia foi un&acirc;nime pela Corte Especial do Tribunal da Cidadania", diz a mat&eacute;ria.

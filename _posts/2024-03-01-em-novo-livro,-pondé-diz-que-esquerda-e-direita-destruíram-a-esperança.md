@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Em novo livro, Pondé diz que esquerda e direita destruíram a esperança"
+date: 2024-03-01
+tags: jamildo, livro, DEMOCRACIA
+author: Jamildo Melo
+---
+Al&eacute;m de religi&atilde;o, teoria de evolu&ccedil;&atilde;o da esp&eacute;cie humana e educa&ccedil;&atilde;o, o tema da crise de confian&ccedil;a &eacute; um dos temas atuais analisados pelo fil&oacute;sofo Luiz Felipe Pond&eacute; no seu mais novo livro Fragmentos filos&oacute;ficos do horror, que acaba de ser lan&ccedil;ado pela Editora Nacional.
+Como uma esp&eacute;cie de lente, o escritor se utiliza do horror para fazer um raio X e refletir sobre diversas tem&aacute;ticas que permeiam o cotidiano do ser humano.
+&Eacute; por meio do horror que Pond&eacute; fala sobre pol&iacute;tica, democracia e estupidez. Em um dos trechos do livro, o autor destaca o que chama de fim da utopia democr&aacute;tica.
+&ldquo;A pol&iacute;tica, territ&oacute;rio em si da viol&ecirc;ncia e sua gest&atilde;o, no mundo contempor&acirc;neo, &eacute; o lugar por excel&ecirc;ncia da desesperan&ccedil;a. Seja &agrave; esquerda - e suas exig&ecirc;ncias autorit&aacute;rias de se declarar portadora de inten&ccedil;&otilde;es puras e nobres quando, na verdade, na pr&aacute;tica, seus representantes manipulam a mis&eacute;ria social como capital eleitoral -, seja &agrave; direita - e sua ira que cospe horrores, muitas vezes de fundamento sobrenatural, mas que no fim do dia acaba por cultivar um &oacute;dio e ressentimento como modo de estar no mundo -, n&atilde;o h&aacute; esperan&ccedil;a nenhuma. O que assistimos neste s&eacute;culo 21 &eacute; a morte da utopia democr&aacute;tica.&rdquo;, afirma.
+Ao todo s&atilde;o 25 ensaios e cr&ocirc;nicas que descortinam aspectos da religi&atilde;o, psican&aacute;lise e discuss&otilde;es filos&oacute;ficas em rela&ccedil;&atilde;o aos assuntos mais atuais.
+Pond&eacute; ainda aborda pontos como a pressa e a ansiedade, algo que caracteriza a sociedade atual. Ele ainda faz uma an&aacute;lise cr&iacute;tica da ideia de progresso da esp&eacute;cie. &ldquo;Em nossos tempos ansiosos, todos querem ver a si mesmos como um processo de avan&ccedil;o em dire&ccedil;&atilde;o a uma perfei&ccedil;&atilde;o qualquer, banal, como uma selfie. Voc&ecirc; &eacute; uma startup! V&aacute; adiante. A vida &eacute; um trade-off&rdquo;, provoca.
+Luiz Felipe Pond&eacute; &eacute; Doutor em Filosofia pela Universidade de Paris e pela Faculdade de Filosofia, Letras e Ci&ecirc;ncias Humanas da Universidade de S&atilde;o Paulo (USP) e p&oacute;s-doutor pela Universidade de Tel Aviv.
+Autor de in&uacute;meros livros, atua como diretor do Laborat&oacute;rio de Pol&iacute;tica Comportamento e M&iacute;dia da Pontif&iacute;cia Universidade Cat&oacute;lica (PUC) de S&atilde;o Paulo, professor da Fundac&atilde;o Armando Alvares Penteado (FAAP), comentarista do Jornal da Cultura e colunista da Folha de S. Paulo.

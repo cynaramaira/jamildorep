@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Apesar de discurso radical, ACS não boicotou reunião com comandantes da PM sobre ‘greve branca’"
+date: 2016-12-21
+tags: discurso,Naomi Campbell,reunião
+author: None
+---
+A Associação Pernambucana dos Cabos e Soldados, ACS-PE, apesar de não ter abandonado o discurso radical, está neste momento no Comando Geral da PM para discutir a proposta da categoria. Trata-se do primeiro encontro entre as partes. As demais associações também participam do encontro com os coronéis, como havia sido sugerido pelo governador Paulo Câmara, depois de se recusar a empoderar os intermediários.
+
+Conforme antecipou o Blog de Jamildo mais cedo, em um possível gesto de reconciliação, associações que representam a Polícia Militar aceitaram finalmente se reunir com o comando da corporação, na tarde desta quarta-feira (21), no Quartel do Derby, para tratar da Operação Padrão, que foi deflagrada pelos PMs há 15 dias. Eles exigiam encontrar-se com o governador Paulo Câmara. Com a Operação Padrão, o governador Paulo Câmara (PSB), teve de pedir ajuda ao governo federal e solicitou que as Forças Armadas atuassem no Estado. O presidente Michel Temer autorizou e os militares atuam na Região Metropolitana do Recife até o próximo dia 3 de janeiro. Em artigo enviado ao Blog, nesta manhã, o deputado estadual, que defende os militares, chegou a dizer que a Operação Padrão poderia durar meses, pois o governo não quer dialogar com as associações. A representação sindical da tropa está inflamada contra o Estado devido a decisão de passar para o comando da PM a responsabilidade pelas negociações com o governo. As associações se sentiram excluídas da mesa de negociação e isso desencadeou uma forte reação por parte dos policiais, ao menos oficialmente. A rigor, o movimento começou insuflado por oficiais que não gostaram de aumento dado aos delegados da Polícia Civil.

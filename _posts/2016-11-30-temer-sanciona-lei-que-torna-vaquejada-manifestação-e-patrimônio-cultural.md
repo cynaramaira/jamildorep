@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Temer sanciona lei que torna vaquejada manifestação e patrimônio cultural"
+date: 2016-11-30
+tags: manifestação,Michel Temer,patrimônio,setor cultural
+author: None
+---
+Da ABr - O presidente Michel Temer (PMDB) sancionou sem vetos a lei que eleva rodeios, vaquejadas e outras expressões artístico-culturais à condição de manifestação cultural nacional e de patrimônio cultural imaterial.
+Em julgamento feito em 6 de outubro, o Supremo Tribunal Federal (STF) considerou inconstitucional uma lei cearense que regulamentava eventos desse tipo. Desde então, a proposta que visava à sua legalização ganhou força no Congresso Nacional e foi aprovada no mesmo dia (1º de novembro) tanto na Comissão de Educação, Cultura e Esporte quanto no plenário do Senado. A decisão do STF resultou também em uma manifestação contrária a ela, feita por vaqueiros no dia 11 de outubro na Esplanada dos Ministérios.
+A vaquejada é uma atividade competitiva bastante praticada no Nordeste brasileiro, na qual os vaqueiros têm como objetivo derrubar o boi, puxando-o pelo rabo. As pessoas contrárias à atividade argumentam ser comum o tratamento cruel de animais. Com a sanção presidencial publicada no Diário Oficial da União, desta quarta-feira (30), a prática passa a ter respaldo legal.
+Na defesa que fez de seu relatório aprovado em novembro, o senador Roberto Muniz (PP/BA) argumentou existir ações de aperfeiçoamento da atividade para proteção do animal. Segundo ele, é preciso discutir formas de cuidar bem dos animais sem que seja necessário negar a prática de manifestações culturais, e que a proibição da vaquejada representa “desprezo do que é a cultura nordestina”, em especial a cultura do interior do País.
+Com a sanção da lei, além da vaquejada passam também a ser considerados patrimônio cultural imaterial do Brasil o rodeio e as expressões culturais decorrentes dela – caso de montarias, provas de laço, apartação, bulldog, paleteadas, Team Penning e Work Penning, e provas como as de rédeas, dos Três Tambores e Queima do Alho. Também se enquadram como patrimônio cultural imaterial os concursos de berrante, apresentações folclóricas e de músicas de raiz.
+Wildemberg Sales foi um dos organizadores do Movimento Vaquejada Legal no Distrito Federal (DF), evento feito em outubro contrário à decisão do STF. Segundo ele, cerca de 700 mil famílias vivem de forma direta ou indireta da vaquejada em todo o país. Ele também alega não haver agressão aos animais durante os espetáculos e que essas suspeitas decorrem, em parte, do fato de a vaquejada ser confundida com outras atividades, como é o caso da farra do boi.

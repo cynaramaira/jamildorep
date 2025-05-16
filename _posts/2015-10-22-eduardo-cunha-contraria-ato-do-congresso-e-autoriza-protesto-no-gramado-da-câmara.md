@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Eduardo Cunha contraria ato do Congresso e autoriza protesto no gramado da Câmara"
+date: 2015-10-22
+tags: Câmara,Congresso,EDUARDO CUNHA,gramado,protesto
+author: None
+---
+ Foto: Lula Marques/Agência PT
+Estadão Conteúdo - Apesar de ato do Congresso Nacional proibir a montagem de tendas no gramado em frente à Câmara dos Deputados e ao Senado, o presidente da Câmara, Eduardo Cunha (PMDB-RJ), autorizou representantes do Movimento Brasil Livre (MBL) a acamparem desde ontem no local, em protesto a favor do impeachment da presidente Dilma Rousseff. Manifestantes afirmam que, mesmo sem a autorização do presidente do Congresso, senador Renan Calheiros (PMDB-AL), eles continuam no local, também respaldados por parlamentares da oposição.
+O ato conjunto de número 1º - assinado em 7 de agosto de 2001 pelos então presidentes da Câmara, Aécio Neves (PSDB-MG), e do Senado, Edison Lobão (PMDB-MA) - veda a "edificação de construções móveis, colocação de tapumes, arquibancadas, palanques, tendas ou similares" na área compreendida entre o gramado e o meio fio das vias que margeiam o prédio do Congresso Apesar da proibição, a reportagem constatou que representantes do MBL montaram pelo menos 13 barracas e dois toldos grandes no local desde a última quarta-feira.
+LEIA TAMBÉM:
+&gt; STF determina bloqueio e sequestro de recursos em contas de Cunha na Suíça
+&gt; Pode existir pedalada e não existir motivo para impedimento, diz Cunha
+&gt; Silvio Costa entra com representação contra Eduardo Cunha no MPF
+Um dos coordenadores do MBL, Kim Kataguiri, 19, contabiliza que cerca de 15 pessoas do movimento estão acampadas no local. Segundo ele, os manifestantes devem seguir por tempo "indefinido" no local, com o objetivo de pressionar parlamentares a votarem a favor do impeachment. "Sabemos que o presidente do Senado não autorizou, mas viemos por conta de parlamentares da oposição", explicou, sem mencionar o nome de Cunha. Ele contou que deputados do DEM, PSDB, PSD e até do PDT visitaram o acampamento desde ontem, em apoio à manifestação.
+O líder do DEM na Câmara dos Deputados, Mendonça Filho (PE), confirmou que esteve no local da manifestação junto com uma "comissão" de parlamentares, "respaldando" o protesto do Movimento Brasil Livre. Ele lembrou que, apesar de Renan Calheiros não ter autorizado o protesto, a permanência dos manifestantes está autorizada pelo presidente da Câmara. "Como o Cunha autorizou, eles estão no gramado do lado da Câmara", explicou o democrata. A reportagem não conseguiu contato com outros líderes da oposição na Casa para comentar o assunto.
+A assessoria de imprensa do presidente da Câmara confirmou que Eduardo Cunha autorizou a manifestação do MBL no gramado em frente a Casa. "O presidente da Câmara autorizou, como autorizaria qualquer outro movimento que não esteja sob riscos de segurança nem coloquem em risco as pessoas que circulam pelo local, respeite o patrimônio público, as normas de trânsito e não tenha natureza hostil", justificou. Questionada se a autorização não contraria o decreto do Congresso Nacional de 2001, a assessoria não se pronunciou.
+Mesmo com a proibição do protesto por parte do presidente do Congresso, Renan Calheiros, a Polícia Legislativa mantém um carro oficial e policiais próximos ao protesto. Procurado pela reportagem no início da noite desta quinta-feira, o diretor interino da Polícia Legislativa, Eduardo Brito, não foi localizado para comentar o assunto.

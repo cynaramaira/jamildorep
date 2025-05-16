@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Caiado defende que Temer ‘ponha a cara na TV’ para defender reforma da Previdência e não se esconda atrás do Congresso"
+date: 2016-09-07
+tags: Congresso,Máscara,Michel Temer,Naomi Campbell,pediatras,reformas
+author: None
+---
+O senador Ronaldo Caiado (DEM-GO), em entrevista à Rádio Jornal, do Recife, nesta quarta-feira, deu sinais de que não ficou satisfeito, apenas, com a promessa de envio do projeto de reforma da Previdência ao Congresso Nacional, pelo presidente Michel Temer, ainda este mês, antes das eleições municipais, como apelava inicialmente os partidos da base aliada. Ele defendeu que o presidente Michel Temer deve ir à TV defender a proposta.
+“Não é só encaminhar a proposta. Tem que assumir os grandes debates. O líder tem que estar na frente. Não tem que se esconder no Congresso Nacional”, declarou.
+
+“Neste momento, o presidente Temer deveria estar convocando uma cadeia de rádio e TV, explicando para as pessoas que a Previdência quebrou, elas não vão receber (sem reformas). O PT quebrou o Brasil, quebrou a Previdência, os fundos de pensão. No fundo do Banco do Brasil, já tiveram um aumento de 17% nas contribuições. Tem que explicar isto para a população. Tem que explicar que, sem as reformas, vai ser como em Portugal, os aposentados não vão receber suas aposentadorias”, afirmou.
+A reforma da Previdência tem sido anunciada pelo governo desde que Temer assumiu a Presidência como interino, em maio deste ano. Alguns parlamentares de partidos aliados, porém, argumentavam que o envio agora poderia atrapalhar as disputas eleitorais por ser uma medida impopular.
+Nesta semana que passou, de acordo informações divulgadas pelo ministro-chefe da Casa Civil, Eliseu Padilha, Temer manifestou-se nesta terça-feira (6) no sentido de enviar ainda neste mês a proposta, como havia prometido em ocasiões anteriores.
+“Nós temos que entender que temos uma base parlamentar que tem posição diferente e está dialogando com o presidente. O segredo agora do presidente Michel é fazer com que a base tenha um consenso mínimo. Ele quer mandar antes [DAS ELEIÇÕES]”, disse. Segundo Padilha, que não quis estipular uma data para o envio, o “diálogo” para o envio da proposta será feito “assim que tivermos quórum”.
+Nesta semana que passou, Ronaldo Caiado também disse que era a mesma coisa que mandar o paciente para um médico sem hospital.
+Nesta semana que passou, o presidente da Câmara dos Deputados, Rodrigo Maia, disse que seria inócuo mandar o projeto antes da eleição, uma vez que, sem sua avaliação, só iria prejudicar os candidatos, e que o Congresso dará suas constribuição analisando.
+O presidente do PSDB, Aécio Neves, cobrou aos aliados que explicassem com clareza a razão de cada uma das reformas.
+“Acho que quanto mais ampla for a discussão, melhor. Preferimos já estar discutindo esse assunto o mais rapidamente possível. É preciso que o governo não deixe dúvidas sobre a prioridade da reforma da previdência. O que é importante para nós é clareza de que essa reforma é essencial. Ela é essencial. Se não fizermos a reforma da previdência, daqui a oito, dez anos, não tem mais como pagar a previdência. A reforma da previdência não é um capricho ideológico nosso, enfim, uma questão meramente partidária ou programática. Não. Queremos que os dependentes da previdência continuem a receber. É preciso que haja reforma senão não vai ter, sobretudo os mais pobres, não vão ter o que receber daqui a dez anos”.
+No ar, na Rádio Jornal, Ronaldo Caiado disse que o presidente Temer tinha que propor o debate para que não proliferasse a tese dos movimentos que estão indo às ruas contra o governo do PMDB. “Eles tem muita cara de pau, quebraram o Brasil, quebraram a Previdência, mas ainda podem reverter o que eles fizeram mentindo para a população. A realidade é esta e precisa ser explicada”, afirmou.

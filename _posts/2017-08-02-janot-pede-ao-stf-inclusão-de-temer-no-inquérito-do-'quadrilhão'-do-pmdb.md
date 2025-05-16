@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Janot pede ao STF inclusão de Temer no inquérito do 'quadrilhão' do PMDB"
+date: 2017-08-02
+tags: inclusão,Michel Temer
+author: None
+---
+Estadão Conteúdo - O procurador-geral da República, Rodrigo Janot, pediu ao Supremo Tribunal Federal (STF) que o presidente Michel Temer e os ministros Eliseu Padilha (Casa Civil) e Moreira Franco (Secretaria-Geral da Presidência) sejam incluídos no rol de investigados de um inquérito já instaurado contra membros do PMDB na Câmara dos Deputados no âmbito da Operação Lava Jato. Janot afirma que a organização criminosa investigada a partir da delação da JBS é apenas um "desdobramento" da que já era investigada no inquérito que engloba 15 parlamentares, ex-parlamentares e assessores do PMDB.
+A reportagem procurou as assessorias da Presidência da República, de Padilha e Moreira Franco para se manifestarem sobre o pedido de Janot e ainda aguarda resposta.
+No caso de Temer, que já era alvo de inquérito no STF sob a suspeita de participação em organização criminosa, Janot esclareceu que "não se trata de uma nova investigação contra o presidente da República, mas de uma readequação daquela já autorizada no que concerne ao crime de organização criminosa". De acordo com o que foi pedido pela PGR, a outra linha de investigação que existe contra o presidente, pelo suposto crime de obstrução à investigação de organização criminosa, seguirá tramitando em um outro inquérito, separadamente.
+"O avanço nas investigações demonstrou que a organização criminosa investigada no Inquérito 4.483 na verdade, ao que tudo indica, é mero desdobramento da atuação da organização criminosa objeto dos presentes autos. Por isso, no que tange a este crime específico (organização criminosa), mostra-se mais adequado e eficiente que a investigação seja feita no bojo destes autos do Inquérito 4.327 e não do Inquérito 4.483", disse Janot.
+O inquérito do "quadrilhão" do PMDB possui atualmente 15 investigados, entre eles o ex-deputado Eduardo Cunha (PMDB-RJ), o ex-ministro Henrique Eduardo Alves, o doleiro Lúcio Funaro, o líder do governo no Congresso, André Moura (PSC-SE), o deputado federal Arnaldo Faria de Sá (PTB-SP), a ex-prefeita Solange Almeida e o lobista Fernando Falcão Soares, o Fernando Baiano, um dos delatores da Operação Lava Jato. Ele foi instaurado a partir do desmembramento do "inquérito-mãe" da Lava Jato, por determinação do ministro Teori Zavascki, que atendeu a pedido do procurador-geral da República, Rodrigo Janot, e dividiu as investigações por partidos políticos.

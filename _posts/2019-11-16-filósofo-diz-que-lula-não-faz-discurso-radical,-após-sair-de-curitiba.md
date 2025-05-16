@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Filósofo diz que Lula não faz discurso radical, após sair de Curitiba"
+date: 2019-11-16
+tags: apostas,Curitiba,discurso,Lula,Naomi Campbell
+author: None
+---
+Decifrando a mensagem de Lula
+Por Demétrio Magnoli, em sua coluna na Folha de São Paulo neste sábado
+As palavras "radicalismo" e "polarização" atravessaram o ar, logo depois do discurso de Lula em São Bernardo do Campo (SP), há uma semana. Os analistas, em modo automático, fixaram-se na superfície retórica, ignorando as três curtas frases que formam o núcleo da mensagem do líder petista. De fato, não há "radicalismo", muito pelo contrário -e a "polarização" é uma oferenda que o centro político deposita nos altares do atual e do ex-presidente.
+Paulo Guedes, acusou Lula, seria um "demolidor de sonhos" e um "destruidor de empregos e empresas públicas brasileiras". Novidade nenhuma. A rejeição total da agenda de reformas reflete menos uma posição ideológica e mais a necessidade de proteger o espólio lulopetista. O PT não está autorizado a revisitar o populismo econômico de seu segundo mandato e do consulado dilmista.
+O líder frustra os intelectuais sensatos que giram na órbita petista, proibindo aquilo que, na linguagem política italiana, chama-se aggiornamento: a reavaliação crítica do passado, a atualização de uma orientação estratégica.
+O veto serve ao próprio Lula, "um viciado em si mesmo" (Millôr Fernandes), pois prende seu partido e as legendas auxiliares (Psol, PCdoB) à pesada âncora do lulismo. Serve, ainda, a Bolsonaro, oferecendo-lhe argumentos substantivos na sua perene campanha contra a esquerda. Mas faz mal ao país, que precisa de uma esquerda moderna, e ao PT, que fica marcado a ferro como um partido incapaz de aprender com seus erros.
+"Governar para o povo brasileiro, não para os milicianos do Rio de Janeiro." No seu disparo mais contundente, Lula iluminou a suspeita crucial que paira sobre o clã presidencial. "Radicalismo"? Só se resolvermos, como nação, aceitar a hipótese de um governo associado ao crime organizado.
+A palavra "milicianos" circula nas esquinas -e com bons motivos. A sua ausência quase completa no discurso dos líderes e partidos do centro político é um dos sintomas da renúncia deles a fazer oposição a Bolsonaro. João Doria parece almejar algo como um "bolsonarismo sem Bolsonaro". Luciano Huck esquiva-se, tanto quanto possível, de polarizar com o presidente.
+O protagonismo oposicionista de Lula emerge da abdicação dos demais atores. Obviamente, como tantos registraram, a polarização rende frutos aos dois polos, estreitando os horizontes do debate público.
+A vadia preferência pelo óbvio obscurece o cerne da mensagem de Lula. "Tem gente que fala que precisa derrubar o Bolsonaro, tem gente que fala em impeachment. Veja, esse cidadão foi eleito. Democraticamente nós aceitamos o resultado da eleição. Esse cara tem um mandato de quatro anos."
+O suposto radical, o desvairado incendiário, está erguendo uma muralha diante do PT e das legendas auxiliares. De fato, interdita, para sempre, ao menos entre os seus, o recurso ao impeachment. Bolsonaro esqueceu de agradecê-lo.
+Lula nunca recuou face à contradição lógica, e não o faz agora. Se ficar provada a aliança entre o clã presidencial e as milícias, o remédio democrático atende pelo nome de impeachment. Mas aqui, como na economia, o líder petista está preso à armadilha da narrativa que formulou para preservar a aura do lulismo nos domínios da esquerda.
+O impeachment corta o mandato de quem perdeu as condições políticas para governar. No processo, o Congresso -não um partido singular- decide se uma violação da regra do jogo constitui crime de responsabilidade. Ao qualificar como "golpe" o impeachment de Dilma, Lula e o PT praticamente descartaram a legitimidade da instituição do impeachment. O tabu tem consequências: do lulopetismo não partirá, sob nenhuma circunstância, uma iniciativa de interrupção do mandato de Bolsonaro.
+Que ninguém se preocupe. Lula tem os olhos fixados nas urnas de 2020 e 2022 -e sabe que sua melhor chance é aparecer como única oposição real ao governo.

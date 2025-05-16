@@ -1,0 +1,17 @@
+---
+layout: post
+title: "João Paulo fala abertamente da sua candidatura a Prefeito do Recife"
+date: 2016-01-29
+tags: Candidatura,joão d,Paulo,prefeito,Recife
+author: None
+---
+ Geraldo Julio e João Paulo devem se enfrentar nas urnas em 2016. Foto: Sérgio Bernardo/JC Imagem.
+Por Mariana Araújo do Jornal do Commercio
+O PT está cada vez mais perto de lançar o nome de João Paulo a prefeito do Recife. O superintendente da Sudene, que já ocupou a Prefeitura por dois mandatos, de 2001 a 2008, afirma que tem o favoritismo do seu nome perante a direção nacional da legenda. No entanto, a direção do partido afirma que é cedo para se iniciar o debate sobre os nome que representará a legenda nas urnas em outubro.
+“No âmbito nacional, tem um clima da direção do partido de querer que eu seja candidato aqui em Recife. Em tese, há uma unanimidade no nacional para que eu seja candidato. Eu diria que até internamente aqui no Recife tem um clima extremamente favorável. Eu diria não só de dentro do partido, mas também por todas aquelas pessoas que viveram um pouco os meus anos de gestão”, disse João Paulo.
+O ex-prefeito também dá como março o prazo para a escolha do nome. “Tem muitas variáveis ainda que não estão definidas. Nós temos uma conjuntura bastante volátil no cenário nacional e local. Todos esses desdobramentos na operação Lava Jato no Estado, e aí eu estou falando para o conjunto dos partidos. Segundo, como vai se dar essa relação do PT com o PSB no Congresso Nacional. Acho que não será nada definido antes de março”, acrescentou.
+João Paulo enfatiza, ainda, que a relação que o PSB venha a ter com o PT no âmbito nacional não deverá influenciar a decisão da legenda ter candidato no Recife. “Essa relação nacional de aproximação com o PSB não teria alteração nenhuma no cenário local. E acho que por parte do local também, tem resistências a uma condução nesse tipo no âmbito nacional. Mas como na política a gente sempre tem que aguardar para ver, tem que aguardar as movimentações”, completou.
+A declaração de João Paulo pegou a direção do PT-PE de surpresa. Internamente, ele ainda não tinha falado abertamente sobre o desejo de entrar na disputa. Além do ex-prefeito, outros nomes, como o do senador Humberto Costa e do ex-deputado federal Fernando Ferro.
+“Não podemos dizer que há uma candidatura definida. Estamos na fase de discutir com as regionais do partido e nos setores o projeto de governo. O nome de João Paulo é sempre citado dentro e fora do partido. Mas ninguém dentro do partido pode dizer que João Paulo é candidato. O partido terá muito equilíbrio para escolher quem será o candidato e e manter o partido unido”, disse o presidente do PT-PE, Bruno Ribeiro.
+O presidente do diretório municipal do PT, Oscar Barreto, também afirmou que os nomes não estão sendo postos. “Não vamos focar nesse tema para não atravessar o debate político e fulanizar o debate. É passar a carroça na frente dos bois”, declarou. Segundo Barreto, há um indicativo da legenda de lançar candidato.
+A Executiva municipal se reunirá no dia 27 de fevereiro para discutir a candidatura na capital pernambucana. “É claro que ele é um nome forte no PT, mas o PT tem o seu tempo. Precisamos de uma segurança política e a derrota de 2014 precisa ser analisada”, completou.

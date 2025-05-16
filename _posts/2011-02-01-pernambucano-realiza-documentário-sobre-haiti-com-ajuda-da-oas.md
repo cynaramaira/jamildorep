@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Pernambucano realiza documentário sobre Haiti com ajuda da OAS"
+date: 2011-02-01
+tags: ajuda humanitária,documentário,Haití,pernambucano
+author: None
+---
+
+
+
+Por Cleonildo Cruz, especial para o Blog de Jamildo
+O filme HAITI: MISS&Atilde;O DE PAZ E RECONSTRU&Ccedil;&Atilde;O &eacute; produto em audiovisual com a finalidade de preencher uma lacuna de document&aacute;rio que possa sensibilizar/emocionar atrav&eacute;s do g&ecirc;nero documental a import&acirc;ncia hist&oacute;rica do Ex&eacute;rcito Brasileiro, no processo de paz e reconstru&ccedil;&atilde;o do HAITI, ap&oacute;s 1 ano da maior cat&aacute;strofe humana das Am&eacute;rica, onde mais de 250 mil haitianos morreram. Filme: HAITI: MISS&Atilde;O DE PAZ E RECONSTRU&Ccedil;&Atilde;O
+O terremoto que destruiu grande parte do Haiti, deixando mais de 250 mil mortos e 1,5 milh&atilde;o de desabrigados, aconteceu h&aacute; pouco mais de um ano, mas a luta da cidade para se reerguer ainda ser&aacute; longa.
+O dif&iacute;cil cotidiano dos moradores da capital Porto Pr&iacute;ncipe e a miss&atilde;o de homens e mulheres do contingente brasileiro de manter o ambiente seguro e est&aacute;vel est&atilde;o sendo registrados pelas lentes do cineasta pernambucano Cleonildo Cruz, que acabou de chegar do Haiti, ficou no per&iacute;odo de 16 a 30 de janeiro de 2011. Produ&ccedil;&atilde;o Marcelo Alexandre e a jornalista Taluama Cabral.
+O document&aacute;rio HAITI: MISS&Atilde;O DE PAZ E RECONSTRU&Ccedil;&Atilde;O que tem previs&atilde;o de estr&eacute;ia para o final do ano, mostrar&aacute; tamb&eacute;m que no pa&iacute;s onde humanos alimentam-se de barro e esperan&ccedil;a e as ajudas internacionais chegam a passos lentos, ind&iacute;cios de reconstru&ccedil;&atilde;o come&ccedil;am a surgir.
+O filme HAITI: MISS&Atilde;O DE PAZ E RECONSTRU&Ccedil;&Atilde;O &eacute; produto em audiovisual com a finalidade de preencher uma lacuna de document&aacute;rio que possa sensibilizar/emocionar atrav&eacute;s do g&ecirc;nero documental a import&acirc;ncia hist&oacute;rica do Ex&eacute;rcito Brasileiro, no processo de paz e reconstru&ccedil;&atilde;o. O filme conta o apoio do Minist&eacute;rio da Defesa (transporte a&eacute;reo) e do Ex&eacute;rcito Brasileiro no alojamento e log&iacute;stica e tem o patrocinado da construtora brasileira OAS, que trabalha no Haiti pela reconstru&ccedil;&atilde;o do pa&iacute;s.
+A construtora brasileira est&aacute; construindo uma rodovia importante que vai permitir maior mobilidade para os haitianos.
+A estrada vai ligar a cidade de J&eacute;remie, uma das principais do pa&iacute;s, a Le Cayes, onde uma outra rodovia asfaltada leva a capital. A obra com extens&atilde;o de 68 km &eacute; uma oportunidade de reintegra&ccedil;&atilde;o social e econ&ocirc;mica ao gerar emprego e renda para aproximadamente 750 haitianos. Jeremie fica na regi&atilde;o oeste e n&atilde;o sofreu muito com o terremoto, mas no pequeno comercio local tudo que se vende vem de fora. O asfalto &eacute; uma novidade na cidade e traz a esperan&ccedil;a de deixar para tr&aacute;s o isolamento e contribuir para a reconstru&ccedil;&atilde;o do pa&iacute;s.
+Captamos imagens do Haiti: capital Porto Pr&iacute;ncipe, Pal&aacute;cio Presidencial, edif&iacute;cio do Parlamento, Cadetral de Nortre Dame, pris&atilde;o do pa&iacute;s, hospitais, estradas, sede da Miss&atilde;o das Na&ccedil;&otilde;es Unidas no Haiti. Redondeza (&aacute;reas afetadas pelo sismo), Petit Goave, v&aacute;rios locais destru&iacute;dos pela cat&aacute;strofe do terremoto.
+Captamos imagens da destrui&ccedil;&atilde;o da infra-estrutura do pa&iacute;s. Imagens dos soldados brasileiros no dia-a-dia no Haiti. Entrevistamos haitianos que relatam o dia da cat&aacute;strofe, suas perdas e sua esperan&ccedil;a de um novo HAITI; Haitianos que sobreviveram sob os escombros; Entrevistamos soldados brasileiros e Comando Militar da Miss&atilde;o de Paz das Na&ccedil;&otilde;es Unidas (MINUSTAH) e do Batalh&atilde;o Brasileiro.&nbsp; Abordaremos as v&aacute;rias perdas humanas, dos haitianos aos brasileiros: civis e militares.
+Essa experi&ecirc;ncia de iniciar minha primeira produ&ccedil;&atilde;o internacional marca minha vida, ao voltar para casa jamais poderei esquecer de tudo que vivi aqui no Haiti, cada imagem, gestos e falas dos hatianos ensina-me a ter um olhar para dentro do ser humano, nunca olhar o exterior. A situa&ccedil;&atilde;o do povo haitiano &eacute; dif&iacute;cil, pa&iacute;s pobre com muitas necessidades. Pobreza absoluta, vida de muitas priva&ccedil;&otilde;es , eles sorriem &eacute; algo que n&atilde;o entendo, aprendo com o povo Hatiano. O povo hatiano ama o Brasil, nosso futebol. Voltarei ao Haiti para exibir ao filme HAITI: MISS&Atilde;O DE PAZ E RECONSTRU&Ccedil;&Atilde;O.
+&nbsp;
+
+&nbsp;
+&nbsp; 

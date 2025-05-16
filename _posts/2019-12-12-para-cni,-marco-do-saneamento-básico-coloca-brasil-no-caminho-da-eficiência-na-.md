@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Para CNI, marco do saneamento básico coloca Brasil no caminho da eficiência na coleta e tratamento de esgoto"
+date: 2019-12-12
+tags: brasil,Caminhões,coletânea,esgoto,Pará,Samarco,saneamento básico,tratamento
+author: None
+---
+A aprovação do novo marco legal do saneamento básico pelo plenário da Câmara dos Deputados é um passo importante para a universalização da coleta e do tratamento de esgoto no país. A medida estabelece a abertura de concorrência no setor de maior atraso da infraestrutura brasileira e permite a modernização dos serviços ao estabelecer metas, indicadores de desempenho e mecanismos de aferição de resultados.
+Na avaliação da Confederação Nacional da Indústria (CNI), o aumento da concorrência é essencial para a retomada dos investimentos nos serviços de abastecimento de água e de coleta e tratamento de esgoto. No entanto, a novidade no texto aprovado de que os atuais contratos de programa poderão até 2022 ser renovados por mais 30 anos não colabora para a abertura do mercado. Após a conclusão dos destaques na Câmara, o projeto seguirá para análise no Senado.
+Cabe destacar que, como forma de promover a melhoria na qualidade dos serviços prestados pelos contratos firmados sem licitação, estes deverão comprovar a capacidade econômico-financeira, com metodologia a ser definida pelo Poder Executivo. Tal capacidade será exigida para viabilizar a universalização dos serviços até 2033, também contada para dar validade aos contratos.
+DÉFICIT - Atualmente, 99 milhões de brasileiros não são atendidos por rede de saneamento. “A falta de concorrência afeta a expansão do atendimento, os investimentos e a capacidade de gestão do setor. Além disso, o atual contexto fiscal reforça a necessidade do aumento da participação privada, que hoje é responsável pelo atendimento de somente 9% da população”, afirma o presidente da CNI, Robson Braga de Andrade.
+“A ausência de recursos impossibilita que as companhias públicas sem capacidade de investimento ampliem os serviços de água e esgoto”, acrescenta.
+Robson Andrade pondera que o projeto aprovado não obriga a privatização dos serviços de saneamento básico no país. “Companhias estatais eficientes continuarão no mercado. O que o projeto traz é a concorrência, acabando com a inércia dos contratos de programa que fazem a população e o meio ambiente sofrerem com a falta de coleta e tratamento de esgoto.”
+O Brasil investe, em média, metade dos R$ 21,6 bilhões necessários para que o país cumpra a meta do Plano Nacional de Saneamento Básico (Plansab) de universalizar os serviços de abastecimento de água e coleta de esgoto até 2033. Se mantida a média atual de investimentos, a universalização só deverá ocorrer após 2065. Outro ponto importante estabelecido pelo PL 4.162/2019, que foi votado com termos semelhantes ao PL 3.261/2019 é a definição da Agência Nacional de Águas (ANA) como responsável pelas diretrizes regulatórias para o setor.

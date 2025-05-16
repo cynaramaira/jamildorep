@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Banco disputado por Paulo Câmara teve lucro de R$ 2 bilhões em 2022"
+date: 2023-03-27
+tags: jamildo, banco do nordeste, Paulo Câmara
+author: Jamildo Melo
+---
+Mais cedo, o Blog revelou que o Banco do Nordeste convocou assembleia geral em 31 de mar&ccedil;o para eleger os conselheiros indicados pela gest&atilde;o petista. O Blog revelou que, estranhamente, o ex-governador Paulo C&acirc;mara (sem partido) n&atilde;o est&aacute; na lista, apesar de ser obrigat&oacute;rio, pelo estatuto do banco, o presidente-executivo ser conselheiro. Paulo foi convidado pelo pr&oacute;prio Lula (PT) para presidir o banco, mas jornais nacionais registraram que o PT do Cear&aacute; ainda n&atilde;o desistiu do cargo. O atual presidente do banco, que j&aacute; foi filiado ao PT, foi indicado para ser eleito conselheiro em 31 de mar&ccedil;o.
+Pois bem. Est&aacute; em disputa uma empresa bilion&aacute;ria, que movimenta a economia de todo o Nordeste.
+O Banco do Nordeste (BNB) alcan&ccedil;ou, em 2022, a marca hist&oacute;rica de R$ 2,015 bilh&otilde;es de lucro l&iacute;quido.
+O valor &eacute; o maior j&aacute; registrado pela institui&ccedil;&atilde;o financeira em seus 70 anos de atua&ccedil;&atilde;o. O resultado do ano passado &eacute; 24,5% acima do R$ 1,6 bilh&atilde;o alcan&ccedil;ado em 2021.
+O resultado operacional, medido antes das despesas administrativas, atingiu o montante de R$ 3,28 bilh&otilde;es, representando um acr&eacute;scimo de 16,7% em rela&ccedil;&atilde;o ao desempenho de 2021.
+Os n&uacute;meros refletem melhorias em procedimentos, digitaliza&ccedil;&atilde;o e automa&ccedil;&atilde;o de processos visando ao aumento de efici&ecirc;ncia.
+&ldquo;Temos muita clareza sobre o nosso papel de banco de desenvolvimento, por isso, consideramos fundamental ser mais eficientes e pensar na atua&ccedil;&atilde;o do banco a longo prazo. Alcan&ccedil;ar lucros como esse refor&ccedil;a essa vis&atilde;o de longo prazo e capitaliza o banco a investir em mais projetos de desenvolvimento, a exemplo do programa de microcr&eacute;dito urbano, Crediamigo, operado com recursos pr&oacute;prios&rdquo;, explica o atual presidente do BNB, Jos&eacute; Gomes da Costa.
+A remunera&ccedil;&atilde;o da taxa de administra&ccedil;&atilde;o do Fundo Constitucional de Financiamento do Nordeste (FNE) foi a principal contribui&ccedil;&atilde;o para os resultados financeiros obtidos.
+&ldquo;N&oacute;s conseguimos registrar uma eleva&ccedil;&atilde;o da receita com a taxa de administra&ccedil;&atilde;o do FNE, apesar dessa taxa ter tido uma redu&ccedil;&atilde;o percentual de 2,1% ao ano, no exerc&iacute;cio de 2021, para 1,8% ao ano, em 2022. A compensa&ccedil;&atilde;o foi feita pelo esfor&ccedil;o de todos os colaboradores do banco para aumentar a carteira de cr&eacute;dito&rdquo;, afirma Jos&eacute; Gomes da Costa.
+O executivo se refere aos desembolsos feitos pelo BNB, em 2022, com recursos do FNE e outras fontes que somaram cerca de R$ 49 bilh&otilde;es.
+O volume corresponde &agrave;s opera&ccedil;&otilde;es realizadas na &aacute;rea de atua&ccedil;&atilde;o do banco e representa um aumento de 23,5% na inje&ccedil;&atilde;o de recursos na economia, na compara&ccedil;&atilde;o com o exerc&iacute;cio anterior.
+"N&oacute;s conseguimos alocar um volume maior com a mesma estrutura. Para isso, revisamos processos com o objetivo de sermos mais eficientes. Mostra disso &eacute; que a nossa rentabilidade sobre o Patrim&ocirc;nio L&iacute;quido de 2022 foi de 24,4%, superior &agrave; m&eacute;dia do mesmo indicador de rentabilidade dos maiores bancos do pa&iacute;s, que ficou abaixo de 17%&rdquo;, exemplifica Jos&eacute; Gomes da Costa.
+Os ativos do FNE totalizaram R$ 124,33 bilh&otilde;es ao final do exerc&iacute;cio de 2022, apresentando crescimento de 15,3% em compara&ccedil;&atilde;o com o volume de R$ 107,84 bilh&otilde;es alcan&ccedil;ado no mesmo per&iacute;odo do ano anterior.
+Enquanto isso, os saldos a desembolsar comprometidos relativos &agrave;s opera&ccedil;&otilde;es de cr&eacute;dito anteriormente contratadas totalizaram R$ 13,89 bilh&otilde;es, valor 18,2% menor que os R$ 16,98 bilh&otilde;es existentes em dezembro de 2021, o que evidencia maior efici&ecirc;ncia nos desembolsos.

@@ -1,0 +1,17 @@
+---
+layout: post
+title: "No Recife, secretário da Fazenda diz que espera aprovar reforma da Previdência até agosto"
+date: 2017-06-16
+tags: Fazenda,Recife,reformas,skate
+author: None
+---
+Agência Brasil - O secretário da Previdência Social do Ministério da Fazenda, Marcelo Caetano, disse nesta sexta-feira (16), no Recife, que o governo espera aprovar a reforma da Previdência até agosto, e no formato em que foi aprovada na comissão especial criada para tratar do tema na Câmara dos Deputados.
+"Quem define a velocidade de tramitação e o conteúdo dessa matéria é o Congresso Nacional. O Congresso tem total autonomia. A perspectiva do Executivo é manter o plano da reforma tal qual foi aprovada na comissão especial, sem alterações e também na perspectiva de aprovação até agosto deste ano", afirmou. "O governo está confiante", acrescentou.
+As declarações foram dadas em resposta ao questionamento da existência de clima político para aprovação da proposta, depois da delação dos empresários da JBS.
+Há ainda um recesso parlamentar de 18 a 31 de julho, mas o presidente da Câmara dos Deputados, Rodrigo Maia (DEM-RJ), disse ontem (15) que, caso a Procuradoria-Geral da República (PGR) decida denunciar Temer por causa da delação da JBS, a Casa pode suspender o período de descanso para dar prioridade ao pedido. O Supremo Tribunal Federal (STF) só pode investigar o presidente caso a Câmara vote nesse sentido.
+Reforma em discussão
+O debate contou ainda com o secretário especial do Ministério do Planejamento, Orçamento e Gestão, Arnaldo Barbosa de Lima Junior, e o economista e professor da Universidade Federal de Pernambuco (UFPE), André Magalhães, que defenderam a reforma, além do auditor da Receita Federal e professor de direito previdenciário Hugo Góes, que criticou o modelo proposto pelo governo federal.
+A principal defesa dos representantes do governo é de que a reforma é necessária e urgente diante da diferença negativa entre o que é pago como contribuição à Previdência e o que ela paga de volta aos brasileiros. De acordo com o secretário Marcelo Caetano, em 2016 o chamado “rombo do INSS” chegou a R$ 150 bilhões. Por isso, segundo ele, seria preciso fazer as mudanças para garantir a possibilidade de existência do sistema a médio e longo prazo.
+Para o professor Hugo Góes, o sistema de seguridade social inclui outras formas de financiamento além da constribuição previdenciária, como a Contribuição para Financiamento da Seguridade Social (Cofins) e a Contribuição sobre o Lucro Líquido (CLL), e, por isso, ele é superavitário, ou seja, há dinheiro para pagar todas as despesas das aposentadorias e demais benefícios.
+Conforme Góes, o problema é que o governo federal realiza o cálculo levando em conta apenas a receita da Previdência, ao contrário do que determina a Constituição Federal. Segundo ele, mesmo se o cálculo for feito do jeito apresentado pela União, o déficit poderia ser revertido com duas medidas: o fim de renúncias fiscais ligadas ao desconto no pagamento da contribuição do empregador à Previdência e a saída da aposentadoria rural do regime geral.
+Marcelo Caetano respondeu que as duas questões constam da proposta de emenda à Constituição (PEC) 287/2016. O secretário informou que a contribuição rural do que está sendo exportado está sendo revista [uma modalidade de isenção]. Acrescentou que novas renúncias não podem ser criadas por meio de emenda constitucional, mas por desoneração de folha, iniciativas mais abrangentes apresentadas este ano".

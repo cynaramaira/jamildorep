@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Oposição amplia pressão sobre Dilma, que cobra ministros contra impeachment"
+date: 2015-10-09
+tags: Ampliação,cobra,Contran,depressão,Dilma,impeachment,ministros,Oposição
+author: None
+---
+ Foto: Valter Campanato/Agência Brasil
+Estadão Conteúdo - Na primeira reunião com sua nova equipe ministerial, a presidente Dilma Rousseff cobrou a ação de ministros para barrar pedidos de impeachment no Congresso. Um dia após a rejeição do balanço de 2014 do governo pelo Tribunal de Contas da União (TCU), e depois de sofrer derrotas seguidas no Congresso, a presidente disse na quinta-feira, 8, aos ministros que é preciso unidade para virar o jogo.
+"Querem pôr em andamento o chamado 'golpe democrático' no País. Não podemos ignorar isso", afirmou Dilma aos ministros, no Palácio do Planalto. "Precisamos trabalhar e mobilizar nossas bases para dar respostas e mostrar que temos apoio". Para a presidente, o julgamento no TCU é "página virada". "Vamos fazer a batalha no Congresso", disse ela, ao lembrar que o parecer do tribunal seguirá agora para a Comissão Mista de Orçamento.
+LEIA TAMBÉM:
+&gt; Adams diz que oposição quer ‘forçar a mão’ para impeachment
+&gt; Jarbas diz que, com Eduardo Cunha na Câmara, impeachment vira lorota. Queda dele não ajuda Dilma
+&gt; OAB cria comissão para avaliar se pede impeachment de Dilma
+A cobrança por fidelidade foi feita por Dilma no mesmo dia em que a oposição intensificou o movimento pelo afastamento da presidente, aproveitando a fragilidade do governo. "Se o pedido for colocado em votação, o PSDB se colocará favoravelmente àquilo que pensam seus eleitores", afirmou o senador Aécio Neves (MG), presidente do PSDB. "Temos uma situação inédita e vamos analisá-la", comentou a ex-senadora Marina Silva, hoje à frente da Rede Sustentabilidade.
+O presidente da Câmara, Eduardo Cunha (PMDB-RJ) foi pressionado ontem no plenário para acatar logo o requerimento apresentado pelos juristas Hélio Bicudo e Miguel Reale Júnior, pedindo o impeachment de Dilma. "A base aliada tem de ficar atenta à movimentação da oposição", disse o novo ministro da Casa Civil, Jaques Wagner, após a reunião. "Não vamos ficar brincando de esconde-esconde. Todo mundo sabe o cronograma que está sendo montado."
+Na terça-feira à noite, Wagner também procurou Cunha na residência oficial do peemedebista. Na conversa reservada, pediu a ele que não aceitasse os pedidos de impeachment. Wagner também afirmou que o governo queria dialogar com todas as alas do PMDB e que não tinha a intenção de privilegiar apenas o líder da bancada na Câmara, Leonardo Picciani (PMDB-RJ). "Não temos a ilusão de trabalhar 100% com o PMDB e o diálogo com Cunha tem de continuar sempre", disse.
+Desafeto do governo, Cunha enfrenta situação difícil depois que foram reveladas suas contas na Suíça e, irritado com a "ascensão" de Picciani, tem ajudado a derrotar o Palácio do Planalto.
+Mesmo depois de entregar sete ministérios ao PMDB, o governo não conseguiu reunir número de deputados suficientes para manter os vetos presidenciais à chamada pauta-bomba, projetos que elevam os gastos públicos e põem em risco o ajuste fiscal. Tudo se somou à rejeição das contas no TCU e à abertura de uma ação para impugnar a chapa Dilma-Michel Temer no Tribunal Superior Eleitoral (TSE) por abuso de poder nas eleições de 2014.
+No encontro com os ministros, Dilma afirmou esperar reciprocidade dos partidos contemplados na reforma, pois todos devem dar votos ao governo no Congresso. Disse entender que os nomeados troquem a equipe, mas pediu que não interrompam programas caros ao governo. Apesar da cobrança, ela prometeu resolver "pendências" por cargos e emendas. Um bloco formado por PR, PRB, PTB e PP está exigindo a ocupação de espaços para apoiar Dilma no Congresso.
+Articulador do Planalto, o ministro da Secretaria de Governo, Ricardo Berzoini, afirmou que o governo tem pouco mais de 70 dias para aprovar dois projetos fundamentais para o ajuste fiscal: a Contribuição Provisória sobre Movimentações Financeiras (CPMF) e a Desvinculação das Receitas da União (DRU) Berzoini argumentou que é preciso destravar as nomeações porque elas influenciam nas votações. Ficou acertado no encontro que Michel Temer, Berzoini e ministros do PMDB farão reuniões semanais com a bancada do partido na Câmara, hoje dividida.
+As informações são do jornal O Estado de S. Paulo.

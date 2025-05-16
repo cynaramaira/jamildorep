@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Maia comunica STF sobre decisão de rejeitar denúncia contra Temer"
+date: 2017-08-04
+tags: Contran,Michel Temer,rodrigo maia,telecomunicações
+author: None
+---
+Estadão Conteúdo - O presidente da Câmara, Rodrigo Maia (DEM-RJ), comunicou nesta sexta-feira (4) o Supremo Tribunal Federal (STF) sobre a decisão dos deputados de rejeitar o seguimento da denúncia apresentada contra o presidente Michel Temer (PMDB). Em ofício enviado à presidente do STF, ministra Cármen Lúcia, Maia afirma que a Casa "resolveu indeferir o pedido de autorização para instauração de processo" contra Temer formulado pela Procuradoria-Geral da República.
+Além de enviar novamente os autos do processo ao Supremo, Maia também encaminhou documentos referentes à tramitação do pedido de abertura da ação penal na Câmara, como as notas taquigráficas da sessão de votação em plenário realizada na última quarta-feira (2).
+Agora, Cármen tem de enviar o processo ao ministro Edson Fachin, relator da Lava Jato no Supremo. O ministro deve abrir prazo para vista à PGR e, depois de ouvir o órgão, vai decidir se desmembra ou não o inquérito para que o ex-assessor de Temer Rodrigo Rocha Loures seja processado na primeira instância.
+Rocha Loures foi flagrado recebendo uma mala com R$ 500 mil de propina do grupo J&amp;F. Para o procurador-geral da República, Rodrigo Janot, Temer era o destinatário final desse valor e, por isso, foi denunciado por corrupção passiva. Quanto a Temer, o mais provável é que a tramitação da denúncia fique suspensa até o fim do ano que vem, quando o presidente deixará o mandato e pode voltar a ser investigado na primeira instância da Justiça.
+Após uma intensa articulação do governo, que incluiu a distribuição de cargos, emendas e recursos aos parlamentares, o presidente conseguiu barrar o seguimento da denúncia por 263 votos a 227 na Câmara. Segundo a Constituição, a autorização para o STF processar o presidente da República cabe à Câmara. Se os deputados tivessem aceitado dar continuidade à denúncia, os ministros do STF teriam de decidir se abririam ou não uma ação penal contra Temer. Caso a denúncia fosse aceita pela Corte, Temer seria afastado do cargo por até 180 dias.

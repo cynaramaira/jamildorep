@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Após crise passar, Paulo Câmara promete reduzir impostos que está propondo aumentar"
+date: 2015-09-22
+tags: apostas,crise sanitária,esta,impostos,Paulo Câmara
+author: None
+---
+Um dia depois de a oposição na Assembleia Legislativa tê-lo acusado de incoerência, por criticar aumento de impostos federais, pelo governo Dilma, em meio ao ajuste fiscal federal, o governador Paulo Câmara prometeu, nesta terça-feira, um dia depois de mandar dois de seus auxiliares anunciarem um pacote de aumento de impostos de R$ 487 milhões, especialmente com ICMS maior na gasolina, que iria rever os aumentos assim que a crise passar. A tungada, assim, seria passageira.
+Ouça a íntegra da entrevista de Paulo Câmara
+“Nós temos uma estratégia, na verdade, de sobrevivência. Tão logo nós tenhamos condições de diminuir os impostos, nós vamos diminuir... Nós estamos defendendo o Estado de um grande recessão que vai continuar em 2016, que já fez com que desaparecesse 70 mil empregos no nosso Estado. E que nós precisamos tomar conta. O que eu não posso deixar é o Estado desequilibrado, ter que fechar serviços públicos, de saúde, educação e segurança em momentos como esse. A responsabilidade de todo governante exige medidas e eu estou tomando medidas em favor do meu Estado”, afirmou, antes de criticar duramente a volta da CPMF.
+"O que nós vemos no Governo Federal é um conjunto de ações, principalmente de criação, como a CPMF, que não diz o seu sentido. Não diz o que vai fazer. Se é para a Previdência, tem que ter uma medida estrutural. Porque não são quatro anos de CPMF que vão resolver o problema da Previdência. Precisa ter uma reforma estrutural. Então, se for apresentada uma reforma estrutural e nesse período de quatro anos for preciso novos recursos, como a CPMF, é óbvio que nós vamos defender. Agora, simplesmente apresentar uma CPMF e dizer que mais na frente vai se fazer as reformas estruturais não adianta. E no nosso âmbito não. No nosso governo não.", declarou.
+Nesta terça-feira, integrantes da bancada de Oposição reclamaram que, por se tratar de um conjunto de medidas para enfrentar uma conjuntura econômica temporária, o alcance das medidas deve também ter caráter provisório, com validade para os próximos 12 meses, em 2016.
+Pelas palavras do governador, o pagador de impostos pernambucano não deve esperar a redução para breve. “Em 2016, tudo indica que será um ano tão desafiador ou até pior que 2015. Diante da instabilidade que se encontra em nosso país, uma falta de confiança, uma crise política e uma crise econômica que vai para o seu segundo ano de recessão. Isso só aconteceu, em 1930 e 1931. Mas eu vou continuar trabalhando, junto com a nossa equipe e com os pernambucanos. Porque o nosso programa de governo, tudo aquilo que nós nos comprometemos na campanha política, é em favor de Pernambuco e a população sabe disso. E tão logo tenhamos condições, nós vamos começar a tirar isso do papel”.
+Paulo Câmara falou ainda da pauta bomba e disse que iria buscaro alternativas de defesa em questões que são importante também para o Brasil.
+“Eu tenho, hoje, junto à bancada federal, um grande debate sobre as questões que estão no Congresso. Temos aí esses vetos que a presidente fez, que vão aumentar e muito as despesas dos entes federativos, principalmente da União. Esse é um debate que precisa ser feito. Nós não podemos também, em virtude da nossa posição de independência, não defender questões da governabilidade e questões que atinjam diretamente os cofres públicos”, afirmou.
+Na fala, Paulo Câmara também fez um aceno aos prefeitos e aos fornecedores.
+“As receitas (do pacotaço) vão ficar nos cofres do Estado, mas vão ser dividas com os municípios. Eles também estão em sufoco muito grande”.
+“Nós estamos em um desafio muito grande de regularizar o pagamento dos fornecedores. Vamos fazer isso até o final do ano”.
+Nesta terça-feira, o secretário de Fazenda visitou evento da Amupe e prometeu para os prefeitos R$ 100 milhões do pacote de aumento de impostos.
+ Na Amupe, Márcio Stefanni promete R$ 100 milhões aos municípios com pacotaço de Paulo Câmara

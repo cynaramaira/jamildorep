@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Secretarias da Mulher divulgam nota condenando violência contra"
+date: 2014-02-18
+tags: Contran,mulher
+author: None
+---
+A nota de repúdio do Estado
+O Governo do Estado de Pernambuco, através da Secretaria da Mulher, órgão da administração estadual com a missão de promover e garantir os direitos das mulheres, juntamente com os 151 Organismos Municipais de Políticas para as Mulheres de Pernambuco vêm em público repudiar veementemente o assassinato brutal da professora Sandra Lúcia Fernandes, e seu filho, Icauã Rodrigues, na noite do domingo, 16.02.
+A Secretaria da Mulher de Pernambuco e os Organismos Municipais de Políticas para as Mulheres reafirmam que qualquer ato de violência, doméstica, sexista, moral, patrimonial, sexual e psicológica,  deve ser rigorosamente investigado e punido. A principal ferramenta para inibir esses crimes é a denúncia, possibilitando que o poder público tome as devidas providências.
+Enfatizamos que  todos os crimes de feminicídio devem ser apurados com rigor e os agressores responsabilizados, e manifestamos a nossa indignação com esta barbárie, que representa a face mais cruel das desigualdades entre homens e mulheres, fruto de uma cultura machista e patriarcal.
+Aos familiares, a SecMulher/PE e os Organismos Municipais de Políticas para as Mulheres apresentam as condolências e prestam solidariedade neste momento de dor e de difícil superação.
+SECRETARIA DA MULHER DE PERNAMBUCO e os Organismos Municipais de Políticas para as Mulheres de Pernambuco
+Nota pública de repúdio da PCR
+A Secretaria da Mulher do Recife vem a público externar indignação e repúdio ao brutal e covarde assassinato da professora, sindicalista e ativista pelos direitos das mulheres, Sandra Lúcia Fernandes e do seu filho, Icauã Rodrigues. Esta foi mais uma demonstração da cultura machista que persiste em nossa sociedade ao mesmo tempo em que ratifica e legitima a importância dos organismos de políticas para as mulheres em sua incidência pela construção de um estado inclusivo e reparador das desigualdades de gênero.
+É inaceitável que seja utilizado o argumento vulgarmente conhecido como “ciúmes” para cometer crimes dessa natureza, equivocadamente intitulados de “passionais”. Esta é a representação mais cínica de uma cultura autoritária e machista que banaliza e alimenta a violência contra a mulher nos espaços privado e público..
+A Secretaria da Mulher do Recife reitera seu compromisso com o enfrentamento da violência de gênero contra a mulher, com o fortalecimento institucional da política de gênero no aparato do Estado nos âmbitos dos poderes executivo, legislativo e judiciário, convocando também a sociedade a se mobilizar, indignar e denunciar as violações ao direito da mulher a uma vida livre de todas as formas de violência.

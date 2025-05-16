@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Analistas-tributários realizam greve nacional de 8 a 10 de maio"
+date: 2018-05-06
+tags: greve,nacional
+author: None
+---
+Dos dias 8 a 10 de maio, cerca de 7 mil analistas-tributários da Receita Federal do Brasil (RFB) paralisarão suas atividades em todo o país, em greve nacional pelo cumprimento integral do acordo salarial da categoria, assinado há mais de dois anos.
+O movimento dos servidores do cargo exige que o governo federal regulamente, por meio de decreto do Poder Executivo, o Bônus de Eficiência e Produtividade da Carreira Tributária e Aduaneira. A gratificação foi aprovada em lei no ano passado e els dizem que é um instrumento amparado no cumprimento de metas de eficiência institucional da Receita Federal.
+O presidente do Sindicato Nacional dos Analistas-Tributários da Receita Federal do Brasil (Sindireceita), Geraldo Seixas, diz que as premissas da gratificação já foram amplamente discutidas pelos ministérios envolvidos na negociação salarial, pelo Fisco e pelo Congresso Nacional.
+"Mesmo após todo o debate sobre o tema,  a Casa Civil analisa, há mais de um mês, os termos do decreto para regulamentação do Bônus de Eficiência. Aguardamos a edição do decreto que regulamentará o Bônus de Eficiência desde o dia 11 de julho de 2017, quando foi sancionada a Lei nº 13.464, que reestruturou a remuneração dos servidores da Carreira Tributária e Aduaneira e criou a gratificação. A Casa Civil analisa, há mais de um mês, os termos do decreto. A morosidade em todo este processo demonstra não apenas um enorme desrespeito para com os servidores do Fisco, mas, também, o descaso do governo para com a Receita Federal, órgão responsável pela Administração Tributária e Aduaneira do País”, avalia Geraldo Seixas.
+A postura do governo federal, segundo Seixas, não deixou outra opção para os analistas-tributários, senão a realização de greves até o cumprimento integral do acordo salarial da categoria.
+Neste ano, servidores do cargo têm realizado greves semanais desde o mês de março, como forma de protesto contra a demora para a regulamentação do Bônus de Eficiência.
+“Desconhecemos as razões pelas quais o decreto ainda não foi editado. Este longo processo precisa ser findado urgentemente, para que a Receita Federal possa voltar à normalidade. No entanto, o governo federal não nos deu alternativas e nós decidimos acirrar o movimento de greve dos Analistas-Tributários e seguiremos firmes até que este processo seja encerrado”, afirmou o presidente do Sindireceita.
+Geraldo Seixas destaca que, além do cumprimento do acordo salarial, os servidores também protestam contra ações que podem inviabilizar o funcionamento da Receita Federal do Brasil, entre elas a falta de definição em relação às progressões/promoções dos Analistas-Tributários; a Portaria nº 310/2018, que determina a mudança no regime de plantão dos ATRFBs; e a morosidade do pagamento de adicionais noturno/insalubridade/periculosidade.
+“A Receita Federal, a partir das suas atividades essenciais e exclusivas de Estado, é um órgão fundamental para o desenvolvimento do Brasil e para o enfrentamento à atual crise que abala o nosso país. Essas medidas podem ter como consequência a inviabilização do funcionamento da Receita Federal, prejudicando não apenas os servidores do órgão, mas toda a sociedade brasileira”, diz o líder sindical.

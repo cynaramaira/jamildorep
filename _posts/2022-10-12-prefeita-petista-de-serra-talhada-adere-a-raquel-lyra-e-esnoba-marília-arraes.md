@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Prefeita petista de Serra Talhada adere a Raquel Lyra e esnoba Marília Arraes"
+date: 2022-10-12
+tags: jamildo, eleições 2022
+author: Jamildo Melo
+---
+Nesta quarta-feira (12), M&aacute;rcia Conrado, prefeita pelo PT em Serra Talhada, esteve com Raquel Lyra para declarar apoio, o que j&aacute; se especulava h&aacute; mais de uma semana. Os aliados de Marcia Conrado j&aacute; espalhavam cards com a foto de M&aacute;rcia ao lado de Raquel e Lula. A campanha de Mar&iacute;lia Arraes foi ao TRE, mas n&atilde;o levou.
+Uma explica&ccedil;&atilde;o poss&iacute;vel para o desencontro tem a ver com a forma&ccedil;&atilde;o de palanques, uma vez que o vice de Mar&iacute;lia, Sebasti&atilde;o Oliveira, &eacute; advers&aacute;rio hist&oacute;rico da prefeita petista.
+No primeiro turno, a prefeita pediu votos para Danilo Cabral, do PSB, em fun&ccedil;&atilde;o do acordo entre os dois partidos a n&iacute;vel nacional e local. No fim do primeiro turno, ao lado de outras lideran&ccedil;as do partido, ela veio ao Recife discutir o cen&aacute;rio com Doriel Barros,&nbsp; deputado estadual reeleito e presidente do PT Pernambuco, mas os planos ficaram sem segredo.
+Em Serra Talhada, o candidato a deputado estadual eleito Luciano Duque (ex-PT e hoje no SD) &eacute; aliado de primeira hora de Mar&iacute;lia Arraes (SD) tentou segurar a prefeita do PT, mas a alian&ccedil;a n&atilde;o funcionou para esse segundo turno das elei&ccedil;&otilde;es em Pernambuco. 
+N&atilde;o se sabe at&eacute; que ponto o governador Paulo C&acirc;mara ajudou na decis&atilde;o. Na segunda, dois dias antes desta formaliza&ccedil;&atilde;o, o Governo de Pernambuco e Prefeitura de Serra Talhada formalizam conv&ecirc;nio para pavimenta&ccedil;&atilde;o de vias com investimento de R$ 4 milh&otilde;es. M&aacute;rcia Conrado foi recebida pelo governador Paulo C&acirc;mara no Pal&aacute;cio do Campo das Princesas na tarde da segunda-feira, 10 de outubro, para firmar a coopera&ccedil;&atilde;o financeira.
+
+  
+    M&aacute;rcia Conrado, ao lado do Governador Paulo C&acirc;mara  - H&eacute;lia Scheppa/SEI
+
+&ldquo;O governador Paulo C&acirc;mara tem feito um trabalho muito importante em Serra Talhada. Faltando alguns meses para terminar sua grande trajet&oacute;ria &agrave; frente do Estado, ele vai deixar mais uma marca na nossa cidade. O conv&ecirc;nio celebrado possibilitar&aacute; a recupera&ccedil;&atilde;o asf&aacute;ltica da &aacute;rea central do munic&iacute;pio, beneficiando a popula&ccedil;&atilde;o de aproximadamente 88 mil habitantes do munic&iacute;pio&rdquo;, disse a prefeita.
+Briga no TRE por conta da prefeita do PT
+A campanha da candidata Mar&iacute;lia Arraes (Solidariedade) sofreu uma derrota na Justi&ccedil;a Eleitoral ao ter negada uma liminar que pedia a remo&ccedil;&atilde;o de publica&ccedil;&otilde;es nas redes sociais de integrantes do n&uacute;cleo pol&iacute;tico da prefeita de Serra Talhada, M&aacute;rcia Conrado (PT), com imagens e pedidos de apoio para o candidato &agrave; presid&ecirc;ncia Lula e a candidata a governadora Raquel Lyra.
+Na decis&atilde;o, o desembargador eleitoral auxiliar Rog&eacute;rio Fialho Moreira disse que o conte&uacute;do veiculado nas redes sociais &eacute; uma &ldquo;escolha pessoal dos candidatos dos representados a Presidente da Rep&uacute;blica e a Governador do Estado de Pernambuco&rdquo;.
+&ldquo;N&atilde;o estamos tratando de propaganda realizada por partido pol&iacute;tico e sim do uso da liberdade de express&atilde;o de diversos eleitores, apontando seus candidatos no segundo turno do pleito eleitoral de 2022. A Liberdade de Express&atilde;o, princ&iacute;pio consagrado na Constitui&ccedil;&atilde;o Federal, estipula que a manifesta&ccedil;&atilde;o do pensamento deve ser plenamente protegida em todas as suas formas, podendo, entretanto, haver a devida aprecia&ccedil;&atilde;o pelo &oacute;rg&atilde;o competente dos casos em que os meios publicit&aacute;rios empregados criem, artificialmente, na opini&atilde;o p&uacute;blica, estados mentais, emocionais ou passionais, o que n&atilde;o &eacute; o caso destes autos&rdquo;, diz na decis&atilde;o o desembargador Rog&eacute;rio Fialho.

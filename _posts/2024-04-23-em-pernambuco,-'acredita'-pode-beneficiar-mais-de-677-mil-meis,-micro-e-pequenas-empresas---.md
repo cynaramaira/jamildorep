@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Em Pernambuco, 'Acredita' pode beneficiar mais de 677 mil MEIs, micro e pequenas empresas   "
+date: 2024-04-23
+tags: jamildo, crédito, Lula, Programa Acredita
+author: Jamildo Melo
+---
+O Estado de Pernambuco tem atualmente mais de 677 mil Microempreendedores Individuais (MEIs), microempresas e empresas de pequeno porte que podem ser beneficiados pelo Programa Acredita, lan&ccedil;ado nesta segunda-feira (22/4) pelo Governo Federal.
+Entre as metas da iniciativa est&atilde;o criar condi&ccedil;&otilde;es para ampliar o acesso a cr&eacute;dito, renegociar d&iacute;vidas e garantir mais apoio a esses tr&ecirc;s setores da economia.
+"N&oacute;s estamos criando as condi&ccedil;&otilde;es para que, independentemente da quantidade, da origem social, do tamanho dos neg&oacute;cios, as pessoas tenham o direito de ter acesso ao sistema financeiro e pegar um cr&eacute;dito", disse Lula.
+O estado tamb&eacute;m demonstra potencial no setor das microempresas, com 167,5 mil unidades desse tipo de neg&oacute;cio entre os mais de 6,69 milh&otilde;es registrados no Brasil. O setor de empresas de pequeno porte em Pernambuco tem hoje 33,9 mil registros entre os mais de 1,21 milh&atilde;o em todo o pa&iacute;s que poder&atilde;o ampliar o acesso a cr&eacute;dito por meio do Acredita. Em todo o pa&iacute;s, s&atilde;o mais de 15,6 milh&otilde;es de MEIs, dos quais 475,6 mil est&atilde;o registrados em Pernambuco. Desse universo pernambucano, 271,8 mil s&atilde;o comandados por homens (57,1%) e 203,8 mil (42,9%) por mulheres. &ldquo;N&atilde;o tem nada mais imprescind&iacute;vel para uma sociedade, qualquer que seja ela, se desenvolver, se ela n&atilde;o tiver condi&ccedil;&otilde;es de ter oportunidade e se n&atilde;o tiver cr&eacute;dito. N&oacute;s estamos criando as condi&ccedil;&otilde;es para que, independentemente da quantidade, da origem social, do tamanho dos neg&oacute;cios, as pessoas tenham o direito de ter acesso ao sistema financeiro e pegar um cr&eacute;dito", afirmou o presidente no Pal&aacute;cio do Planalto.

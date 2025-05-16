@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Escárnio pode acabar hoje. Conselho de Ética diz que não pode mais adiar caso Renan "
+date: 2007-08-30
+tags: animais,ética,Naomi Campbell,Renan Calheiros
+author: None
+---
+Na abertura dos travbalhos, o presidente do Conselho de &Eacute;tica e Decoro Parlamentar, senador Leomar Quintanilha (PMDB-TO), disse que, desde o dia 4 de junho, quando foi apresentada a representa&ccedil;&atilde;o do PSOL contra o presidente do Senado, Renan Calheiros, a institui&ccedil;&atilde;o vem passando por &quot;um dos momentos mais delicados de sua hist&oacute;ria&quot;. Quintanilha prosseguiu: &quot;Chegou o momento de deliberarmos conclusivamente sobre o processo&quot;. Antes de dar in&iacute;cio &agrave; aprecia&ccedil;&atilde;o do relat&oacute;rio, tra&ccedil;ou um hist&oacute;rico da tramita&ccedil;&atilde;o do processo, lembrando troca de relatores e do presidente do conselho e a forma&ccedil;&atilde;o de uma comiss&atilde;o de inqu&eacute;rito para produzir o relat&oacute;rio.
+Na reuni&atilde;o do Conselho de &Eacute;tica e Decoro Parlamentar, que come&ccedil;ou h&aacute; pouco, a primeira quest&atilde;o de ordem foi apresentada pelo senador Arthur Virg&iacute;lio (PSDB-AM). O senador afirma que o Regimento Interno da C&acirc;mara dos Deputados determina que as vota&ccedil;&otilde;es naquele conselho sejam abertas e, por isso, defendeu que fosse feita uma analogia com o regimento da outra Casa do Legislativo, j&aacute; que o Regimento Interno do Senado &eacute; omisso nessa quest&atilde;o espec&iacute;fica. O senador destacou que, no caso do voto de perda de mandato em Plen&aacute;rio, a Constitui&ccedil;&atilde;o &eacute; &quot;muito clara&quot; ao determinar o voto secreto.
+&quot;A analogia nos remete a copiarmos o Regimento da C&acirc;mara, no que toca a quest&atilde;o do voto aberto [no Conselho de &Eacute;tica], para decidirmos se houve quebra ou n&atilde;o de decoro por parte do senador Renan Calheiros - sugeriu.&quot;
+Com informa&ccedil;&otilde;es da Ag&ecirc;ncia Senado  

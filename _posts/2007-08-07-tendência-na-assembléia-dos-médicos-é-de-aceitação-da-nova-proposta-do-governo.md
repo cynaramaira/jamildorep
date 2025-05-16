@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Tendência na assembléia dos médicos é de aceitação da nova proposta do governo"
+date: 2007-08-07
+tags: Assembleia Geral,autoaceitação,governo,médicos,proposta,Sinovac
+author: None
+---
+O presidente do Sindicato dos M&eacute;dicos de Pernambuco (Simepe), M&aacute;rio Lins, e o do Conselho Regional de Medicina (Cremepe), Carlos Vital, apresentaram na assembl&eacute;ia da categoria, que acontece neste momento no teatro Valdemar de Oliveira, na Boa Vista, uma nova proposta&nbsp;oferecida pelo governo na tarde desta ter&ccedil;a (7).&nbsp;E a tend&ecirc;ncia &eacute; de que haja entendimento.
+Essa &eacute; a impress&atilde;o da rep&oacute;rter Cl&aacute;udia Vasconcelos, do Jornal do Commercio, que acompanha&nbsp;o encontro.&nbsp;Ela contou agora h&aacute; pouco ao Blog que&nbsp;a plat&eacute;ia tem bem menos gente que nas vezes anteriores. 
+Pela nova proposta, o sal&aacute;rio-base ficaria em R$ 1.900,00 e a gratifica&ccedil;&atilde;o de plant&atilde;o em R$ 1.000,00. Muito pr&oacute;xima dos valores que as entidades m&eacute;dicas diziam ser o m&iacute;nimo admiss&iacute;vel (R$ 2.000,00 de sal&aacute;rio-base e R$ 1.000,00 de gratifica&ccedil;&atilde;o).
+Os novos n&uacute;meros foram apresentados na tarde desta ter&ccedil;a aos presidentes do Simepe e do Cremepe em reuni&atilde;o na Assembl&eacute;ia Legislativa. Do encontro participaram, como mediadores, o presidente da Casa, Guilherme Uch&ocirc;a (PDT),&nbsp;os deputados Isaltino Nascimento (l&iacute;der do governo, PT), Silvio Costa Filho (PMN) e Pedro Eurico (l&iacute;der da oposi&ccedil;&atilde;o, PSDB), al&eacute;m do presidente da OAB-PE, Jayme Asfora.
+O presidente da Assembl&eacute;ia Legislativa, Guilherme Uch&ocirc;a, est&aacute; de plant&atilde;o (sem trocadilhos) esperando o resultado do encontro dos m&eacute;dicos. Se houver, de fato, a aceita&ccedil;&atilde;o da proposta, ele imediatamente comunicar&aacute; ao governador Eduardo Campos para que este altere o projeto de reajuste que j&aacute; havia sido enviado ao&nbsp;Legislativo. assim, o&nbsp;Di&aacute;rio Oficial desta quarta (8) ser&aacute;&nbsp;publicado j&aacute; com os novos valores.
+Por sua vez, a&nbsp;Comiss&atilde;o de Constitui&ccedil;&atilde;o e Justi&ccedil;a da Assembl&eacute;ia&nbsp;poder&aacute; analisar o projeto alterado j&aacute; nesta quarta, pela manh&atilde;, em reuni&atilde;o extraordin&aacute;ria. N&atilde;o havendo acordo, a CCJ votar&aacute; o projeto original do governo, que prev&ecirc; sal&aacute;rio-base de R$ 1.647,00 e R$ 1.150,00 de gratifica&ccedil;&atilde;o de plant&atilde;o.&nbsp;Junto com o projeto dos m&eacute;dicos, a Comiss&atilde;o tamb&eacute;m votar&aacute; os projetos de reajustes dos policiais militares e dos professores.
+Al&eacute;m da reuni&atilde;o da CCJ,&nbsp;est&aacute; marcada uma sess&atilde;o plen&aacute;ria extra para as 10 horas desta quarta, com o mesmo objetivo: analisar os projetos de reajuste dos servidores. 

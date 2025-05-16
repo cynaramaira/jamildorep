@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Temer diz que não se pode "manter o silêncio" sobre suspeição de Janot"
+date: 2017-08-31
+tags: Michel Temer,Naomi Campbell,poderosa
+author: None
+---
+Estadão Conteúdo - Após se reunir com empresários chineses em Pequim nesta quinta-feira (31), o presidente Michel Temer (PMDB) afirmou que não se pode "manter o silêncio" sobre o pedido de suspeição contra o procurador-geral da República, Rodrigo Janot, e que o Judiciário deve decidir a questão. Em entrevista coletiva, Temer negou que esteja tentando "desqualificar" o procurador.
+"Você sabe que no plano jurídico, quando alguém começa a agir suspeitamente, você tem que arguir da suspeição, e quem decide é o Judiciário. O Judiciário é que vai decidir o que deve haver, se há suspeição, se não há suspeição. O que não se pode é manter o silêncio. Mas foi o que o advogado fez", disse o presidente, conforme transcrição da entrevista coletiva pela assessoria do Planalto.
+Nessa quarta-feira (30), o ministro do Supremo Tribunal Federal (STF) Edson Fachin negou pedido da defesa de Temer e deu aval para Janot seguir na condução das investigações contra o presidente. Temer afirmou que seu advogado deve pedir para que o plenário da Corte analise a questão. A defesa do peemedebista alega que o procurador extrapolou seus limites legais nas investigações.
+Questionado sobre a devolução do acordo de colaboração premiada do operador Lúcio Funaro à Procuradoria, Temer afirmou que a atitude do ministro Fachin ao entregar o acordo novamente a Janot demonstra que a delação pode conter equívocos. "Deve haver algum equívoco na delação, certamente nós vamos esclarecer. Eu suponho até que o procurador deverá esclarecer e vai devolver", disse o presidente.
+Temer procurou defender os atos do governo sobre a extinção de uma reserva mineral na Amazônia. Ontem, a Justiça Federal do Distrito Federal suspendeu decreto do presidente sobre o tema. "Nós vamos nos pronunciar sobre isso", disse Temer, reforçando "que há preservação absoluta de toda e qualquer área ambiental e qualquer área indígena".
+Investimentos. Ao comentar a conversa com os empresários chineses, Temer disse que há uma "confiança extraordinária" no Brasil, especialmente no setor de energia. A Eletrobras é um dos ativos que está sendo colocado pelo governo à disposição da iniciativa privada. Temer declarou que os empresários revelaram interesse no pacote de concessões, mas não anunciaram nenhuma intenção concreta.
+Em uma escala da viagem, Temer parou em Astana, no Cazaquistão. Lá, segundo ele, foi informado por um empresário local com ativos no Brasil de um novo investimento de US$ 1 bilhão no setor de infraestrutura na Bahia. O presidente não identificou o empresário.

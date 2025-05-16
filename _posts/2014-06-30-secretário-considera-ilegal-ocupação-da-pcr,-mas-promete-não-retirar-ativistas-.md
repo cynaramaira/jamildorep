@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Secretário considera ilegal ocupação da PCR, mas promete não retirar ativistas com violência"
+date: 2014-06-30
+tags: Naomi Campbell,ocupação,venda ilegal
+author: None
+---
+Com informações de Paulo Veras, repórter do blog
+O secretário de Segurança Urbana do Recife, Murilo Cavalcanti, classificou como ilegal a ocupação do hall da sede da Prefeitura do Recife por ativistas do Ocupe Estelita, nesta segunda-feira (30), porém garantiu que os manifestantes ficarão em segurança no local e não serão retirados a força. O objetivo do grupo é ser recebido pelo prefeito Geraldo Julio (PSB).
+Murilo Cavalcanti justificou a sua posição afirmando que a PCR é um espaço público e disse que a mobilização impede a população de ter acesso aos serviços. O atendimento no primeiro andar do prédio foi suspenso, sendo mantido o expediente nos outros andares, onde funcionam as secretarias.
+LEIA MAIS: Ativistas do Ocupe Estelita protestam na PCR
+O chefe do Executivo municipal se encontrou com secretários municipais e representantes das entidades que têm participado das negociações para o redesenho do Projeto Novo Recife: OAB, UFPE, Unicap, IAB, CAU, Crea e Observatório do Recife. A reunião desta manhã foi para passar às entidades informações sobre o processo de rediscussão do projeto e definir os próximos passos, incluindo a audiência pública para apresentação de novas propostas para a área e o modelo de negociação com o Ocupe Estelita e com o Consórcio Novo Recife.
+Foto: Andréa Rêgo Barros/PCR
+Os ativistas pretendem ficar no hall da PCR até que o prefeito os receba. A proposta de Geraldo Julio era fazer uma reunião com eles nesta terça-feira (1º). Entretanto, as entidades sugeriram ao prefeito receber uma comissão dos ativistas e pedir a desocupação da PCR em troca. O assunto está sendo discutido no hall.
+Outra reivindicação dos manifestantes é que o Ministério Público de Pernambuco passe a conduzir a negociação com o Ocupe Estelita e o Consórcio Novo Recife, responsável pelo projeto homônimo que prevê a construção de 12 torres de até 40 andares no Cais José Estelita, Centro da capital pernambucana.
+De acordo com a advogada Liana Cirne Lins, do grupo Direitos Urbanos, a Prefeitura não se mostrou capaz de mediar esse processo. O representantes do Ocupe Estelita reclamam que, desde a primeira reunião que tiveram com a PCR, já aconteceram outras com as entidades e as empresas responsáveis pelo Novo Recife, porém eles não voltaram a ser ouvidos.
+Os ativistas publicaram, nesta segunda-feira, no Facebook, um parecer sobre os procedimentos de negociação definidos num encontro entre o prefeito e as entidades. Veja o post aqui. Entre as resoluções, estava o prazo de 30 dias para a realização de uma audiência pública e mais um mês para que o consórcio fizesse o redesenho do projeto com base nas diretrizes urbanísticas que fossem definidas.
+O secretário de Juventude, Jayme Asfora e os secretários executivos de Segurança Urbana, Eduardo Machado, e de Governo e Participação Social, Gabriel Leitão, conversaram com os manifestantes. Asfora retornou à reunião com as demandas dos manifestantes.
+REINTEGRAÇÃO DE POSSE - O terreno no cais onde o Novo Recife será construído foi ocupado por militantes no dia 21 de maio, após o início da demolição dos galpões existentes no local. A reintegração de posse ocorreu no dia 17 de junho, com ação da Polícia Militar criticada que causou problemas políticos para o governador João Lyra Neto (PSB). Até o antecessor dele, o ex-governador e presidenciável Eduardo Campos (PSB), teria se queixado da ação.
+Antes disso, a PCR já havia suspendido o alvará de demolição dos armazéns. No dia 5 de junho, em reunião realizada após o encontro entre a PCR e os representantes do Ocupe Estelita, as empresas que compõem o consórcio concordaram com a revisão do projeto. Elas pediram, porém, que houvesse a desocupação do terreno, no entanto, os manifestantes se recusaram a sair até que houvesse garantias de que a negociação seria levada adiante. Atualmente, após a reintegração de posse, estão abaixo do viaduto Capitão Temudo, ao lado do cais.

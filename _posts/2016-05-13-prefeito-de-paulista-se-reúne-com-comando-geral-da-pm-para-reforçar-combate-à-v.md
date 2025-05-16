@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Prefeito de Paulista se reúne com comando geral da PM para reforçar combate à violência"
+date: 2016-05-13
+tags: combate,Geral,Paulista,prefeito
+author: None
+---
+
+Segundo pesquisa divulgada esta semana, 35% das pessoas presas cometendo algum delito no Distrito Federal, até o ano passado, tinham emprego formal com carteira assinada. Esta informação que indica um agravamento da violência por conta do desemprego, foi trazida de Brasília pelo prefeito Junior Matuto e repassada ao comandante da Policia Militar de Pernambuco, Coronel Carlos D’Albuquerque Maranhão, no Quartel do Derby, Zona Central do Recife, onde estiveram reunidos na tarde desta quinta-feira, 12.
+Preocupado com a crescente violência no Paulista, principalmente na área das praias, onde a população vem sofrendo constantes assaltos naquela região, Junior Matuto procurou o comando geral da PM para pedir que sejam tomadas medidas mais efetivas de tudo que já vem sendo feito no município.
+“Reconheço que a PM tem uma presença forte na nossa cidade. Apesar das parcerias que temos realizado com o 17º Batalhão, e de iniciativas do nosso governo para garantir mais segurança aos paulistenses, como implantação do Centro Integrado de Segurança, junto com a Central de Monitoramento. Mas, infelizmente, percebemos que não estão sendo suficientes para combater à violência em toda a cidade. Por isso viemos pedir para que a PM nos fortaleça nesta luta contra a criminalidade", informou Junior Matuto.
+O Coronel Carlos D’Albuquerque se colocou à disposição para fortalecer o combate a violência, “Um conjunto de fatores sócio econômicos estão contribuindo para o aumento da violência. Sei que em Paulista não é diferente. Por isso, nos colocamos a inteira disposição de montar estratégias mais efetivas, com operações especiais para garantir mais segurança lá no Paulista. Em breve chegarão novas viaturas no estado, o que também vai fortalecer a atuação da PM", assegurou Cel. D’Albuquerque, adiantando ainda que será dada uma maior cobertura policial em toda a cidade, numa articulação com a Polícia Civil, para viabilizar mais operações de investigação em Paulista.
+A outra questão tratada na reunião entre gestores do Paulista e o Comando Geral da PM, foi formalizar um convênio para que o 17º Batalhão Abreu e Lima ocupe o imóvel pertencente à Prefeitura, na Rua da Mangueira, no Centro da cidade, facilitando assim a prestação de serviço do Batalhão aos cidadãos paulistenses.
+Na avaliação do Major André Ângelo, comandante do 17º batalhão que atua no Paulista, a presença do prefeito no Quartel do Derby foi muito importante, “O prefeito Junior Matuto conseguiu passar a real dimensão do problema do Paulista, isto sensibilizou nossos comandantes e com certeza vamos avançar nas ações para garantir mais segurança em Paulista”, finalizou Coronel Ângelo.
+Participaram ainda da reunião o secretário de Segurança Cidadã e Defesa Civil, Manoel Alencar, o vereador do Paulista, Edmilson do Pagode, além do Coronel Carlos José, Coronel Adalberto e Capitão Fabiano.

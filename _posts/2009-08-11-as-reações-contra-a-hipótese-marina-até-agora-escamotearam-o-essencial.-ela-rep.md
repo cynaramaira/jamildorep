@@ -1,0 +1,28 @@
+---
+layout: post
+title: "As reações contra a Hipótese Marina até agora escamotearam o essencial. Ela representa ideias e aspirações compartilhadas por milhões de brasileiros"
+date: 2009-08-11
+tags: brasileiros,Contran,Marina Lima,profissional essencial,skate
+author: None
+---
+Por Alfredo Sirkis
+&Eacute; COMPREENS&Iacute;VEL que a possibilidade de uma candidatura da senadora e ex-ministra do meio ambiente Marina Silva cause, por um lado, entusiasmo e excita&ccedil;&atilde;o e, por outro, preocupa&ccedil;&atilde;o.
+Milh&otilde;es de brasileiros sens&iacute;veis &agrave; causa ecologista, &agrave; sustentabilidade ambiental e social de nosso modelo econ&ocirc;mico, aos destinos do planeta amea&ccedil;ado pelo aquecimento global, &agrave; devasta&ccedil;&atilde;o de nossos ecossistemas e &agrave; qualidade de vida nas nossas cidades vivem na expectativa de dispor de uma voz pr&oacute;pria, eloquente, na campanha presidencial -at&eacute; agora arena exclusiva dos defensores do desenvolvimentismo cl&aacute;ssico dos anos 60.
+Por outro lado, entende-se que haja pol&iacute;ticos inquietos, cada qual fazendo seu c&aacute;lculos: afinal, uma eventual candidatura da Marina Silva me ajuda ou me atrapalha&#63; Quanto ajuda&#63; Quanto atrapalha&#63; Bombardear&#63; N&atilde;o bombardear&#63;
+&Eacute; curioso que as rea&ccedil;&otilde;es pol&iacute;ticas e a maioria das an&aacute;lises jornal&iacute;sticas gravitem em volta desses c&aacute;lculos pragm&aacute;ticos enquanto escamoteiam o essencial: Marina representa ideias e aspira&ccedil;&otilde;es hoje compartilhadas por milh&otilde;es de brasileiros.
+N&atilde;o ser&aacute; leg&iacute;timo e at&eacute; importante para a democracia brasileira que elas estejam representadas em uma elei&ccedil;&atilde;o de dois turnos&#63;
+Numa dimens&atilde;o minimalista, ter&iacute;amos uma campanha altamente instrutiva e educativa, n&atilde;o apenas naquele discurso cl&aacute;ssico, defensivista, do ambientalismo (deter a destrui&ccedil;&atilde;o da Amaz&ocirc;nia e de sua biodiversidade, a contribui&ccedil;&atilde;o das suas queimadas em emiss&otilde;es de CO2 etc.) mas tamb&eacute;m na did&aacute;tica daquilo que as vertentes hegem&ocirc;nicas do desenvolvimentismo cl&aacute;ssico n&atilde;o conseguem perceber: o futuro econ&ocirc;mico e social do Brasil, hoje, depende de mergulharmos de cabe&ccedil;a numa economia verde!
+Nenhum outro pa&iacute;s est&aacute; t&atilde;o bem posicionado quanto o Brasil para atrair investimentos para um ecodesenvolvimento, muito embora insistamos em monoculturas, na devasta&ccedil;&atilde;o da biodiversidade para estender mais e mais a fronteira pecu&aacute;ria, em subsidiar ve&iacute;culos poluentes e emissores de carbono, em novas termoel&eacute;tricas a carv&atilde;o e novas rodovias no cora&ccedil;&atilde;o da floresta.
+No entanto, Marina tem um potencial al&eacute;m do eloquente discurso de primeiro turno para depois arrancar compromissos program&aacute;ticos.
+Ela pode contribuir para a supera&ccedil;&atilde;o dessa abissal fenda da pol&iacute;tica brasileira: a compuls&oacute;ria alian&ccedil;a das duas vertentes da social-democracia com as oligarquias pol&iacute;ticas na busca da governabilidade.
+PT e PSDB disputam, como lucidamente notou em certa ocasi&atilde;o o ex-presidente Fernando Henrique Cardoso, &quot;quem vai liderar o atraso&quot;.
+No inst&aacute;vel sistema pol&iacute;tico-institucional produto do nosso &quot;voto jabuticaba&quot;, proporcional personalizado, ambos dependem do clientelismo e do fisiologismo profissional para governar. Melhor fariam em se aliar em algum momento, mas, como a disputa central se d&aacute; entre eles, isso dificilmente acontecer&aacute;, e a rivalidade entre eles &eacute; feroz.
+N&oacute;s, verdes, nos relacionamos com ambos e reconhecemos o papel que respectivamente tiveram nos ineg&aacute;veis avan&ccedil;os econ&ocirc;micos e sociais vividos pelo Brasil desde 1994.
+Marina &eacute; bem talhada para promover uma nova governabilidade com ambas as vertentes que, enfim, supere essa polariza&ccedil;&atilde;o bizarra, isole o atraso e abra caminho para uma reforma do nosso sistema eleitoral, secando sua depend&ecirc;ncia do clientelismo, do fisiologismo e do assistencialismo, fontes maiores da corrup&ccedil;&atilde;o, do excesso de cargos comissionados, do mau uso da m&aacute;quina p&uacute;blica e da compra de votos, direta ou via centros assistenciais.
+O direito de ter um sonho de pa&iacute;s e lutar para tir&aacute;-lo do papel &eacute; inalien&aacute;vel. Os verdes n&atilde;o abrem m&atilde;o dele, mas tamb&eacute;m reconhecem que isso transcende suas limitadas fileiras.
+Nesse momento, &eacute; imposs&iacute;vel saber, de fato, se Marina ser&aacute; ou n&atilde;o candidata. &Eacute; uma decis&atilde;o dif&iacute;cil, de f&eacute; &iacute;ntima, que h&aacute; que aguardar.
+O caminho pol&iacute;tico, no entanto, &eacute; claro: n&atilde;o &eacute; anti-PT. Nossa fraternidade, muito particularmente com o PT do Acre, remonta a Chico Mendes.
+Tamb&eacute;m n&atilde;o &eacute; antitucanos.
+Certamente n&atilde;o &eacute; anti-Lula, embora n&atilde;o possamos abrir m&atilde;o de criticar sua atitude frequentemente atrasada e deseducativa na quest&atilde;o ambiental. Pode, eventualmente, vir a ser p&oacute;s-Lula...
+PS: ALFREDO SIRKIS, 58, &eacute; vereador pelo PV no Rio de Janeiro, presidente do Partido Verde do Rio e vice-presidente nacional de seu partido. &Eacute; autor, entre outras obras, de &quot;Os Carbon&aacute;rios&quot;.
+&nbsp; 

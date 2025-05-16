@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Armando Monteiro Neto critica prefeito de Gravatá, por apoio a Paulo Câmara"
+date: 2014-04-21
+tags: Armando Monteiro,crítica,Gravatá,neto,Paulo Câmara,prefeito
+author: None
+---
+No JC desta segunda
+Foi utilizando o discurso da nova política adotado pelo PSB que o senador e pré-candidato Armando Monteiro Neto (PTB) reagiu à adesão do prefeito Bruno Martiniano (PTB) ao palanque socialista. Em tom irônico, o petebista insinuou que a aliança, selada no último sábado, em Gravatá, é fruto de uma manobra feita para atrair os seus correligionários. “No ambiente da nova política, pressão mais coação versus fraqueza mais insegurança, é igual a adesismo. É a população quem vai julgar (as atitudes dos candidatos)”, afirmou o petebista, por meio da assessoria de imprensa.
+O discurso contra o adesismo é uma das principais defesas do PSB, sobretudo do ex-governador Eduardo Campos. Com a declaração, Armando Monteiro tenta desconstruir a imagem de que o palanque socialista é adepto aos gestos da nova política.
+Na última quinta-feira, o senador também conseguiu atrair para o seu palanque nomes do grupo adversário. Dois vereadores do PSB, Geovane da Saúde e Luquinhas da Saúde, ambos de Taquaritinga do Norte, anunciaram apoio ao senador. Também do PSB, o vice-prefeito do município de Salgueiro, Luiz Carlos Souza, e os vereadores Eugênio e André Cacau decidiram apoiar a candidatura de Armando.
+Na semana passada, antes do anúncio oficial de Bruno Martiniano, Armando Monteiro demonstrou incômodo com as especulações de que o correligionário iria anunciar apoio a Paulo Câmara. O petebista disse que só iria se pronunciar depois que o fato fosse concretizado. Ontem, até o fechamento desta edição, o senador passou o dia numa reunião “a portas fechadas”. O secretário-geral do PTB, o ex-deputado estadual José Humberto Cavalcanti, preferiu não se pronunciar sobre o caso. Disse apenas que o assunto ainda não foi discutido internamente.
+Nos bastidores, a saída de Bruno Martiniano das hostes do PTB já é dada como certa. Segundo interlocutores do senador, a decisão do prefeito não causou surpresas aos petebistas porque o prefeito já teria um “histórico de fraquezas”. Apesar disso, aliados de Armando Monteiro garantem que Bruno já tinha sinalizado que estaria engajado no projeto do petebista. Procurado, o prefeito não atendeu às ligações do JC.
+Mesmo com a mudança de postura do petebista, a possibilidade de o partido questionar o prefeito juridicamente é praticamente descartada nas hostes do PTB, já que o mandato é de um cargo majoritário. No caso dos proporcionais, a possível perda do mandato garantiria que a legenda continuasse dona de uma vaga no legislativo, diferente do caso de prefeitos.
+Eleito pelo PTB, Bruno Martiniano declara apoio a Paulo Câmara e Raul Henry

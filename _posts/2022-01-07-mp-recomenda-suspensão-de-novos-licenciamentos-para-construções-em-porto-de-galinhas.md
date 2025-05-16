@@ -1,0 +1,22 @@
+---
+layout: post
+title: "MP recomenda suspensão de novos licenciamentos para construções em Porto de Galinhas"
+date: 2022-01-07
+tags: embargos
+author: JAMILDO MELO
+---
+Alegando cont&iacute;nuo e avan&ccedil;ado processo de verticaliza&ccedil;&atilde;o das constru&ccedil;&otilde;es em curso, que estaria causado profundas altera&ccedil;&otilde;es paisag&iacute;sticas em Porto de Galinhas e provocado impactos nas quest&otilde;es ambientais, de saneamento e mobilidade urbana, a 3&ordf; Promotoria de Justi&ccedil;a C&iacute;vel de Ipojuca, com atribui&ccedil;&atilde;o nas Curadorias do Meio Ambiente, Habita&ccedil;&atilde;o e Urbanismo, recomendou ao munic&iacute;pio que suspendesse novos licenciamentos para constru&ccedil;&otilde;es na localidade at&eacute; a aprova&ccedil;&atilde;o do novo plano diretor.
+&ldquo;O plano diretor de Ipojuca foi promulgado em 2008, e atualmente n&atilde;o condiz com a realidade do crescimento urbano, al&eacute;m de revelar-se insatisfat&oacute;rio para garantir o desenvolvimento sustent&aacute;vel do munic&iacute;pio com o objetivo de garantir o respeito ao meio ambiente, &agrave; sadia qualidade de vida de seus habitantes e a ocupa&ccedil;&atilde;o justa e razo&aacute;vel de seus espa&ccedil;os&rdquo;, diz a promotora de Justi&ccedil;a M&aacute;rcia Maria Amorim de Oliveira, no texto da recomenda&ccedil;&atilde;o, na qual tamb&eacute;m lembra que o Estatuto da Cidade (Lei n&ordm; 10257/2001), prev&ecirc; que o plano diretor do munic&iacute;pio deve ser revisto, pelo menos, a cada dez anos.
+Ainda segundo a publica&ccedil;&atilde;o, a prefeita de Ipojuca, C&eacute;lia Sales, dever&aacute; realizar, no prazo de 90 dias, um estudo t&eacute;cnico para apurar a capacidade de ocupa&ccedil;&atilde;o em Porto de Galinhas.
+A medida &eacute; necess&aacute;ria diante das atuais condi&ccedil;&otilde;es de saneamento e vias de escoamento do local, tendo em vista a exist&ecirc;ncia de &aacute;reas sens&iacute;veis que possuem especial prote&ccedil;&atilde;o legal em virtude de sua import&acirc;ncia ecol&oacute;gica.
+&ldquo;A legisla&ccedil;&atilde;o municipal vigente, notadamente os dispositivos destinados &agrave; defini&ccedil;&atilde;o do c&oacute;digo de obras e posturas, n&atilde;o define de forma pormenorizada os par&acirc;metros para gabarito das edifica&ccedil;&otilde;es permitindo com tais lacunas o licenciamento de obras com perfis bastante distintos&rdquo;, afirma M&aacute;rcia Amorim, no texto.
+De acordo com a promotora, o Minist&eacute;rio P&uacute;blico de Pernambuco (MPPE) tem recebido diversas manifesta&ccedil;&otilde;es de populares questionando e reclamando das novas obras e dos impactos promovidos por elas.
+Al&eacute;m disso, tramita na Promotoria o Procedimento Administrativo n&ordm; 02302.000.209/2020 para acompanhar as pol&iacute;ticas p&uacute;blicas de ordena&ccedil;&atilde;o na Vila de Porto de Galinhas.
+Foi fixado o prazo de 15 dias para que o munic&iacute;pio informasse sobre o acatamento da recomenda&ccedil;&atilde;o. O n&atilde;o acatamento infundado ou a insufici&ecirc;ncia dos fundamentos apresentados para n&atilde;o acat&aacute;-lo total ou parcialmente poder&aacute; ensejar a ado&ccedil;&atilde;o das medidas judiciais cab&iacute;veis.
+O texto integral da Recomenda&ccedil;&atilde;o pode ser conferido no Di&aacute;rio Oficial Eletr&ocirc;nico do MPPE desta sexta-feira (7).
+
+  
+  LITORAL Em Ipojuca, Porto de Galinhas &eacute; um dos destinos mais aquecidos - FILIPE JORD&Atilde;O/JC IMAGEM
+
+Audi&ecirc;ncia P&uacute;blica
+No &uacute;ltimo dia 15 de dezembro de 2021, foi convocada pela Promotoria de Ipojuca uma audi&ecirc;ncia p&uacute;blica para fomentar a discuss&atilde;o sobre a verticaliza&ccedil;&atilde;o das edifica&ccedil;&otilde;es em Porto de Galinhas, que contou com a participa&ccedil;&atilde;o de representantes da sociedade, do Conselho de Meio Ambiente e da Prefeitura de Ipojuca, vereadores, entre outros. Na ocasi&atilde;o, foram sugeridas pelos presentes a suspens&atilde;o dos licenciamentos de novas obras de constru&ccedil;&otilde;es, e que a Prefeitura de Ipojuca, atrav&eacute;s de seus &oacute;rg&atilde;os de fiscaliza&ccedil;&atilde;o, possa garantir que obras n&atilde;o sejam executadas sem licen&ccedil;a ou fora dos par&acirc;metros das respectivas autoriza&ccedil;&otilde;es.

@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Em recuperação judicial, vai a leilão participação do grupo Queiroz Galvão em lotes do Novo Recife "
+date: 2022-09-29
+tags: jamildo, novo recife
+author: Jamildo Melo
+---
+A 28&ordf; Vara C&iacute;vel da Capital autorizou o leil&atilde;o p&uacute;blico presencial e eletr&ocirc;nico da participa&ccedil;&atilde;o societ&aacute;ria de duas empresas integrantes do grupo empresarial Queiroz Galv&atilde;o, referentes a lotes do projeto Novo Recife Empreendimentos, localizado na Avenida Engenheiro Jos&eacute; Estelita, no Centro do Recife.
+O lance inicial ser&aacute; de R$ 260.520,000. A participa&ccedil;&atilde;o societ&aacute;ria integra o patrim&ocirc;nio de duas empresas do Grupo. O lote em quest&atilde;o na participa&ccedil;&atilde;o societ&aacute;ria tem como propriet&aacute;rio fiduci&aacute;rio o Banco BTG.
+A previs&atilde;o &eacute; que o leil&atilde;o ocorra no dia 4 de novembro e a publica&ccedil;&atilde;o do edital do certame ocorra na pr&oacute;xima semana. As cotas societ&aacute;rias do projeto Novo Recife que v&atilde;o &agrave; leil&atilde;o pertencem &agrave;s empresas Queiroz Galv&atilde;o Desenvolvimento Imobili&aacute;rio (QGDI) e Queiroz Galv&atilde;o Empreendimentos Imobili&aacute;rios LTDA (QGEMP).
+Por sua vez, essas cotas abrangem a participa&ccedil;&atilde;o acion&aacute;ria em tr&ecirc;s empresas que n&atilde;o est&atilde;o na recupera&ccedil;&atilde;o Judicial: Novo Recife Empreendimentos LTDA, Queiroz Galv&atilde;o PE 3 Desenvolvimento Imobili&aacute;rio LTDA e Queiroz Galv&atilde;o PE 14 Desenvolvimento Imobil&aacute;rio LTDA.
+O leil&atilde;o p&uacute;blico foi autorizado no processo 0018004-19.2021.8.17.2001, em tramita&ccedil;&atilde;o no Tribunal de Justi&ccedil;a de Pernambuco (TJPE). A decis&atilde;o determinando a venda da participa&ccedil;&atilde;o societ&aacute;ria no projeto Novo Recife foi assinada, no &uacute;ltimo dia 13 de setembro, pela magistrada titular da unidade, a ju&iacute;za de Direito Adriana Cintra Coelho. O leiloeiro p&uacute;blico oficial Diogo Martins foi nomeado para realizar o certame.
+A venda ocorrer&aacute; por meio de leil&atilde;o p&uacute;blico eletr&ocirc;nico ou presencial por se tratar da forma mais democr&aacute;tica e transparente para a aliena&ccedil;&atilde;o pretendida, em homenagem aos princ&iacute;pios da transpar&ecirc;ncia e igualdade entre os credores, como prev&ecirc; a Lei n&ordf; 11.101/2005.
+De acordo com a decis&atilde;o judicial da 28&ordf; Vara C&iacute;vel da Capital, o resultado da venda ser&aacute; destinado a liquida&ccedil;&atilde;o dos cr&eacute;ditos com garantias reais incidentes sobre as participa&ccedil;&otilde;es societ&aacute;rias detidas pelo credor BTG Pactual. Na hip&oacute;tese de saldo remanescente, este servir&aacute; ao incremento de caixa do grupo Queiroz Galv&atilde;o para fazer jus &agrave;s obriga&ccedil;&otilde;es da recupera&ccedil;&atilde;o judicial.
+O leil&atilde;o p&uacute;blico tamb&eacute;m teve a aprova&ccedil;&atilde;o em assembleia da maioria dos credores do Grupo. &ldquo;Como houve a aquiesc&ecirc;ncia da maioria dos credores com direito a voto em assembleia, nada h&aacute; de ilegal quanto a venda pretendida, havendo justificativa para a aliena&ccedil;&atilde;o, como forma de fomentar as atividades do grupo empresarial, considerando, ainda, que h&aacute; terceiro interessado em adquirir as participa&ccedil;&otilde;es societ&aacute;rias&rdquo;, escreveu a ju&iacute;za Adriana Cintra.
+
+  
+  O Projeto Novo Recife tem compromisso de investir R$ 90 milh&otilde;es em obras de mitiga&ccedil;&atilde;o.  - DIVULGA&Ccedil;&Atilde;O
+
+Ampla divulga&ccedil;&atilde;o
+O edital referente ao leil&atilde;o tamb&eacute;m ser&aacute; amplamente divulgado em jornais de grande circula&ccedil;&atilde;o e na rede mundial de computadores, com todas as informa&ccedil;&otilde;es &uacute;teis, possibilitando a ampla publicidade do ato, especialmente nos locais onde o grupo empresarial possui estabelecimentos.

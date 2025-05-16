@@ -1,0 +1,201 @@
+---
+layout: post
+title: "De Atravessando a Nado a He-Man, veja os nomes mais diferentes dos candidatos no Recife"
+date: 2016-09-14
+tags: candidatos,Nova Jerusalém,Recife,Senado
+author: None
+---
+Como você escolhe o seu candidato a vereador? Pelas propostas, pelo partido, pela atuação na Câmara? O nome influencia o seu voto? Você considerando isso importante na hora da eleição ou não, alguns postulantes no Recife chamam atenção pela, digamos, peculiaridade na forma como aparecem na urna. Veja os mais diferentes na disputa por uma vaga no legislativo da capital pernambucana:
+
+                        
+                            
+                                
+                                    
+                                    
+                                
+                                galeria5 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria4 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria2 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria13 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria1 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria12 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria11 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria10 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria3 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria9 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria6 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria7 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria23 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria22 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria8 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria21 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria20 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria19 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria18 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria24 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                tia da tropa - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria17 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria16 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria15 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                galeria14 - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                seu roberto - 
+                            
+                            
+                                
+                                    
+                                    
+                                
+                                suely - 
+                            
+                        
+» Acompanhe a cobertura de eleições do SJCC

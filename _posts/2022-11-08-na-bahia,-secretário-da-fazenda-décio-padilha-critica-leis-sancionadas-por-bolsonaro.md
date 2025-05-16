@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Na Bahia, secretário da Fazenda Décio Padilha critica leis sancionadas por Bolsonaro"
+date: 2022-11-08
+tags: jamildo, reforma tributária, Bolsonaro, Décio Padilha
+author: Jamildo Melo
+---
+O secret&aacute;rio da Fazenda de Pernambuco e presidente do Comsefaz, D&eacute;cio Padilha, participou da 19&ordf; edi&ccedil;&atilde;o Congresso Nacional do Fisco Estadual e Distrital &ndash; Conafisco. No evento, aproveitou para criticar ao menos duas leis sancionadas pelo presidente Bolsonaro, que tirou receitas dos Estados.
+"... falo aqui sobre os momentos ao longo da hist&oacute;ria que contribu&iacute;ram para o desequil&iacute;brio do pacto federativo e destaco o cen&aacute;rio fiscal ca&oacute;tico a ser enfrentado pelos estados no ano de 2023, devido &agrave;s duras mudan&ccedil;as estruturais realizadas recentemente sobre o ICMS, por meio da LC 192/2022 e LC 194/2022", afirmou. A primeira previa a redu&ccedil;&atilde;o do ICMS dos estados sobre os combust&iacute;veis. A segunda, previa a redu&ccedil;&atilde;o do imposto sobre a conta de energia el&eacute;trica.
+Padilha integrou a mesa de abertura, que teve o tema &ldquo;Desafios da Fiscaliza&ccedil;&atilde;o Tribut&aacute;ria Subnacional - possibilidade de reforma do sistema tribut&aacute;rio&rdquo;. O painel tamb&eacute;m contou com a presen&ccedil;a do professor Guilherme Mello (IE/Unicamp), do economista Igor Rocha (FIESP), tendo o professor Eduardo Fagnani (IE/Unicamp) como moderador dos debates.
+O presidente do Comsefaz disse que a reforma tribut&aacute;ria no Brasil &eacute; essencial para simplificar e modernizar o sistema tribut&aacute;rio nacional.
+&ldquo;O Brasil necessita de uma reforma tribut&aacute;ria que altere todo nosso sistema tribut&aacute;rio, tornando-o mais simples, diminuindo a quantidade de impostos e, sobretudo, que seja mais justo para as classes mais baixas, aliviando a tributa&ccedil;&atilde;o sobre o consumo e concentrando mais na renda e no patrim&ocirc;nio, uma reforma que alinha o Brasil com os sistemas tribut&aacute;rios dos pa&iacute;ses mais desenvolvidos do mundo &rdquo; afirmou o presidente do Comsefaz.
+O Congresso &eacute; uma realiza&ccedil;&atilde;o da Federa&ccedil;&atilde;o Nacional do Fisco Estadual e Distrital &ndash; Fenafisco, em parceria com o Sindicato dos Servidores da Fazenda do Estado da Bahia &ndash; Sindsefaz e este ano tem os trabalhos norteados pelo tema: Tributa&ccedil;&atilde;o, Justi&ccedil;a Social e Inova&ccedil;&atilde;o &ndash; Por um pa&iacute;s menos desigual. O evento est&aacute; sendo realizado no Costa do Sau&iacute;pe Resort, na cidade de Mata de S&atilde;o Jo&atilde;o-BA e se estende at&eacute; o dia 10 de novembro.

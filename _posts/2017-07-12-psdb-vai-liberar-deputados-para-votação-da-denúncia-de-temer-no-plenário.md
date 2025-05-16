@@ -1,0 +1,22 @@
+---
+layout: post
+title: "PSDB vai liberar deputados para votação da denúncia de Temer no plenário"
+date: 2017-07-12
+tags: deputados,Michel Temer,Plenário Virtual,PSDB,votação
+author: None
+---
+Estadão Conteúdo - A bancada do PSDB na Câmara dos Deputados vai liberar o voto dos 46 parlamentares da legenda na análise em plenário da admissibilidade da denúncia da Procuradoria-Geral da República contra o presidente Michel Temer (PMDB) pelo crime de corrupção passiva.
+A avaliação do líder do partido, deputado Ricardo Tripoli (SP), é que a maioria se posicionará contra o governo. A decisão será oficializada após a votação da admissibilidade na Comissão de Constituição de Justiça (CCJ) da Câmara.
+"O PSDB está dividido. Por isso, não há como fechar questão. Eu tenho convicção do meu voto pela admissibilidade da denúncia contra o presidente. Ninguém vai mudar minha convicção", afirmou o deputado Pedro Cunha Lima (PSDB-PB).
+Segundo o placar do jornal O Estado de S. Paulo, o PSDB contabiliza 15 votos a favor da admissibilidade da denúncia, 3 contra e 3 indecisos - 28 parlamentares não responderam. O cenário para Temer também é desfavorável na Comissão de Constituição de Justiça. Integrante do PSDB na comissão, o deputado Jutahy Junior (BA) declarou ontem voto pela aceitação da denúncia.
+Com isso, a expectativa é de que o placar dos tucanos na CCJ seja de 6 votos a 1 contra o Planalto - são sete os membros do PSDB na colegiado. O único que deve ficar do lado de Temer e votar pelo não prosseguimento do pedido da PGR é o deputado Paulo Abi-Ackel (MG), aliado do senador Aécio Neves (PSDB-MG). Até a divulgação do voto de Jutahy Junior, as contas indicavam que o PSDB registraria 5 votos contra e 2 a favor de Temer.
+Mesmo com sinais cada vez mais claros de que os tucanos votarão majoritariamente contra o governo na Câmara, o Palácio do Planalto decidiu não fazer "movimentos bruscos" em relação à sigla. Segundo auxiliares de Temer, as quatro pastas comandadas pelo PSDB serão mantidas - Direitos Humanos, Cidades, Secretaria de Governo e Relações Exteriores.
+Os tucanos deram ainda outros sinais de que a participação na gestão Temer está com os dias contados. Em evento no interior de São Paulo, o governador Geraldo Alckmin, que apoiava a permanência do PSDB no governo, disse nesta terça-feira, 11, que o partido está em busca de convergência para deixar a base do peemedebista, pois "não precisa ter pessoas no governo".
+"Apoio total a todos os projetos para a retomada do emprego e renda, mas cada vez vai ficando mais claro que não há necessidade de o partido ter pessoas no governo, por mais gabaritadas que sejam, por mais preparadas que sejam para poder ajudar o Brasil e o povo brasileiro nesse momento difícil. Acho que (o PSDB) caminha para isso", afirmou o governador.
+Discordância
+Aliado de Alckmin, o prefeito João Doria se posicionou de outra forma. Questionado sobre a declaração do governador, Doria disse que a reunião dos tucanos em São Paulo, na segunda-feira (10), no Palácio dos Bandeirantes, não deliberou sobre o rompimento com o governo Temer.
+"Embora eu respeite evidentemente a posição do governador Geraldo Alckmin, a decisão é continuar avaliando dia a dia as questões do governo Temer, compreendendo também a posição daqueles que são ministros de Estado", disse o prefeito. Ainda segundo Doria, o partido entende que haverá um afastamento "gradual" da gestão para não prejudicar o País.
+"Temos que compreender que a política econômica, liderada pelo ministro Henrique Meirelles, ministro da Fazenda, vem produzindo até aqui bons resultados, sobretudo diante das circunstâncias políticas do País. E é preciso preservar isso", afirmou o prefeito.
+Já o governador do Paraná, Beto Richa, reforçou ontem o coro dos que defendem o desembarque. Para ele, a proporção de votos pela admissibilidade da denúncia contra Temer deve se repetir no plenário da Câmara. "É inegável que o número de descontentes com o governo aumentou. E a situação do governo deteriorou-se."
+FHC
+Em entrevista ao programa Roberto D’Ávila, da GloboNews, na noite desta terça-feira, o ex-presidente Fernando Henrique Cardoso disse que a relação entre Temer e o PSDB fica "muito difícil" a partir do momento em que os deputados tucanos votarem pela aceitação da denúncia da PGR contra o presidente. (Colaboraram Gilberto Amendola, José Maria Tomazela e João Paulo Nucci)

@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Deputada estadual diz que servidores estão 'sem condições de pagar dívidas com cartão de crédito'. João Paulo diz que bancos 'são sanguessugas'"
+date: 2021-04-09
+tags: Bancos,Cartão Cidadão,condições,deputada,Dívidas,joão d,Paulo,servidores públicos,transporte interestadual
+author: None
+---
+Do site oficial da Alepe
+Em discurso na Assembleia Legislativa nesta quinta (8), a deputada Teresa Leitão (PT) abordou a situação dos servidores estaduais que estão sem condições de pagar dívidas contraídas com cartão de crédito com mínimo consignável. Ela propôs à Secretaria Estadual de Administração (SAD) e à Procuradoria Geral do Estado (PGE) que ajudem a negociar a questão, que já gerou quase mil ações judiciais. “Por mais de 49 meses, descontos foram feitos de forma ilegal”, sustentou.
+Conforme a parlamentar explicou, o problema remonta à aquisição em 2003, pelo Itaú, da carteira de créditos do Banco BNL do Brasil, envolvendo 25.927 servidores ativos e aposentados. De acordo com a petista, falhas nesse processo prejudicaram os funcionários, os quais procuraram a SAD, gestora das folhas de pagamento.
+Como resultado de reuniões entre a Secretaria e a Central Única dos Trabalhadores (CUT), o Poder Executivo regulamentou, em 2011, a averbação de consignações em folha de pagamento. “Após várias tratativas, o banco Itaú firmou compromisso de oferecer descontos nos débitos dos consumidores e de financiar, com juro de 1% ao mês, o saldo remanescente, com prazo estipulado em 36 meses – de janeiro de 2013 a dezembro de 2015”, prosseguiu.
+Porém, segundo Teresa, o plano de ação não foi cumprido e o banco, “de má-fé e sem aviso”, após os dois primeiros meses de 2016, voltou a fazer descontos nos contracheques. “Alguns servidores perceberam, outros não. Isso levou, a partir de março daquele ano, à constituição de mil ações judiciais, das quais 800 estão em tramitação junto aos juizados especiais e com posicionamentos em segunda instância favoráveis aos devedores”, disse.
+A deputada enfatizou que os funcionários públicos procuraram a Alepe pedindo intermediação junto ao Governo do Estado em busca de uma solução. “A Casa vai entrar nessa articulação para conseguir, de forma suprapartidária, interferir para resolver essa questão”, assinalou.
+Em aparte, o deputado Alberto Feitosa (PSC) destacou que cerca de 40% dos servidores do Estado que enfrentam esse problema são policiais militares, bombeiros e funcionários civis das duas corporações. Ele propôs uma audiência pública no âmbito da Comissão de Administração para discutir o assunto. Por sugestão do líder do Governo, deputado Isaltino Nascimento (PSB), optou-se por realizar, antes disso, uma reunião de trabalho com a PGE, a SAD, a Secretaria de Defesa Social e as centrais sindicais.
+Para o deputado João Paulo (PCdoB), o episódio demonstra “a ânsia dos bancos em tirar o máximo que podem dos trabalhadores”.
+“São verdadeiros sanguessugas da classe trabalhadora brasileira”, considerou o comunista.

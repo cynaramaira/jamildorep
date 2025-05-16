@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Sem apoio de Raquel, Rodrigo Pinheiro busca seu caminho para reeleição. Humberto Costa admite aliança"
+date: 2023-07-25
+tags: jamildo, Eleições 2024
+author: Jamildo Melo
+---
+Em meio aos v&aacute;rios encontros e reuni&otilde;es as articula&ccedil;&otilde;es pol&iacute;ticas est&atilde;o a todo vapor. Como alguns pol&iacute;ticos gostam de dizer, as elei&ccedil;&otilde;es 2024 est&atilde;o logo ali, os acordos j&aacute; come&ccedil;am a ser feitos mais de um ano antes do pleito. Em Caruaru, n&atilde;o &eacute; diferente e os bastidores est&atilde;o em ebuli&ccedil;&atilde;o, com encontros que outrora seriam imposs&iacute;veis de se imaginar.
+De acordo com fontes locais, o que chama a aten&ccedil;&atilde;o mesmo &eacute; a possibilidade da governadora Raquel Lyra (PSDB) n&atilde;o apoiar o atual prefeito de Caruaru, Rodrigo Pinheiro (PSDB), seu ex-vice, em 2024.
+Pensando nessa possibilidade ou j&aacute; se antecipando, o tucano decidiu levar para sua gest&atilde;o o PSB &ndash; principal advers&aacute;rio de Raquel &ndash; e o PT, deixando a governadora ainda mais insatisfeita com Pinheiro.
+Nesta segunda-feira (24), o senador Humberto Costa (PT), disse em entrevista ao programa Al&eacute;m da Not&iacute;cia, da R&aacute;dio Jornal Caruaru, que o prefeito Rodrigo Pinheiro poder&aacute; trocar o PSDB pelo PV e quem saber ser o candidato da federa&ccedil;&atilde;o, na cidade do Agreste.
+&ldquo;Eu falo do meu caso, eu tenho uma excelente rela&ccedil;&atilde;o com o prefeito Rodrigo tamb&eacute;m, e &eacute; pouco prov&aacute;vel que a gente esteja em uma alian&ccedil;a com ele, mas o pessoal fala que ele vai para o PV, o PV est&aacute; na nossa federa&ccedil;&atilde;o, ent&atilde;o tem muita coisa para rolar. Vamos fazer uma pesquisa para sentir qual &eacute; o cen&aacute;rio dos candidatos do PT e dos demais tamb&eacute;m. N&oacute;s, como eu disse, n&atilde;o podemos de forma alguma tomar uma decis&atilde;o sem ter tamb&eacute;m uma conversa com o PDT, e temos que acompanhar esse movimento que o prefeito pode fazer&rdquo;, disse Humberto Costa.
+O prefeito Rodrigo Pinheiro n&atilde;o falou ainda sobre essa possibilidade de mudan&ccedil;a de partido. Estamos ainda em julho de 2023, mas os bastidores pol&iacute;ticos est&atilde;o dando muita pauta e os encontros e reuni&otilde;es seguir&atilde;o ainda sendo intensificados.
+
+			
+		
+			Rodrigo Pinheiro, em evento em Caruaru - Divulga&ccedil;&atilde;o
+		
+	
+Caruaru &eacute; o primeiro munic&iacute;pio do Nordeste a celebrar conv&ecirc;nio com o Instituto internacional PMI
+O prefeito de Caruaru, Rodrigo Pinheiro (PSDB), assinou um Termo de Fomento com o Project Management Institute (PMI) nesta segunda-feira (24), durante a 2&ordf; edi&ccedil;&atilde;o do PM Day Experience, no Centro de Conven&ccedil;&otilde;es de Caruaru. O objetivo &eacute; estabelecer uma parceria entre a Prefeitura de Caruaru e o Instituto para promover o aprimoramento da Gest&atilde;o de projetos no munic&iacute;pio, por meio da participa&ccedil;&atilde;o dos colaboradores da prefeitura no PM Day Experience e no Programa de inser&ccedil;&atilde;o junto ao PMI-PE.
+Com a celebra&ccedil;&atilde;o do conv&ecirc;nio, Caruaru se torna pioneira em Gest&atilde;o, Projetos e Lideran&ccedil;a no Nordeste e tamb&eacute;m no pa&iacute;s. No Brasil, apenas tr&ecirc;s estados possuem conv&ecirc;nio com a institui&ccedil;&atilde;o internacional: Rio Grande do Sul, Rio de Janeiro e Esp&iacute;rito Santo. &ldquo;Somos o primeiro munic&iacute;pio do Nordeste e tamb&eacute;m do Brasil a celebrar esse importante conv&ecirc;nio com o Instituto internacional PMI. &Eacute; mais um compromisso de nossa Gest&atilde;o com o equil&iacute;brio fiscal e com a melhoria nas entregas para a popula&ccedil;&atilde;o da cidade&rdquo;, declarou o prefeito Rodrigo Pinheiro.
+Andr&eacute; Cavalcanti de Albuquerque, presidente do PMI Pernambuco, afirmou que a assinatura desse conv&ecirc;nio &eacute; um marco n&atilde;o s&oacute; para Caruaru, como tamb&eacute;m para o PMI. &ldquo;A Prefeitura de Caruaru j&aacute; re&uacute;ne uma equipe diferenciada e esse corpo t&eacute;cnico agora com o apoio do PMI alcan&ccedil;ar&aacute; mais &ecirc;xito em suas entregas. Nossa expectativa &eacute; proporcionar um ganho maior em velocidade e qualidade nas entregas&rdquo;, disse.
+M&aacute;rcio Gomes, presidente do Chapter/PMI PB, ressaltou que o maior beneficiado desse conv&ecirc;nio &eacute; a cidad&atilde; e o cidad&atilde;o contribuinte. &ldquo;Queremos que a popula&ccedil;&atilde;o receba projetos em prazos menores do que o anunciado e que o or&ccedil;amento aprovado n&atilde;o ultrapasse seu teto limite, ou seja, efic&aacute;cia na gest&atilde;o&rdquo;, afirmou.

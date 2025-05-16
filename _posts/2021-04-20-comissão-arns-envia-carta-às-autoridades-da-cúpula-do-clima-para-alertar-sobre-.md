@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Comissão Arns envia carta às autoridades da Cúpula do Clima para alertar sobre a realidade da política ambiental no Brasil"
+date: 2021-04-20
+tags: brasil,Carta,clima,comissão mista,crime ambiental,Política
+author: None
+---
+A Comissão Arns - Comissão de Defesa dos Direitos Humanos Dom Paulo Evaristo Arns -, organização não governamental brasileira que reúne 22 defensores dos direitos humanos no país e também no exterior, incluindo vários ex-ministros dos governos, encaminhará às autoridades da Cúpula do Clima uma carta aberta.
+O texto, assinado pelo presidente da entidade José Carlos Dias, ex-ministro da justiça, alerta as lideranças internacionais sobre a distância entre o que as autoridades brasileiras divulgam hoje e a realidade do país com o aumento do desmatamento da Amazônia, os riscos para os povos indígenas, os efeitos da mineração em áreas de proteção ambiental, entre outros problemas.
+O texto aponta as condições do Brasil para enfrentar os desafios políticos, econômicos e legislativos da proteção do meio ambiente e também o protagonismo das questões ambientais na agenda mundial.
+Mas, sustenta que essas conquistas vem sendo revertidas pelo governo de Jair Bolsonaro, que coloca em dúvida a realidade da mudança climática, ameaça a retirada do país do Acordo de Paris, questiona evidências científicas, demoniza ambientalistas e ativistas de direitos humanos, desdenha dos povos indígenas e confraterniza publicamente com praticantes de diferentes ilícitos.
+"No plano da ação, o governo vem enfraquecendo sistematicamente os órgãos de gestão ambiental. Revisou regulamentos, flexibilizou normas, revogou dispositivos legais, alterou a composição de órgãos públicos encarregados de monitoramento e aplicação de multas, substituiu chefias competentes por pessoas sem qualificação apropriada - quando não, por sócios da devastação -, perseguiu funcionários, reduziu o orçamento destinado ao meio ambiente [...] Entre os projetos de lei em tramitação no Congresso que o governo considera prioritários, quatro enfraquecem, de diferentes maneiras, a proteção ao meio ambiente, com graves consequências para a Amazônia e para o modo de vida das populações indígenas", afirmam na carta.
+A Comissão Arns disse acreditar que o meio ambiente tem que ser defendido por todos, como um direito humano.
+"Nesse sentido, a sua manifestação apresenta um retrato mais realista do que está acontecendo no Brasil, no que diz respeito à preservação dos recursos naturais e das comunidades tradicionais, e cobramos dos representantes do país nesta conferência compromissos claros, prazos definidos, metas precisas e métricas para aferir resultados".

@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Queiroz Galvão também é investigada pela Polícia Federal"
+date: 2007-05-19
+tags: Galvão Bueno,Polícia Federal,Wolney Queiroz
+author: None
+---
+Da Folha de S. Paulo
+Nas 65 p&aacute;ginas em que resume as investiga&ccedil;&otilde;es&nbsp;da Pol&iacute;cia Federal e em que ordena a pris&atilde;o de&nbsp;48 suspeitos na Opera&ccedil;&atilde;o Navalha, a ministra do Superior Tribunal&nbsp;de Justi&ccedil;a Eliana Calmon descreve&nbsp;circunst&acirc;ncias que levantam suspeitas contra&nbsp;outras tr&ecirc;s empreiteiras, al&eacute;m da Gautama.
+O relato mais contundente se refere &agrave;&nbsp;pernambucana Queiroz Galv&atilde;o, hoje com sede no&nbsp;Rio de Janeiro. Segundo a PF, a empreiteira&nbsp;teria entrado em acordo com a Gautama para&nbsp;vencer uma licita&ccedil;&atilde;o viciada no Maranh&atilde;o, de R$&nbsp;153 milh&otilde;es, para pavimenta&ccedil;&atilde;o da BR-402.
+&quot;Ap&oacute;s complicadas negocia&ccedil;&otilde;es, foi publicado&nbsp;edital de licita&ccedil;&atilde;o no dia 8 de novembro de 2006, figurando como habilitada a construtora&nbsp;Queiroz Galv&atilde;o, sendo exclu&iacute;da a Gautama dentro&nbsp;de uma acomoda&ccedil;&atilde;o j&aacute; prevista pela organiza&ccedil;&atilde;o,&nbsp;sendo certo que a vencedora sempre esteve como&nbsp;parceira da Gautama&quot;, diz o relato.
+&quot; (H&aacute;) ind&iacute;cios de que a minuta do conv&ecirc;nio&nbsp;tenha sido elaborada por Geraldo Magela (ent&atilde;o&nbsp;assessor do governo do Maranh&atilde;o) e por Carlos&nbsp;Oliveira, representante da construtora Queiroz&nbsp;Galv&atilde;o&quot;, diz o texto.
+O respons&aacute;vel em dar a palavra final sobre o&nbsp;contrato seria o procurador-geral do Maranh&atilde;o&nbsp;na ocasi&atilde;o, Ulisses C&eacute;sar Martins de Souza,&nbsp;preso pela PF. &quot;&Agrave;s v&eacute;speras da celebra&ccedil;&atilde;o do&nbsp;conv&ecirc;nio, o procurador-geral de Justi&ccedil;a&nbsp;comunicou a Vicente Coni (representante da&nbsp;Gautama, tamb&eacute;m preso) que pretendia direcionar&nbsp;a licita&ccedil;&atilde;o para outra empresa, a construtora&nbsp;Sutelpa (do Rio Grande do Sul), altera&ccedil;&atilde;o&nbsp;devida ao n&atilde;o-cumprimento dos compromissos por&nbsp;parte da organiza&ccedil;&atilde;o criminosa (pagamento de propina)&quot;, diz o relato de Calmon.
+Segundo grava&ccedil;&otilde;es, Vicente Coni comunica ao&nbsp;chefe, Zuleido Veras, que o procurador-geral&nbsp;&quot;quer fazer uma sacanagem, quer fazer um novo&nbsp;neg&oacute;cio&quot;. &quot;&Eacute; um Estado sem dono&quot;, diz Veras. 
+Apesar disso, o dono da Gautama teria enviado&nbsp;emiss&aacute;rios para contornar a situa&ccedil;&atilde;o. No final,&nbsp;acaba vencendo a Queiroz Galv&atilde;o, supostamente&nbsp;em conluio com a Gautama.
+J&aacute; a men&ccedil;&atilde;o &agrave; construtora Cogente, do interior de S&atilde;o Paulo, se refere a um contrato de R$ 38 milh&otilde;es para a rede de esgoto em Sinop (MT) feito pela prefeitura local. &quot;A realiza&ccedil;&atilde;o dos servi&ccedil;os seria feita pelo cons&oacute;rcio Gautama/Cogente, conforme contrato firmado com a Prefeitura de Sinop&quot;, diz o texto do STJ: &quot;Havia certeza por parte do grupo de que a execu&ccedil;&atilde;o da obra j&aacute; estava dirigida &agrave; empresa Gautama&quot;. 
+O outro lado
+As empreiteiras citadas na investiga&ccedil;&atilde;o da Pol&iacute;cia Federal sobre fraudes em concorr&ecirc;ncias p&uacute;blicas n&atilde;o quiseram se manifestar. A Folha entrou em contato ontem &agrave; tarde (sexta, 18) com a Queiroz Galv&atilde;o e enviou perguntas a ela sobre as acusa&ccedil;&otilde;es da PF. At&eacute; o fechamento da edi&ccedil;&atilde;o deste s&aacute;bado (19), a assessoria de imprensa da empresa n&atilde;o havia respondido.
+A construtora Cogente tamb&eacute;m foi procurada. Uma funcion&aacute;ria da diretoria, que se identificou apenas como Gisele, disse que a empresa n&atilde;o iria se manifestar sobre o caso.
+A terceira empreiteira mencionada, a ga&uacute;cha Sutelpa, n&atilde;o foi localizada&nbsp;pela reportagem. 

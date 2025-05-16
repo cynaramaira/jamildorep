@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Defesa pede liberdade de Eduardo Cunha a tribunal em Porto Alegre"
+date: 2016-10-24
+tags: defesa,EDUARDO CUNHA,liberdade,Porto Alegre,tribunal
+author: None
+---
+Da ABr - A defesa do deputado cassado Eduardo Cunha entrou com um pedido de liberdade no Tribunal Regional Federal da 4ª região (TRF4), em Porto Alegre. O pedido foi entregue nesta segunda-feira (24) e a defesa pede que seja concedida uma medida liminar para suspender os efeitos da prisão preventiva de Cunha.
+Eduardo Cunha foi preso preventivamente no dia 19, em Brasília, pela Polícia Federal (PF), e levado para a Superintendência da PF, em Curitiba. Na ação que pede a liberdade do ex-presidente da Câmara dos Deputados, os advogados rebatem os argumentos usados pelo Ministério Público Federal para pedir a prisão.
+A defesa sustenta que Cunha estava respondendo a um processo no Supremo Tribunal Federal (STF) e que um pedido anterior para prisão, feito pela Procuradoria-Geral da República (PGR), foi negado pelo ministro Teori Zavascki. Para a defesa, a atual prisão o ex-deputado afronta o que foi decidido pelo STF e alega que não ocorreu nenhum fato novo para justificar a detenção.
+“Na verdade, os fundamentos utilizados para decretar a prisão preventiva do paciente, com a devida vênia, são exatamente os mesmos que, anteriormente, foram considerados insuficientes pelo STF para o deferimento de idêntico pedido de prisão preventiva. Não há, ademais, notícias de que, enquanto permaneceu solto, houvesse o paciente se furtado ao processo penal, reincidido em condutas criminosas outras ou tentado empreender fuga”, diz a ação.
+Outra alegação da defesa é que ao decretar a prisão, Moro não aponta “nenhuma conduta do paciente [Cunha] que tenha atrapalhado as investigações desenvolvidas no processo que tramita perante a 13ª Vara Federal de Curitiba/PR”.
+“Outrossim, no decreto prisional, não se narra nenhuma conduta investigada no inquérito principal por meio da qual se possa afirmar que a liberdade do acusado colocaria em risco a ordem pública, a aplicação da lei penal, ou a instrução processual”, diz a defesa.
+Entre os argumentos utilizados para justificar o pedido de prisão de Cunha, a força-tarefa de procuradores da Lava Jato afirmou que a liberdade do ex-deputado representava risco às investigações. Segundo os procuradores, existem evidência de que Cunha possui outras contas no exterior e que essas ainda não foram identificadas.
+Na decisão que permitiu a prisão do ex-deputado, Moro alega que enquanto não for realizado o rastreamento completo, “há risco de dissipação do produto do crime, o que inviabilizará a sua recuperação”. Para a defesa, a decretação de prisão para evitar a dissipação do patrimônio não tem previsão legal e que outras medidas poderiam ser usadas.
+A defesa rebateu também a alegação do MPF de que Cunha poderia fugir do país, já que possui dupla nacionalidade. “Da mesma forma, o tão-só fato de o paciente ter dupla cidadania não é circunstância apta a autorizar a utilização da grave medida de prisão preventiva. É fato que a decisão judicial combatida não trouxe indícios concreto de que o paciente se evadiria do país”, diz a defesa.
+Além do pedido de liberdade na liminar, a defesa de Cunha pede ainda, no mérito da ação, a anulação da prisão e que o ex-deputado responda o processo e liberdade.

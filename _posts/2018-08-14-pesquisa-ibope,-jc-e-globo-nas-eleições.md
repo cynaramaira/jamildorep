@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Pesquisa Ibope, JC e Globo nas eleições"
+date: 2018-08-14
+tags: eleições,globo,Ibope,pesquisa
+author: None
+---
+O Jornal do Commercio formalizou encomenda ao Ibope, em parceria com a Rede Globo, para divulgação de pesquisas eleitorais este ano em Pernambuco. Serão seis rodadas, com intenções de votos para governador e senador, além da avaliação do governo Paulo Câmara (PSB).
+Além do JC em sua versão impressa e da TV Globo, os resultados das pesquisas serão veiculados na Rádio Jornal Recife, Caruaru, Garanhuns, Petrolina, Pesqueira e Limoeiro. Também no Portal NE10 e demais sites ao Sistema Jornal do Commercio de Comunicação, e G1 Pernambuco, da Rede Globo.
+"É uma parceria que reúne marcas fortes, reconhecidas pela opinião pública, com história de tradição de credibilidade”, diz o diretor de redação do JC, Laurindo Ferreira. “No processo democrático e, principalmente, em ano eleitoral, pesquisas de intenção de voto são um capítulo importante. O foco é sempre manter os nossos consumidores de informação atualizados”, acrescentou.
+Para Jô Mazzarolo, diretora de Jornalismo da Rede Globo Nordeste, a parceria é importante porque um veículo acaba completando o outro. “No Jornal do Commercio estarão muitos dos detalhes da pesquisa que na televisão nós não temos tempo para divulgar”, acrescenta a jornalista. “Quem ganha no final das contas é o eleitor de Pernambuco, que terá à disposição mais informações para fazer a sua escolha”, acrescenta Jô.
+O Ibope, anteriormente Instituto Brasileiro de Opinião Pública e Estatística, é uma das maiores empresas de pesquisa de mercado da América Latina. Fundado em 1942, fornece um amplo conjunto de informações e estudos sobre opinião pública, intenção de voto, consumo de informação, marcas, comportamento e mercado no Brasil e em mais 14 países. De tão forte, o nome da empresas virou sinônimo de audiência e prestígio.
+Desde o começo deste mês, mantendo o que já é uma tradição, as empresas do Sistema Jornal do Comunicação têm levado aos seus leitores, ouvintes, telespectadores, internautas e seguidores um conteúdo integrado sobre as eleições deste ano. Temas como o papel dos legislativos, os desafios do Estado brasileiro, além de pautas como segurança, saúde, educação e infraestrutura estão na agenda de todos os veículos, mais sabatinas e debates.
+“Estamos com foco nas demandas dos eleitores. O nosso olhar e abordagem têm sido para temas que fazem parte do dia a dia dos nossos seguidores, de maneira a possibilitar senso crítico, fundamental para as escolhas que todos nós faremos”, diz Beatriz Ivo, diretora de Jornalismo da Rádio e TV Jornal.

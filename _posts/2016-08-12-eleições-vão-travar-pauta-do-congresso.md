@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Eleições vão travar pauta do Congresso"
+date: 2016-08-12
+tags: Congresso,eleições,Galvão Bueno
+author: None
+---
+Estadão Conteúdo - Enquanto o Ministério da Fazenda prega celeridade no ajuste fiscal, o Congresso Nacional retarda o encaminhamento da pauta considerada prioritária para a retomada da economia. A expectativa é que não haja sessões deliberativas na semana que vem. Além disso, lideranças partidárias articulam para que o plenário funcione para votações apenas às segundas e terças-feiras nas duas últimas semanas deste mês. Em setembro, os trabalhos seriam novamente interrompidos, dessa vez para a campanha eleitoral, conforme acordo do presidente da Câmara, Rodrigo Maia (DEM-RJ), com líderes dos partidos.
+Pelo calendário acertado pela liderança do governo na Câmara, a única oportunidade de votação de matérias da pauta econômica seria nas duas últimas semanas de agosto, quando poderia ser finalizada a votação do projeto da renegociação das dívidas dos Estados com a União. Também pode se tentar a votação do projeto que retira a obrigação legal de a Petrobras liderar todos os investimentos no pré-sal, porém sem garantia de que de fato entre na agenda.
+Para setembro, a única pauta prevista para o plenário da Câmara é o processo de cassação do deputado afastado Eduardo Cunha (PMDB-RJ), marcado para o dia 12.
+O acordo deve atrasar a tramitação da Proposta de Emenda à Constituição (PEC) que estabelece teto para os gastos públicos da União, principal aposta do ministro da Fazenda, Henrique Meirelles, para a retomada da confiança na economia. A PEC teve sua admissibilidade aprovada na última quarta-feira, na Comissão de Constituição e Justiça (CCJ) da Câmara, e seguiu para uma comissão especial, que terá até 40 sessões para discutir o mérito da proposta.
+Maia prometeu a Meirelles que a discussão no colegiado duraria até as eleições e que a matéria poderia ser votada em dois turnos em plenário entre o fim de outubro e começo de novembro. Esses prazos, porém, dificilmente serão seguidos. Isso porque, sem votações no plenário em setembro, deputados não devem estar em Brasília para participar da discussão do mérito na comissão. A matéria pode acabar chegando no Senado somente em dezembro, adiando sua aprovação para 2017.
+Os trabalhos no Congresso foram retomados há pouco mais de uma semana, depois que os parlamentares passaram parte do mês de julho em "recesso branco".

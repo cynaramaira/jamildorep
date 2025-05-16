@@ -1,0 +1,12 @@
+---
+layout: post
+title: "De olho em 2018, Alckmin recebe Paulo Câmara e Geraldo Julio nesta quarta"
+date: 2017-07-26
+tags: Caso Banestado,eleições2018,geraldo Alckmin,Geraldo Julio,Paulo Câmara
+author: None
+---
+Estadão Conteúdo - O governador paulista Geraldo Alckmin (PSDB) tem encontro na noite desta quarta-feira (26), com a cúpula do PSB, em mais um movimento na busca de aliados para desenhar sua candidatura à presidência em 2018. Na segunda-feira (24), Alckmin se reuniu com as principais lideranças do Democratas, partido que também tenta se fortalecer justamente com o assédio aos políticos do PSB.
+A reunião desta quarta, às 19 horas, no Palácio dos Bandeirantes, consta na agenda de Alckmin como um evento no qual ele o governador do Distrito Federal, Rodrigo Rollemberg, do PSB, assinarão uma parceria para combater uma das piores crises hídricas da história de Brasília. A parceria prevê que a Sabesp ceda equipamentos para a Companhia de Saneamento Ambiental do Distrito Federal (Caesb) ampliar o abastecimento por meio de transposição de recursos hídricos, como a ocorrida no Sistema Cantareira em 2014.
+Segundo o governador paulista, além de Rollemberg participarão do encontro o presidente Nacional do PSB, Carlos Siqueira, o deputado federal Beto Albuquerque (PSB-RS), o governador de Pernambuco, Paulo Câmara (PSB), o prefeito de Recife (PE) Geraldo Julio (PSB) e ainda o vice-governador de São Paulo, Márcio França, nome do PSB cotado à sucessão de Alckmin. "O PSB é parceiro nosso. É importante ouvi-los, conversar e essa aproximação é necessária", afirmou.
+Alckmin disse que o encontro com as principais lideranças do Democratas na noite de segunda, também na sede do governo paulista, foi "foi importante para buscar convergência e discutir desafios do Brasil, além da crise". Segundo o governador paulista, "nada deliberativo" ocorreu na reunião, mas foi feita "uma avaliação do momento e especialmente sobre a reforma política que tem 60 dias para ser aprovada".
+Indagado se o Democratas e o PSB seriam possíveis partidos de apoio a sua candidatura em 2018, o governador paulista foi lacônico: "Tudo tem seu tempo", concluiu. Alckmin esteve em Ribeirão Preto (SP) onde participou de uma cerimônia de entrega de apartamentos e segue para uma agenda nas cidades de Cássia dos Coqueiros (SP) e Rincão (SP) antes de retornar à capital paulista para o encontro com o PSB.

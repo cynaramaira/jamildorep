@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Lockdown vira mote de campanha para oposição em Pernambuco"
+date: 2020-05-07
+tags: campanha,lockdown,Oposição,pernambuco
+author: None
+---
+Declarando-se preocupado com "o cenário caótico de combate à pandemia do Coronavírus", o deputado estadual bolsonarista  Wanderson Florêncio (PSC) afirmou que "falta liderança em Pernambuco e no Recife", nesta quinta-feira, na Alepe. O parlamentar de oposição chegou a se apresentar como pré-candidato a prefeito do Recife.
+"A má gestão dos recursos existentes e decisões equivocadas têm contribuído para que a Covid-19 se propague pelo estado", diz.
+"A decisão do juiz Breno Duarte Ribeiro de Oliveira, que negou, nesta quinta-feira, o pedido de lockdown realizado pelo Ministério Público, foi enfática ao reportar para o governo a decisão pelo aumento da restrição de circulação das pessoas. O magistrado justificou que cabe ao representante do Poder Executivo estadual decidir sobre o assunto de acordo com os elementos científicos elaborados pelos órgãos técnicos", declarou.
+“A decisão do juiz de primeira instância foi um grande ‘puxão de orelhas’ no governo que claramente sentenciou que a decisão de lockdown cabe a quem governa, portanto, ao executivo, que tem todos os dados técnicos possíveis para tomar tal medida”. avaliou o deputado.
+“Além da falta de liderança, o que vemos é a má utilização dos recursos públicos, estão anunciando semana após semana novos hospitais de campanha, sem que tenha respiradores e pessoal de saúde para prestação dos atendimentos. Em Recife, apenas 36,4% das novas UTIs anunciadas estão em funcionamento. Enquanto o Pará recebeu 139 respiradores na última segunda-feira, com perspectiva de receber nessa semana mais 200, o Recife conseguiu apenas 36 respiradores através de uma decisão judicial”, afirmou Wanderson Florêncio.
+"Elenco alguns dos problemas que estão sendo vistos diariamente e que mostram as falhas do Poder Público que refletem na contaminação da população. As longas filas de bancos sem nenhum cuidado (referência Caixa, federal) e que não respeitam a distância de segurança, a recomendação tardia para o uso das máscaras, a redução do transporte público e consequente superlotação, são alguns entre outros fatos que fizeram descontrolar a propagação da epidemia".
+“Tudo isso contribuiu para o alto índice de contaminação por aqui. O sentimento é de pesar por causa da forma como estamos perdendo essa guerra contra o Coronavírus. A própria perspectiva de lockdown é um retrato disso, pois as outras ações não deram o resultado esperado. É falta de gestão e liderança”, afirmou Wanderson Florêncio.

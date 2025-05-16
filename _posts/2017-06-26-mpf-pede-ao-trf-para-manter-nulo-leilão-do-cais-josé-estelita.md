@@ -1,0 +1,26 @@
+---
+layout: post
+title: "MPF pede ao TRF para manter nulo leilão do Cais José Estelita"
+date: 2017-06-26
+tags: Estelita,leilão,Louro José
+author: None
+---
+Um ano depois de o juiz federal da 1ª Vara, Roberto Wanderley, ter reafirmado a nulidade do leilão que vendeu a área do Pátio Ferroviário das Cinco Pontas, no Cais José Estelita, para o Consórcio Novo Recife, o caso está no Tribunal Regional Federal da 5ª Região. Na semana passada, o Ministério Público Federal em Pernambuco (MPF) enviou ao tribunal um parecer contestando o recurso das empresas e pedindo que a anulação da venda seja mantida.
+Para a procuradoria, antes do leilão, havia a necessidade de ter havido uma posição do Instituto do Patrimônio Histórico e Artístico Nacional (Iphan) sobre a existência de valor histórico da área, o que não foi observado e já seria suficiente para anular a compra do terreno.
+LEIA TAMBÉM
+ » Com Novo Recife em meio à disputa eleitoral, consórcio diz que projeto é fruto de diretrizes da PCR
+ » Juiz reafirma anulação de leilão do Cais José Estelita
+ » Saiba o que pensavam os candidatos em 2016 sobre o Cais José Estelita
+No documento, o procurador regional da República, Domingos Sávio Tenório de Amorim, a decisão do juiz "fez coro às diversas afirmações acerca do valor histórico da área e daquelas que lhe são contíguas nos bairros de São José e Santo Antônio, além de salvaguardá-las contra projetos atentatórios à memória e visibilidade".
+"Diante da sentença, cabe à União adotar as medidas necessárias para resguardar o particular dos efeitos da evicção, enquanto o Iphan deve declarar a importância histórica da área em razão de sua memória ferroviária e negar qualquer licenciamento de projeto sobre ela sem a compatibilização com esse característico, além de fazer respeitar a visibilidade do sítio histórico contíguo e a compatibilização arquitetônica com o mesmo. Por sua vez, o Município de Recife fica proibido de licenciar qualquer projeto sobre a área sem observância da sua aprovação prévia pelo Iphan", declarou o procurador no documento.
+ Derrubada de armazéns começou na noite de 22 de maio de 2014, até a ocupação do terreno por ativistas, o que suspendeu a demolição (Foto: Bobby Fabisak/JC Imagem)
+Criticando a construção de empreendimentos com esse estilo de arquitetura na área dos bairros de São José e Santo Antônio, Amorim citou o exemplo dos dois edifícios conhecidos como "Torres Gêmeas", os prédios Píer Duarte Coelho e Píer Maurício de Nassau, e afirmou que eles "apenas guardam no nome o respeito à história do lugar". O procurador disse que, no caso do projeto Novo Recife, "as interferências visuais, então, se multiplicam, causando desarmonia na paisagem".
+Em seu recurso, o consórcio alegou, além de cerceamento de defesa, que o Poder Judiciário não teria competência de assumir atos relacionados à declaração da importância cultural ou histórica do local e que esse seria um papel do Executivo. No parecer, Amorim afirmou que Constituição Federal determina que o Poder Público deve promover e proteger o patrimônio cultural brasileiro, incluindo os bens de valor histórico e cultural.
+O Consórcio Novo Recife afirmou pela assessoria de imprensa que não vai se pronunciar porque ainda não foi notificado sobre o parecer.
+Entenda o imbróglio judicial sobre o Cais José Estelita
+O consórcio formado por quatro empreiteiras – Ara Empreendimentos, GL Empreendimentos, Moura Dubeux Engenharia e Queiroz Galvão – comprou por R$ 55 milhões a área dos antigos armazéns, que pertencia ao espólio da Rede Ferroviária Federal, em leilão realizado em 2008. Depois que a Operação Lance Final, deflagrada pela Polícia Federal em outubro de 2015, apontou fraude na compra do terreno, a Justiça Federal anulou o processo. O Tribunal Regional Federal da 5ª Região (TRF5) suspendeu essa decisão um mês depois. Em junho do ano passado, entretanto, o juiz federal titular da 1ª Vara, Roberto Wanderley, reafirmou a sentença, retomando a anulação do leilão.
+O projeto inicial das construtoras era de construir 12 torres, entre residenciais e empresariais, de até 40 andares. A demolição dos armazéns para erguer os prédios começou há três anos, na noite de 22 de maio de 2014. Ativistas acamparam no local para impedir a ação, que foi suspensa devido à mobilização. A ocupação terminou pouco menos de um mês depois, uma ação de reintegração de posse em que a Polícia Militar foi acusada pelos manifestantes por uso de violência.
+Novos protestos foram realizados, inclusive em frente ao prédio onde mora o prefeito Geraldo Julio (PSB), na Zona Oeste da cidade, e à prefeitura, no Centro. A proposta do consórcio e o planejamento urbanístico das áreas do entorno do cais foram refeitos, sendo aprovado pelo Conselho de Desenvolvimento Urbano (CDU) no fim de 2015, quando o TRF5 suspendeu a anulação do leilão, um redesenho com algumas ações mitigadoras exigidas, como a criação de um binário. As construtoras defendem que o projeto "é fruto das novas diretrizes urbanísticas elaboradas pela Prefeitura do Recife".
+Leia a íntegra do parecer do MPF sobre o Cais José Estelita
+ 
+ MPF pede ao TRF para manter nulo leilão do Cais José Estelita  from Portal NE10

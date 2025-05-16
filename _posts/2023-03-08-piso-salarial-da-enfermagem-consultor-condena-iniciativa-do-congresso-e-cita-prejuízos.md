@@ -1,0 +1,31 @@
+---
+layout: post
+title: "PISO SALARIAL DA ENFERMAGEM: Consultor condena iniciativa do Congresso e cita prejuízos"
+date: 2023-03-08
+tags: jamildo, piso salarial da enfermagem
+author: Jamildo Melo
+---
+Um parecer t&eacute;cnico desenvolvido pelo economista Jos&eacute; Roberto Afonso sobre a Emenda Constitucional n&ordm; 127/2022, aprovada para dar viabilidade or&ccedil;ament&aacute;ria para a implementa&ccedil;&atilde;o do Piso Salarial Nacional da Enfermagem, alerta que a medida n&atilde;o &eacute; suficiente.
+O estudo foi feito para a Confedera&ccedil;&atilde;o Nacional de Sa&uacute;de (CNS).
+Segundo o autor, a decis&atilde;o do Congresso n&atilde;o cria novas receitas, acarretando impacto fiscal no resultado prim&aacute;rio do governo, o que tende a exigir contingenciamento de outras despesas e a comprometer a execu&ccedil;&atilde;o de outras pol&iacute;ticas.
+Piso Salarial da Enfermagem &Uacute;ltimas Not&iacute;cias
+O especialista, que tamb&eacute;m &eacute; considerado o pai da Lei de Responsabilidade Fiscal, destaca que a Assist&ecirc;ncia financeira da Uni&atilde;o, prevista na emenda, pode ferir o art. 17 da LRF, caso seja aplicada por mais de dois exerc&iacute;cios financeiros, gerando a necessidade de eleva&ccedil;&atilde;o da carga tribut&aacute;ria para compensar a cria&ccedil;&atilde;o de despesa obrigat&oacute;ria de car&aacute;ter continuado. Ele argumenta que a desvincula&ccedil;&atilde;o do super&aacute;vit financeiro dos fundos e do fundo social pode comprometer a implementa&ccedil;&atilde;o de pol&iacute;ticas p&uacute;blicas, uma vez que tira recursos de &aacute;reas para as quais os recursos j&aacute; se encontram vinculados, al&eacute;m de ter impacto no cumprimento de limites de despesa de pessoal por parte dos entes subnacionais no m&eacute;dio e longo prazo. O autor faz uma an&aacute;lise cr&iacute;tica da solu&ccedil;&atilde;o apresentada sob o ponto de vista fiscal e or&ccedil;ament&aacute;rio.
+&ldquo;Al&eacute;m da discricionariedade na utiliza&ccedil;&atilde;o do super&aacute;vit financeiro dos fundos p&uacute;blicos e do Fundo Social como fonte de recursos para o pagamento do Piso Salarial da Enfermagem, o que compromete a garantia e previsibilidade de recursos para o seu cumprimento, existem outros aspectos cr&iacute;ticos quanto &agrave; solu&ccedil;&atilde;o proposta&rdquo;.
+Piso Salarial Enfermagem
+O estudo traz, entre outros, uma s&eacute;rie hist&oacute;rica do saldo de super&aacute;vit financeiro apurado nos balan&ccedil;os patrimoniais da Uni&atilde;o no per&iacute;odo de 2018 a 2021 para o conjunto dos fundos e demonstra que o Governo federal utilizou parte do super&aacute;vit financeiro dos fundos para pagar despesas de amortiza&ccedil;&atilde;o da d&iacute;vida p&uacute;blica em 2021. Em 2022, houve tamb&eacute;m utiliza&ccedil;&atilde;o de recursos para amortiza&ccedil;&atilde;o da d&iacute;vida, mas o saldo do super&aacute;vit financeiro precisa ser estimado, uma vez que ainda n&atilde;o houve a divulga&ccedil;&atilde;o de relat&oacute;rio de 2022.
+
+      Leia Também
+      
+	    				
+                                              		             
+                                                                   Piso Salarial Enfermagem: Governo Lula prepara nova MP para IMPEDIR greve geral dos enfermeiros
+                 
+	          
+Para o autor, a obriga&ccedil;&atilde;o imposta &agrave; Uni&atilde;o de criar uma linha de assist&ecirc;ncia financeira para pagamento do piso representa impacto prim&aacute;rio do lado da despesa, sem, contudo, vir acompanhada de compensa&ccedil;&atilde;o para neutralizar o impacto, o que leva a crer que a medida pode provocar uma deteriora&ccedil;&atilde;o da situa&ccedil;&atilde;o fiscal da Uni&atilde;o. &ldquo;Diante dos impactos adversos sobre o or&ccedil;amento dos entes governamentais e entidades para suportar integralmente os custos do piso salarial da enfermagem, a EC n&ordm; 127/2022 indicou fontes de recursos para viabilizar o seu cumprimento, possibilitando a utiliza&ccedil;&atilde;o do saldo do super&aacute;vit financeiro dos fundos p&uacute;blicos para o pagamento do Piso por parte dos entes p&uacute;blicos e estabeleceu compet&ecirc;ncia para a Uni&atilde;o prestar assist&ecirc;ncia financeira complementar &agrave;s entidades filantr&oacute;picas e aos prestadores de servi&ccedil;os que atendam pacientes do SUS&rdquo;, explica.
+
+Afonso conclui o estudo destacando que, no campo federativo, os governos estaduais e municipais s&atilde;o os principais provedores de servi&ccedil;os nessa &aacute;rea e os mais impactados na esfera p&uacute;blica. A emenda constitucional previu que poder&atilde;o ser utilizados, como fonte para pagamento da assist&ecirc;ncia financeira complementar, os recursos vinculados ao Fundo Social, sem preju&iacute;zo &agrave; parcela que estiver destinada &agrave; &aacute;rea de educa&ccedil;&atilde;o.
+
+  
+  Ap&oacute;s protesto da enfermagem sobre piso dos enfermeiros, parlamentares planejam cobrar governadora Raquel Lyra para implementar piso salarial da enfermagem? Veja situa&ccedil;&atilde;o do piso enfermagem e resultado de movimento sobre piso salarial enfermagem em Pernambuco - Tiago Brito/ Divulga&ccedil;&atilde;o
+
+Nesse sentido, n&atilde;o trouxe elementos que permitam entender que a quest&atilde;o relativa ao Piso Nacional da Enfermagem e seus efeitos fiscais e financeiros estejam minimamente equacionados, o que exigir&aacute; ainda o debate e o amadurecimento de alternativas que possam conferir viabilidade m&iacute;nima e garantir previsibilidade no financiamento do Piso. Segundo Afonso, pisos salariais na &aacute;rea da sa&uacute;de t&ecirc;m grande impacto nos or&ccedil;amentos dos setores p&uacute;blico e privado, j&aacute; que os sal&aacute;rios representam um dos maiores itens operacionais das entidades da sa&uacute;de. O piso afeta prioritariamente os governos estaduais e municipais que, no final, s&atilde;o os principais provedores de servi&ccedil;os de sa&uacute;de.

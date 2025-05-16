@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Câmara de Paulista convida prefeito Yves a voltar ao trabalho"
+date: 2007-06-08
+tags: Câmara,Paulista,prefeito,trabalho,Yves Ribeiro
+author: None
+---
+&nbsp;
+Da Editoria de Pol&iacute;tica do JC
+Aproveitando viagem do prefeito Yves&nbsp;Ribeiro &agrave; Europa, a C&acirc;mara Municipal de Paulista aprovou, na &uacute;ltima&nbsp;ter&ccedil;a-feira (5), um requerimento convidando o chefe do Executivo a &ldquo;voltar&nbsp;ao trabalho&rdquo;. 
+De acordo com os vereadores, Yves n&atilde;o freq&uuml;enta a&nbsp;Prefeitura desde muito antes de embarcar. Segundo o vereador Jo&atilde;o&nbsp;Mendon&ccedil;a (PAN), autor da medida, o requerimento foi aprovado por quase&nbsp;todos os integrantes do Legislativo municipal, inclusive pela bancada&nbsp;governista. 
+Entre os 12 presentes&nbsp;&agrave; sess&atilde;o, apenas o l&iacute;der&nbsp;governista, N&eacute;lson Falc&atilde;o, n&atilde;o teria dado o seu apoio. Jo&atilde;o Mendon&ccedil;a contou que h&aacute; mais de 90 dias Yves Ribeiro n&atilde;o&nbsp;aparece na Prefeitura. 
+&quot;Todo mundo j&aacute; estava notando, mas eu pedi a um&nbsp;assessor meu para constatar. O assessor ia l&aacute; todo dia, perguntava&nbsp;pelo prefeito e era informado de que ele n&atilde;o se encontrava. Soubemos&nbsp;ent&atilde;o que o prefeito estava despachando na casa de amigos, em&nbsp;restaurantes e hot&eacute;is. Por isso resolvi fazer o requerimento apelando&nbsp;para ele voltar ao trabalho&rdquo;, explicou. 
+O vereador avalia que a aus&ecirc;ncia do prefeito na sede da Prefeitura tem&nbsp;incomodado todo mundo, tanto que a pr&oacute;pria bancada governista votou a&nbsp;favor do requerimento. &ldquo;Se existe um pr&eacute;dio, uma estrutura f&iacute;sica para&nbsp;o prefeito exercer sua fun&ccedil;&atilde;o, n&atilde;o &eacute; certo ele ficar despachando onde&nbsp;bem entender&rdquo;, criticou. 
+Ele informou ainda que o requerimento ser&aacute; enviado &agrave; Prefeitura, na&nbsp;pr&oacute;xima ter&ccedil;a-feira, quando Yves j&aacute; ter&aacute; voltado da Europa, onde est&aacute;&nbsp;desde o &uacute;ltimo dia 25. 
+&ldquo;O que a gente sabe &eacute; que, mesmo quando ele&nbsp;est&aacute; no Estado, n&atilde;o freq&uuml;enta o gabinete. Se o chefe do Executivo n&atilde;o&nbsp;aparece na Prefeitura, n&atilde;o tem como atender &agrave; popula&ccedil;&atilde;o e &agrave;s pr&oacute;prias demandas do cargo. Secret&aacute;rios, vereadores e comunidades nunca o encontram&rdquo;, refor&ccedil;ou a cr&iacute;tica o vereador Andr&eacute; Gustavo, que est&aacute; para&nbsp;ingressar no PMDB.
+Outro integrante da C&acirc;mara, Br&aacute;s Seabra (PTB), se queixa de que as&nbsp;solicita&ccedil;&atilde;o dos vereadores, que repassam as necessidades das&nbsp;comunidades, n&atilde;o t&ecirc;m sido atendidas. 
+&ldquo;A gest&atilde;o n&atilde;o tem resolvido&nbsp;nossos pedidos, que v&ecirc;m da pr&oacute;pria popula&ccedil;&atilde;o, e isso tem gerado&nbsp;desgaste. N&atilde;o posso garantir que ele (Yves) n&atilde;o tem ido trabalhar,&nbsp;apenas que ele n&atilde;o tem resolvido nossos pleitos&rdquo;, minimizou, apesar de&nbsp;ter votado a favor do requerimento.
+Para a secret&aacute;ria de Governo, Terezinha Mousinho, as cr&iacute;ticas ao&nbsp;prefeito n&atilde;o fazem sentido. &ldquo;Yves tem um estilo pr&oacute;prio. N&atilde;o &eacute; um&nbsp;prefeito de gabinete. Fica muito fora da Prefeitura, mas &eacute; porque est&aacute;&nbsp;na rua, visitando obras, conhecendo a realidade da cidade, cobrando&nbsp;dos secret&aacute;rios&rdquo;, defende. 
+Disse ainda que, como o munic&iacute;pio &eacute; grande,&nbsp;&ldquo;o prefeito atende tamb&eacute;m na Secretaria de Turismo, que fica no Janga,&nbsp;para poder ficar perto do pessoal que mora nas praias. Mas ele tamb&eacute;m&nbsp;recebe a popula&ccedil;&atilde;o na Prefeitura. As pessoas querem que ele fique no&nbsp;centro o tempo todo, mas n&atilde;o pode, ele tem que estar na rua,&nbsp;trabalhando&rdquo;. 

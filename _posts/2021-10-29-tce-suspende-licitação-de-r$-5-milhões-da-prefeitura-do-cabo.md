@@ -1,0 +1,14 @@
+---
+layout: post
+title: "TCE suspende licitação de R$ 5 milhões da Prefeitura do Cabo"
+date: 2021-10-29
+tags: cabo de santo agostinho
+author: JAMILDO MELO
+---
+Julgamento da Segunda C&acirc;mara do Tribunal de Contas do Estado (TCE) manteve suspensa por supostas irregularidades concorr&ecirc;ncia da Prefeitura do Cabo de Santo Agostinho para "contrata&ccedil;&atilde;o de Empresa de Engenharia para Elabora&ccedil;&atilde;o de Projetos Executivos para Constru&ccedil;&atilde;o, Melhoramento e Requalifica&ccedil;&atilde;o do Sistema Vi&aacute;rio e Pr&eacute;dios P&uacute;blicos, Conten&ccedil;&atilde;o de Encostas e Apoio T&eacute;cnico Operacional &agrave; Secretaria Municipal de Infraestrutura".
+Segundo o TCE, o or&ccedil;amento estimado da licita&ccedil;&atilde;o era de R$ 5.735.753,28.
+A relatora do processo, conselheira Terese Duere, apontou v&aacute;rias supostas irregularidades na licita&ccedil;&atilde;o.
+"Al&eacute;m da utiliza&ccedil;&atilde;o irregular do tipo t&eacute;cnica e pre&ccedil;o, o edital n&atilde;o estabelece pr&eacute;vios crit&eacute;rios objetivos para pontua&ccedil;&atilde;o de todos os requisitos a serem considerados nas propostas t&eacute;cnicas, de forma a obrigar que o julgamento seja efetuado com imparcialidade, sem interfer&ecirc;ncias pessoais dos julgadores, e, ainda, que possibilite a sua aferi&ccedil;&atilde;o pelos proponentes, pelos &oacute;rg&atilde;os de controle e demais interessados. A f&oacute;rmula adotada para a obten&ccedil;&atilde;o das notas finais dos licitantes n&atilde;o garante a sele&ccedil;&atilde;o da proposta mais vantajosa para a Administra&ccedil;&atilde;o Municipal. A aglutina&ccedil;&atilde;o de servi&ccedil;os diversos (projetos de infraestrutura vi&aacute;ria, projetos de infraestrutura predial, apoio t&eacute;cnico) em um s&oacute; objeto afigura-se irregular, n&atilde;o havendo no edital justificativa para tal procedimento. Conforme se depreende da planilha or&ccedil;ament&aacute;ria do item apoio t&eacute;cnico, o que se contrata &eacute; m&atilde;o de obra especializada", afirmou a relatora Teresa Duere, na decis&atilde;o oficial.
+A delibera&ccedil;&atilde;o final do TCE foi para "manter suspenso o prosseguimento da Concorr&ecirc;ncia P&uacute;blica 011/2021 at&eacute; decis&atilde;o final de m&eacute;rito deste Tribunal de Contas".
+O TCE tamb&eacute;m deliberou que se "instaure processo de Auditoria Especial para acompanhar o cumprimento desta Medida Cautelar e para an&aacute;lise definitiva de m&eacute;rito e, caso a Prefeitura Municipal do Cabo de Santo Agostinho decida por anular a Concorr&ecirc;ncia 011/2021, para que sejam analisados os novos editais lan&ccedil;ados para a contrata&ccedil;&atilde;o dos servi&ccedil;os de engenharia objeto da referida concorr&ecirc;ncia".
+Com a palavra, a Prefeitura do Cabo de Santo Agostinho, caso entenda necess&aacute;rio.

@@ -1,0 +1,10 @@
+---
+layout: post
+title: "O fator Lembo"
+date: 2006-09-01
+tags: 
+author: None
+---
+Por Renata Lo PreteColunista da Folha de S.PauloNuma campanha carente de atrativos, Cláudio Lembo faz sozinho a alegria dos mancheteiros. Desde a entrevista à Folha em maio, na qual responsabilizou a insensibilidade da \"elite branca\" pelo levante do crime organizado em São Paulo, o governador não parou mais.Na semana passada, previu a derrota de Geraldo Alckmin no primeiro turno presidencial. Anteontem, repreendeu FHC por criticar Lula.Quem procura Lembo à cata de uma declaração de impacto, em especial contra os tucanos, não sai de mãos abanando. Lembo goza do privilégio de falar o que quer sem risco de ouvir o que não quer. Quando reclama do governo federal, Lula e Márcio Thomaz Bastos preferem contemporizar, de olho na preservação dessa fonte de constrangimento para Alckmin. Este, por sua vez, tem de engolir seja o que for, sob pena de potencializar o desgaste. Há quem interprete a metralhadora de Lembo como reação t?pica de alguém que passou a vida na condição de número dois -de Olavo Setúbal no Banco Itaú, de Marco Maciel no PFL, de Alckmin no Palácio dos Bandeirantes- e de repente se viu no centro da cena. Sua atitude é oposta à do também pefelista Gilberto Kassab, que herdou de José Serra a prefeitura da capital. Para além do estilo de cada um, o contraste tem explicação simples: Kassab persegue um futuro na pol?tica, a começar pela reeleição em 2008, enquanto Lembo, aos 71 anos, dá sinais de que não pretende concorrer a mais nada. Seria ingênuo, porém, considerá-lo o Chapeleiro Louco da aliança tucano-pefelista. Ainda que o comando do PFL faça cara
+ de preocupação, é evidente que Lembo vocaliza, além de seu contencioso pessoal com Alckmin, a contrariedade original do partido com essa candidatura -não por acaso, Serra é o tucano mais poupado da l?ngua ferina do governador. Lembo é um fenômeno de m?dia, não de público. 
+Leia aqui o texto completo (assinantes Folha e UOL). 

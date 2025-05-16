@@ -1,0 +1,39 @@
+---
+layout: post
+title: "Postagem sobre mortes de pedreiros e policiais federais minimiza rotina de risco dos agentes"
+date: 2019-07-27
+tags: Agentes,mortes,policiais,Riscos,taxas federais
+author: None
+---
+Do Projeto Comprova
+Evidência comprovada
+
+	A publicação apresenta dados próximos aos números encontrados pelo Comprova para policiais federais e para pintores e pedreiros
+
+Contexto errado
+
+	Os dados de mortalidade isoladamente não contam toda a história da periculosidade dessas duas profissões
+
+Após a amenização de regras para aposentadoria de policiais na proposta de reforma da Previdência, o conteúdo de um tuíte que compara o número de mortes e o salário de pedreiros e servidores da Polícia Federal (PF) viralizou nas redes sociais. A publicação cita dados corretos sobre as duas profissões, mas há outros aspectos a considerar para analisar a periculosidade de ambas as atividades.
+Para realizar esta checagem, o Comprova conversou com o autor da postagem original no Twitter e analisou dados públicos da Polícia Federal, do Ministério da Economia e da Secretaria Especial de Previdência e Trabalho do Ministério da Economia. Também entramos em contato com as assessorias de imprensa da PF, do Ministério da Economia e do Sindicato dos Trabalhadores nas Indústrias da Construção Civil de São Paulo (Sintracon-SP).
+O tuíte informa que não houve mortes de policiais federais em 2017, enquanto no mesmo ano, apenas por conta de choques elétricos, morreram 85 pedreiros e pintores. De fato, na Galeria de Heróis da Academia Nacional de Polícia, o registro mais recente de óbito de policial federal é de 2015. Foi quando o agente Mário Henrique de Almeida Mattos foi baleado por traficantes em uma operação em Sinop, no Mato Grosso.*
+O Comprova também procurou em portais de notícias reportagens sobre mortes de agentes da PF, mas os casos mais recentes de violência encontrados não ocorreram em serviço. Consultamos ainda na segunda-feira, 15 de julho, a assessoria de imprensa da PF, mas não obtivemos resposta até a data desta publicação.
+O número de óbitos de pintores e pedreiros, por sua vez, aparece no anuário da Abracopel (Associação Brasileira de Conscientização para os perigos da Eletricidade). De acordo com a entidade, houve 18 mortes de pintores e ajudantes em choques elétricos e 67 fatalidades de pedreiros e ajudantes, totalizando 85 casos.
+Apenas esses dois dados, no entanto, não contam toda a história da periculosidade dessas duas profissões.
+No caso de policiais federais, vale ressaltar que o índice de suicídio na categoria é seis vezes maior do que do restante do país. De acordo com o Ministério da Saúde, no Brasil, são 5,8 suicídios a cada grupo de 100 mil habitantes. Somente na PF, a média sobe para 36,7. Entre 1999 e 2015, 42 agentes e delegados da Polícia Federal tiraram a própria vida. Esse número foi divulgado pelo Sindicato de Policiais Federais do Distrito Federal (Sindipol/DF) no 1º Encontro sobre Prevenção ao Suicídio, realizado em março de 2017. O evento teve cobertura da mídia, e o índice foi divulgado pelo portal R7, pelo jornal Diário da Manhã, de Goiânia (GO), e pela Agência Brasil.
+Na pesquisa Opinião dos Policiais Brasileiros sobre Reformas e Modernização da Segurança Pública, realizada em 2014 pelo Fórum Brasileiro de Segurança Pública, os agentes relatam outros tipos de ameaça à saúde física ou mental. Dos policiais federais entrevistados, 33,9% disseram terem sido ameaçados de morte ou de sofrer violência física por condenados ou suspeitos de atividades ilícitas. Outros 18,9% afirmaram terem sido vítimas de violência física em serviço. Relataram ainda terem sido torturados durante treinamento policial 12,8% dos soldados federais.
+Os pedreiros também enfrentam vários riscos em sua profissão. De acordo com o Anuário Estatístico da Previdência Social mais recente, de 2017, foram registrados 30.025 acidentes de trabalho no setor da Construção, 5,4% do total contabilizado no ano (549.405 casos). Um estudo da Universidade Federal da Bahia (UFBA), no entanto, aponta que esse número é reconhecidamente subestimado, uma vez que considera apenas trabalhadores formais.
+Em um estudo publicado em 2012, pesquisadores da Universidade Metodista de Piracicaba e da Universidade de São Paulo (USP) entrevistaram pedreiros e destacaram como fatores de risco da profissão a exigência excessiva de esforço físico, as atividades em lugares altos, muitas vezes com condições improvisadas, e a exposição a intempéries, ruído e poeira. O artigo também ressalta a predominância de vínculos precários de trabalho e a estigmatização social dos trabalhadores.
+Remuneração
+O tuíte que viralizou cita ainda valores bem próximos aos salários das duas categorias. No caso da Polícia Federal, o salário inicial de agentes, escrivães e papiloscopistas é de R$ 12.522,50. O subsídio pode chegar a R$ 18.651,79. Essa informação está na Tabela de Remuneração dos Servidores Públicos Federais Civis e dos Ex-Territórios, documento publicado pelo Ministério do Planejamento em janeiro deste ano.
+Delegados e peritos criminais ganham remunerações ainda mais vantajosas, que variam de R$ 23.692,74 a R$ 30.936,91. Para entrar na carreira da PF, é preciso ter curso superior completo e passar em concurso público.
+Para pedreiros, o salário médio era de R$ 1.870,92 em dezembro de 2017, segundo os dados mais recentes da Relação Anual de Informações Sociais (RAIS) do extinto Ministério do Trabalho.
+De acordo com a convenção coletiva do Sindicato dos Trabalhadores nas Indústrias da Construção Civil de São Paulo (Sintracon-SP), o piso salarial na cidade de São Paulo para mão de obra qualificada, como pedreiro e carpinteiro, é de R$ 1.841,67. Para mão de obra não qualificada, como serventes e ajudantes, o piso é de R$ 1.513,92.
+O tuíte original foi publicado em 13 de julho pelo usuário Leonardo Siqueira, que afirmou ao Comprova que a postagem continha “apenas informações verdadeiras e verificadas”. Ele apresentou prints de pesquisas no Google sobre os salários dos profissionais e o link de uma matéria publicada pelo site Bem Paraná, que reproduz um comunicado da Abracopel. Desde então, o post obteve mais de 10,4 mil curtidas e 2,3 mil retweets. O conteúdo também foi republicado pela página Ranking dos Políticos no dia 15 de julho, com 10 mil curtidas e 3,1 mil compartilhamentos. As medições foram feitas no dia 22 de julho.
+Contexto
+No dia 12 de julho, a Câmara dos Deputados aprovou em primeiro turno a proposta da reforma da Previdência e de cinco destaques — alterações na proposição inicial. Para policiais federais da ativa, foi criada uma regra alternativa de transição. As idades mínimas para aposentadoria são menores do que as exigidas para o restante da população: 53 anos para homens e 52 anos para mulheres.
+Para conseguirem se aposentar com essa idade, os servidores da PF precisam cumprir um “pedágio” de 100% sobre o tempo de contribuição (30 anos para homens, e 25 anos para mulheres). Isso quer dizer que os policiais deverão trabalhar o dobro do tempo que falta para a aposentadoria. Se não cumprirem essa exigência, a idade mínima é de 55 anos.
+Para trabalhadores em geral, inclusive pintores e pedreiros, a idade mínima é de 65 anos para homens e 62 para mulheres.
+Essa regra especial também vale para policiais civis do Distrito Federal e agentes penitenciários e socioeducativos federais. A proposta de idades diferenciadas para essas categorias foi feita pelo partido Podemos e aprovada por 467 votos a 15.
+O relator da reforma da Previdência, deputado federal Samuel Moreira (PSDB-SP), comentou em entrevista à rádio Jovem Pan a aprovação de exigências mais amenas para policiais, citando a existência “de bancadas muito fortes”, como a chamada “bancada da bala”, que tem 102 parlamentares. Moreira ponderou ainda que, pela regra atual, não existe idade mínima para policiais.
+Leia todas as verificações do Comprova

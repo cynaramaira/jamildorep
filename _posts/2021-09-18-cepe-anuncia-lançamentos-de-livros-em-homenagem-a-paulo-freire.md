@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Cepe anuncia lançamentos de livros em homenagem a Paulo Freire"
+date: 2021-09-18
+tags: educaçã, mito, paulo freire
+author: JAMILDO MELO
+---
+Neste domingo (19) comemora-se o centen&aacute;rio de Paulo Freire, consagrado no mundo como criador da pedagogia do oprimido, did&aacute;tica voltada para a forma&ccedil;&atilde;o do pensamento cr&iacute;tico.
+A Cepe Editora, que j&aacute; dedicou ao escritor e fil&oacute;sofo pernambucano o seu calend&aacute;rio de 2021, capas do jornal liter&aacute;rio Pernambuco (mar&ccedil;o) e da revista Continente (setembro), prepara para outubro o lan&ccedil;amento de dois t&iacute;tulos inspirados em sua obra: Os p&eacute;s nos quintais e os olhos no mundo: Um menino chamado Paulo Freire, da professora e pesquisadora Targelia de Souza Albuquerque; e Olhares sobre Paulo Freire: Vida, hist&oacute;ria e atualidade, livro de ensaios organizado pelos professores Jos&eacute; Batista Neto e Maria Eliete Santiago, coordenadora da C&aacute;tedra Paulo Freire da Universidade Federal de Pernambuco (UFPE).
+Na avalia&ccedil;&atilde;o da editora, o centen&aacute;rio de nascimento chega para constatar a atualidade da produ&ccedil;&atilde;o te&oacute;rica de Paulo Freire e o vigor de sua filosofia.
+De acordo com o editor da Cepe, Diogo Guedes, o pensamento de Paulo Freire sempre foi marcado pela cren&ccedil;a nos outros, pelo desejo de despertar autonomia e consci&ecirc;ncia cr&iacute;tica nos indiv&iacute;duos, respeitando seus contextos e particularidades.
+&ldquo;No seu centen&aacute;rio, quando pessoas e grupos ideol&oacute;gicos tantas vezes o atacam e distorcem seu pensamento dentro do Brasil, o mais importante &eacute; ler Paulo Freire em toda sua generosidade e complexidade, refletindo tamb&eacute;m sobre o momento atual a partir dos seus escritos", diz.
+Os p&eacute;s nos quintais e os olhos no mundo: Um menino chamado Paulo Freire, de Targelia de Souza Albuquerque, &eacute; um livro que prop&otilde;e apresentar a vida e o pensamento do patrono da educa&ccedil;&atilde;o brasileira a um p&uacute;blico leitor mais jovem.
+Conforme a editora, a ideia seria revel&aacute;-lo a partir de sua hist&oacute;ria de menino pobre, muitas vezes obrigado a conviver com a fome, o processo de aprendizagem e entendimento de mundo - que se deu a partir do quintal de casa - e a resili&ecirc;ncia que marcou sua vida. "Elementos fundamentais para o desenvolvimento do pensamento freiriano".
+J&aacute; em Olhares sobre Paulo Freire: Vida, hist&oacute;ria e atualidade, os organizadores reuniram 14 ensaios sobre o educador, com professores e pesquisadores convidados de v&aacute;rios pontos do Brasil. A obra &eacute; dividida em duas partes. A primeira, M&uacute;ltiplos olhares, traz textos de Silke Weber, Dimas Brasileiro, Alder J&uacute;lio Ferreira Calado e Targelia de Souza Albuquerque, focando-se um pouco mais na vida e trajet&oacute;ria de Paulo Freire.
+Na segunda parte, Um pensamento pol&iacute;tico-pedag&oacute;gico atual, plural e vigoroso, est&atilde;o textos de: Carlos Rodrigues Brand&atilde;o, Teresa Leit&atilde;o, Inez Fornari de Souza, Ana Saul e Alexandre Saul, Ivanilde Apoluceno de Oliveira, Luiza Cortes&atilde;o, Alexandre Ant&oacute;nio Timbane e Maria Fernanda Luiz, Rubneuza Leandro de Souza, Maria Margarete Sampaio de Carvalho Braga e Maur&iacute;cio Cesar Vit&oacute;ria Fagundes; e Alexandre Magno Tavares da Silva e Rita de C&aacute;ssia Cavalcanti Porto.
+Os dois t&iacute;tulos da Cepe Editora ser&atilde;o lan&ccedil;ados na segunda quinzena de outubro em evento organizado em parceria com a C&aacute;tedra Paulo Freire.
+&nbsp;

@@ -1,0 +1,50 @@
+---
+layout: post
+title: "MPF aciona Paulo Câmara e pede transparência nos gastos com saúde em Pernambuco"
+date: 2018-12-11
+tags: gastos,nacional,Paulo Câmara,PEDESTRE,pernambuco
+author: None
+---
+O governador de Pernambuco, Paulo Câmara (PSB), e o secretário estadual de Saúde, José Iran Costa Júnior, são acusados em ação civil pública apresentada pelo Ministério Público Federal por atos de improbidade administrativa. Para a procuradora Silvia Regina Pontes Lopes, não há transparência sobre repasses de recursos do Sistema Único de Saúde (SUS) para organizações sociais de saúde, as OSS, que administram hospitais e unidades de pronto-atendimento.
+Cálculos do Tribunal de Contas do Estado (TCE) citados no documento afirmam que os recursos passaram de R$ 144,37 milhões em 2010 para R$ 1.208.027.923,34 em 2017. Para a procuradora, o aumento foi "sem qualquer justificativa plausível".
+De acordo com a ação, no exercício financeiro de 2018, os repasses somam R$ 507.301.501,72.
+LEIA TAMBÉM
+ » Protesto contra Paulo Câmara tem baixa adesão e ausência de eleitos
+ » Paulo diz que deve deixar definição sobre secretariado para fim de dezembro
+ » Paulo Câmara anuncia 13º para o dia 18 de dezembro
+ » Paulo Câmara sanciona mudanças sobre IPVA e ICMS, além do 13º do Bolsa Família
+ » Governo Paulo Câmara continua com despesas de pessoal acima do limite prudencial
+Usando dados de uma auditoria do Tribunal de Contas, a procuradora apontou que o montante de recursos para as OSS deveriam estar no item "repasses ou transferências de recursos financeiros" nos portais de transparência da secretaria e do governo estadual. Silvia Regina Pontes Lopes aponta ainda que os dados acessíveis são de 2017, estando desatualizados, além de não estarem disponíveis para consulta com filtros para geração de relatórios.
+"Veja-se, ainda, que não há nenhuma informação a respeito dos repasses efetivados, isto é, a que título os repasses ocorreram e qual a finalidade de aplicação dos vultosos recursos transferidos pelo Estado de Pernambuco, por intermédio dos ora demandados, às OSS", afirma também. "Sequer é possível saber onde, quando, como e em que as organizações sociais da área de saúde estão efetuando despesas com o dinheiro do contribuinte brasileiro".
+Para a procuradora, com isso, o governo de Pernambuco - através do governador e do secretário - "viola gravemente o art. 8º, §3º, da Lei de Acesso à Informação (LAI) – Lei Federal n. 12.527/2011, bem como o art. 4º da Lei Estadual n. 14.804/2012 e os princípios constitucionais da legalidade, da publicidade e da moralidade administrativa".
+» Por unanimidade, deputados aprovam projeto de Paulo para 13º do Bolsa Família
+ » Paulo Câmara critica novo cronograma da Transnordestina
+ » Casa Militar vai gastar R$ 2,5 milhões com jatinho e helicóptero para Paulo Câmara
+ » Inquérito da Arena Pernambuco ficará com Polícia Civil. PF confirma que não investigará Paulo e Geraldo
+ » Paulo recua e facilita acesso a crédito de beneficiários do Bolsa Família
+O documento defende que "não cabe aos demandados (Paulo Câmara e José Iran Costa Júnior) alegar ausência de dolo (intenção)". Segundo MPF, foi expedida uma recomendação sobre o assunto e o próprio secretário participou de uma audiência pública sobre a necessidade de transparência nos gastos efetivados junto às OSS.
+"É de plena ciência da cúpula do Governo do Estado de Pernambuco a omissão decorrente da ausência de transparência nos recursos relativos à área de saúde, especialmente os destinados às OSS. Na verdade, a negação de publicidade aos repasses realizados junto às OSS e os respectivos dispêndios efetivados pelas entidades visa esquivar agentes públicos de eventuais malfeitos cometidos e, o pior, macular de morte qualquer esfera de controle social, político ou judicial", afirma a procuradora. 
+Silvia Regina Pontes Lopes acusa o governador e o secretário de tratar com desdém a obrigatoriedade de transparência.
+Ouça entrevista da procuradora à Rádio Jornal
+?
+"Frise-se que é dever dos demandados acompanhar com diligência e probidade os contratos de gestão firmados junto às OSS, por inúmeros motivos, dentre eles o absurdo volume de recursos repassados às OSS e por se tratar de área extremamente sensível da administração pública – saúde dos cidadãos pernambucanos. Entretanto, como se depreende do relatório do TCE/PE, os demandados José Iran Costa Júnior e Paulo Henrique Saraiva Câmara não aplicaram nenhuma sanção às OSS que descumprem os normativos de transparência no Estado de Pernambuco", afirma a procuradora.
+A informação também foi divulgada no blog de Frederico Vasconcelos, na Folha de S. Paulo, nesta terça-feira (11). No texto, ele explica que o MPF pede à Justiça que o Estado de Pernambuco e as organizações sociais adotem, no prazo de 60 dias, várias providências para garantir a transparência prevista em lei, sob pena de multa diária de R$ 50 mil.
+Isso porque, além de apresentar a ação contra Paulo Câmara e José Iran Costa Júnior, o Ministério Público ajuizou outra com o objetivo de obrigar o Estado e as OSS a adequarem com urgência seus respectivos portais de transparência. Caso seja aceita, pode ser aplicada uma multa civil e as transferências voluntárias da União para Pernambuco podem ser suspensas. Foi encaminhado também um ofício à Assembleia Legislativa pedindo que analise a possibilidade de instaurar processo contra o governador e o secretário em "eventual prática de crime de responsabilidade".
+Defesa
+Em nota, a Secretaria de Saúde afirmou:
+"Mesmo ainda não tendo sido notificado, o Governo de Pernambuco, por meio da Secretaria Estadual de Saúde (SES), rechaça – veementemente – as alegações açodadas e injustas de ocorrência de atos de improbidade por parte dos gestores citados pela procuradora Silvia Regina Pontes Lopes. A SES também estranha que o Ministério Público Federal, a despeito da boa fé demonstrada pela gestão estadual no trato do tema, haja proposto ação judicial acerca de tema sobre o qual notoriamente havia diálogo e providências concretas em curso.
+Um exemplo disso é o envio regular relatórios anuais de todas as unidades ao Tribunal de Contas do Estado (TCE), que também tem acesso a todos os repasses de recursos, federais e estaduais, realizados às Organizações Sociais. Inclusive as ações propostas no Termo de Ajuste de Gestão foram aprovadas, por unanimidade, pelo Tribunal de Contas do Estado neste ano. Ao contrário do que afirma a procuradora, essa é a maior confirmação de total transparência e idoneidade no trato da questão por parte do Governo do Estado.
+A procuradora Silvia Regina talvez desconheça os avanços obtidos pela Saúde Pública de Pernambuco nos últimos anos, que visou beneficiar aqueles que mais precisam e também o funcionamentos dessas organizações. Para conhecimento da procuradora, segue o que foi acrescido à rede estadual, entre 2009 e 2018:
+2009 - Hospital Miguel Arraes
+ 2010 - Hospital Dom Helder e UPAs 24h de Olinda, Igarassu, Paulista, Imbiribeira, Caxangá, São Lourenço, Torrões, Curado, Barra de Jangada, Engenho Velho e Caruaru
+ 2011 - Hospital Pelópidas Silveira e UPAs 24h do Cabo, Nova Descoberta e Ibura
+ 2013 - UPAEs de Garanhuns, Petrolina e Caruaru, além da UPA 24h de Petrolina
+ 2014 - Hospital Mestre Vitalino em Caruaru e UPAEs de Serra Talhada, Salgueiro, Afogados da Ingazeira, Arcoverde, Belo Jardim e Limoeiro
+ 2017 - UPAE Ouricuri
+ 2018 - Hospital São Sebastião (fechado há 14 anos), UPAE Grande Recife (Abreu e Lima) e nos próximos dias será inaugurada a Unidade de Oncologia do Hospital Mestre Vitalino
+Também para do conhecimento da procuradora Silvia Regina: em 2010, quando existiam apenas o Miguel Arraes e o Dom Helder a média de atendimentos de urgência foi de 48 mil. Em 2017, esse número passou para 850 mil atendimentos nos 11 hospitais geridos por OSs. Um aumento de mais de 1.670%. Isso é agir com diligência e probidade em favor dos mais necessitados.
+Desde a implantação do modelo de administração por Organização Social na Saúde em Pernambuco, em 2009, os contratos de gestão são realizados por meio de seleção pública com ampla competitividade e devidamente publicados no Diário Oficial. Esses contratos definem metas quantitativas e qualitativas de atendimento e o repasse financeiro está condicionado ao cumprimento do serviço.
+Para tanto, as unidades são avaliadas e acompanhadas sistematicamente por uma equipe multiprofissional da Secretaria de Saúde, composta por 30 profissionais, graduados em áreas de saúde, administração, direito e finanças.
+Sobre as recomendações do MPF a respeito da transparência, a SES esclarece que quando notificada, ainda em julho de 2017, prestou todos os esclarecimentos solicitados e apresentou um plano de ação com atividades, metas e prazos, que continuam sendo executados, no intuito de dar respostas às recomendações. Além disso, representantes da Secretaria de Saúde participaram de audiência pública promovida pelo órgão federal, reiterando o compromisso do Governo do Estado com a implementação do plano, que também foi apresentado à população.
+Para garantir a continuidade do processo, houve reunião com a participação da Secretaria da Controladoria-Geral do Estado (SCGE), Secretaria Estadual de Saúde (SES), Procuradoria-Geral de Pernambuco (PGE-PE), além da participação das Organizações Sociais de Saúde (OSS), para alinhar e manter o cumprimento do plano de ações. Importante ressaltar que já há a disponibilização das informações pela SES conforme determina a Lei de Acesso à Informação (LAI) e as Organizações Sociais já criaram e implantaram seus portais de transparência.
+Por fim, o Governo de Pernambuco reafirma seu compromisso com a correção na aplicação dos recursos públicos, transparência, mas não pode concordar com atos precipitados e injustos."

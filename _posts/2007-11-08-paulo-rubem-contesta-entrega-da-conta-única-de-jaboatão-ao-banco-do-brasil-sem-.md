@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Paulo Rubem contesta entrega da conta única de Jaboatão ao Banco do Brasil sem licitação"
+date: 2007-11-08
+tags: banco,brasil,Contestação,entrega,jaboatão,licitação,Paulo,Rubem Fonseca
+author: None
+---
+O deputado federal Paulo Rubem (PDT-PE) d&aacute; entrada em representa&ccedil;&atilde;o contra o prefeito Newton Carneiro, nesta sexta-feira, &agrave;s 8h, na sub-sede do Minist&eacute;rio P&uacute;blico Estadual no Munic&iacute;pio. 
+Ele solicita que sejam investigados ind&iacute;cios de irregularidades em um contrato, em valor de mais de R$ 7 milh&otilde;es, que deu a conta &uacute;nica do Munic&iacute;pio e disponibilizou os empr&eacute;stimos consignados dos servidores municipais ao Banco do Brasil.
+O deputado afirma que n&atilde;o poderia ter sido firmado esse contrato atrav&eacute;s de dispensa de licita&ccedil;&atilde;o, j&aacute; que o objeto da contrata&ccedil;&atilde;o n&atilde;o se enquadra em nenhuma das hip&oacute;teses previstas pela Lei 9.666, de 1993. 
+&ldquo;Al&eacute;m disso, contrariando a Lei de Licita&ccedil;&otilde;es foi inserida no contrato uma outra modalidade de presta&ccedil;&atilde;o de servi&ccedil;os, que &eacute; a concess&atilde;o de cr&eacute;ditos aos servidores ativos e inativos, pensionistas e estagi&aacute;rios do Munic&iacute;pio, mediante consigna&ccedil;&atilde;o em folha de pagamento&quot;, denuncia o parlamentar.
+&quot;O que mais h&aacute; no mercado financeiro s&atilde;o institui&ccedil;&otilde;es &aacute;vidas em captar receitas, processamento de folhas de pagamento de servidores e oferta de cr&eacute;dito consignado a esses funcion&aacute;rios, aos inativos e comissionados do servi&ccedil;o p&uacute;blico. Ou seja, nada mais interessante, neste caso, do que se promover uma aut&ecirc;ntica concorr&ecirc;ncia para se escolher a melhor op&ccedil;&atilde;o para o munic&iacute;pio&quot;, diz um trecho da representa&ccedil;&atilde;o. 
+A pena prevista para os gestores p&uacute;blicos que tenham dispensado ou deixado de exigir licita&ccedil;&otilde;es, sem fundamenta&ccedil;&atilde;o legal, &eacute; de tr&ecirc;s a cinco anos, al&eacute;m de multa. 
+Segundo o deputado, a dispensa de licita&ccedil;&atilde;o frustrou a possibilidade de a administra&ccedil;&atilde;o obter maior remunera&ccedil;&atilde;o pela entrega de suas receitas e da folha de pagamento de seus servidores. &ldquo;A ilegalidade, portanto, pode ter causado perda de receitas que poderiam ser transferidas ao Munic&iacute;pio por outras institui&ccedil;&otilde;es banc&aacute;rias&rdquo;.
+Durante o per&iacute;odo de vig&ecirc;ncia do contrato, a institui&ccedil;&atilde;o financeira dever&aacute; administrar um valor superior a R$ 1,4 bilh&atilde;o, j&aacute; que o Balan&ccedil;o Or&ccedil;ament&aacute;rio de 2005 do Munic&iacute;pio chegou a R$ 281,370 milh&otilde;es. 
+&ldquo;O pagamento de R$ 7,7 milh&otilde;es pela conta &uacute;nica j&aacute; parece ser um valor pequeno, mas o caso fica mais grave quando lembramos que tamb&eacute;m est&aacute; sendo entregue ao banco a concess&atilde;o de cr&eacute;dito consignado aos servidores&rdquo;.
+Paulo Rubem disse esperar com essa representa&ccedil;&atilde;o que o Munic&iacute;pio seja obrigado a abrir nova licita&ccedil;&atilde;o, para gerar mais renda para os cofres p&uacute;blicos e tamb&eacute;m seja obrigado a dar oportunidades para que outras institui&ccedil;&otilde;es financeiras possam entrar na concorr&ecirc;ncia pelo cr&eacute;dito consignado dos servidores municipais. 

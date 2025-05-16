@@ -1,0 +1,50 @@
+---
+layout: post
+title: "Paixão de Cristo do Recife vai parar na Justiça. Família protesta pelo uso do nome de Pimentel"
+date: 2018-11-29
+tags: cristo redentor,família,Justiça,Nomes,Recife
+author: None
+---
+Menos de um ano após a morte do produtor cultural e ator José Pimentel, a Paixão de Cristo do Recife está sendo judicializada. A produção do espetáculo foi parar na Justiça do Estado. Veja os termos da sentença abaixo, atendendo a uma ação apresentrada pela viúva e da filha única do ator e produtor.
+Mais cedo, se soube que, em 2019, o espetáculo Paixão de Cristo do Recife vai prestar uma homenagem a José Pimentel, apresentando um novo espetáculo.
+“Será uma nova Paixão de Cristo do Recife. Nova direção, novo texto e grande elenco”, prometeram os coprodutores.
+O lançamento para a imprensa será amanhã, dia 30 de novembro, às 10h, no Museu do Trem, com a presença da direção, produção e dos atores, com destaque para Bruno Garcia, que interpretará Jesus.
+Tribunal de Justiça de Pernambuco
+ Seção B da 17ª Vara Cível da Capital
+AUTOR: LILIAN DE OLIVEIRA PIMENTEL
+ RÉU: PAULO ROBERTO DE FIGUEIREDO CASTRO, ASSOCIACAO DOS PRODUTORES DE ARTES CENICAS DE PERNAMBUCO, PEDRO DE LIMA CASTRO, PEDRO DE LIMA CASTRO - ME, ANTONIO XAVIER PIRES
+DECISÃO
+R.H.
+Lilian de Oliveira Pimentel e Aurinete Ernesto de Oliveira Pimentel, qualificadas na petição inicial, ajuizaram a ação em epígrafe em face de Paulo Roberto de Figueiredo Castro, Associação dos Produtores de Artes Cênicas de Pernambuco – APACEPE, Pedro de Lima Castro, Pedro de Lima Castro ME (P Castro Produções), Antônio Xavier Pires e Albemar Araújo, também qualificados, alegando, em apertada síntese, que:
+a) são, respectivamente, filha única e viúva de José de Souza Pimentel, falecido em 14 de agosto do corrente ano;
+b) o falecido foi ator, diretor, iluminador, figurinista, sonoplasta, escritor, poeta, professo e jornalista, sendo o criador da obra teatral Paixão de Cristo do Recife, inicialmente encenado no Estádio do Arruda e, posteriormente, no Marco Zero, no Recife Antigo;
+c) o espetáculo da Paixão de Cristo do Recife passou a fazer parte do calendário oficial da Prefeitura do Recife, sendo encenado anualmente, durante o período da semana santa;
+d) o falecido além de dirigir citado espetáculo teatral, atuava interpretando o papel de Jesus Cristo de Nazaré;
+e) o ano de 2017 foi o último em que José de Souza Pimentel, uma vez que foi convencido pelos então coprodutores do espetáculo, ora réus, Paulo de Castro e Antônio Pires, a não mais atuar no ano de 2018;
+f) no início de 2018 os ex-produtores do espetáculo, ora réus, anunciaram que não mais o realizariam no mencionado ano, sob a alegação de falta de verbas;
+g) diante do clamor social, José de Souza Pimentel juntamente com a primeira autora, sua filha, Lilian de Oliveira Pimentel, e com as pessoas de Bruna Pimentel, Misia Coutinho e Octavio Catanho, contrataram uma nova produtora, Gama Produções, e realização a 22ª edição do evento Paixão de Cristo do Recife, o que gerou o rompimento definitivo com os antigos produtores Paulo Roberto de Figueiredo Castro , Pedro de Lima Castro e Antônio Xavier Pires, todos integrantes da cúpula da também ré Associação dos Produtores de Artes Cênicas de Pernambuco – APACEPE;
+h) meses após a encenação o espetáculo, em data de 14 de agosto de 2018, José de Souza Pimentel veio a óbito;
+i) antes mesmo da realização da missa de 7º dia de falecimento de José de Souza Pimentel, o ex-produtor do espetáculo, o ora réu Paulo Roberto de Figueiredo Castro, no dia 20 de agosto do corrente ano, realizou Convocação Geral, por meio de mensagens de Whatsapp, para formação de elenco para a Paixão de Cristo do Recife, visando lançar o espetáculo Paixão de Cristo: A Paixão de Pimentel, mesmo já estando afastado oficialmente do espetáculo desde antes da execução da 22ª edição, em 2018;
+j) embora conste da Convocação Geral o nome de Octavio Catanho, este não compactua com o ocorrido;
+k) a presente demanda objetiva, precipuamente evitar a utilização indevida da imagem, das criações e do legado de José de Souza Pimentel pelos réus;
+Pugnam, por conseguinte, em sede de tutela de urgência, que os réus: (a) sejam compelidos a se absterem de fazer, citar, compartilhar, convocar pessoas, expor, escrever, homenagear, inscrever, angariar patrocínios, divulgar na imprensa, em redes sociais ou fora delas, realizar espetáculos reconhecidamente de criação de José de Souza Pimentel; (b) sejam compelidos a se absterem de utilizar a imagem, o nome, o legado e a obra de José de Souza Pimentel; (c) sejam proibidos de realizar, em especial, o espetáculo Paixão de Cristo do Recife; (d) sejam compelidos a realizarem nova Convocação Geral, visando a comunicação acerca da desistência da realização do evento por eles, em resposta a Convocação Geral para formação de elenco para a Paixão de Cristo do Recife, visando lançar o espetáculo Paixão de Cristo: A Paixão de Pimentel, mediante publicação em 02 (dois) jornais de grande circulação. No mérito, requer a confirmação da tutela de urgência perseguida, bem como a condenação dos réus no pagamento de indenização por danos morais, caso a imagem, o nome, a obra ou o legado de José de Souza Pimentel sejam utilizados por qualquer dos réus.
+Por meio da petição de Id.: 38255980, as autoras colacionaram aos autos o documento de Id.: 38256008 (roteiro do espetáculo Paixão de Cristo do Recife).
+Eis o relatório. Passo a decidir.
+No presente caso, pretende a autora a concessão de tutela de urgência consistente em compelir os réus a se absterem de realizar o espetáculo teatral Paixão de Cristo: A Paixão de Pimentel, sob o argumento de que para tal estariam se utilizando da imagem, do nome, da obra e do legado de seu genitor, José de Souza Pimentel.
+É cediço que, para o deferimento da tutela de urgência, faz-se necessária a presença dos requisitos elencados no art. 300, do CPC/2015, quais sejam, probabilidade do direito, perigo de dano ou risco ao resultado útil do processo.
+Pois bem.
+No caso em apreço, em sede de cognição perfunctória, os argumentos expostos na inicial e os documentos colacionados aos autos, não evidenciam a presença da probabilidade do direito perseguido pelas autoras quando pretendem que sejam os réus compelidos a se absterem de realizar, em especial, o espetáculo Paixão de Cristo do Recife.
+Isso porque embora tenham as autoras trazido aos autos roteiro do espetáculo Paixão de Cristo do Recife, bem como fotografias que confirmam a participação do falecido no espetáculo e em sua produção, não lograram êxito, neste estágio processual, em comprovar que a obra teatral em questão é de autoria de José de Souza Pimentel.
+Todavia, cumpre-se destacar que melhor sorte merece o pleito de compelir os réus a se absterem de fazer, citar, compartilhar, convocar pessoas, expor, escrever, homenagear, inscrever, angariar patrocínios, divulgar na imprensa, em redes sociais ou fora delas, utilizar a imagem, o nome, o legado e a obra de José de Souza Pimentel e, via de consequência, deixem promover o espetáculo intitulado Paixão de Cristo: A Paixão de Pimentel, sendo compelidos, ainda, a realizarem nova Convocação Geral, visando a comunicação dos interessados acerca da desistência da realização do evento por eles.
+Em outras palavras, considerando que o espetáculo Paixão de Cristo: A Paixão de Pimentel faz uso do nome e legado de José de Souza Pimentel, ainda que com o objetivo de homenageá-lo, não encontra anuência da família/herdeiros do falecido, violando o que reza o art. 5º, inc. XXVII[1], da Constituição Federal.
+Por fim, registro existir, no caso, a reversibilidade da medida, haja vista que, na hipótese de vir a ser julgado improcedente o pedido inaugural, poderão ser contabilizados e ressarcidos eventuais prejuízos sofridos pelos réus.
+Ante o exposto, CONCEDO EM PARTE A TUTELA DE URGÊNCIA PERSEGUIDA, a fim de determinar que os réus Paulo Roberto de Figueiredo Castro, Associação dos Produtores de Artes Cênicas de Pernambuco – APACEPE, Pedro de Lima Castro, Pedro de Lima Castro ME (P Castro Produções), Antônio Xavier Pires e Albemar Araújo, SE ABSTENHAM DE FAZER, CITAR, COMPARTILHAR, CONVOCAR PESSOAS, EXPOR, ESCREVER, HOMENAGEAR, INSCREVER, ANGARIAR PATROCÍNIOS, DIVULGAR NA IMPRENSA, EM REDES SOCIAIS OU FORA DELAS, UTILIZAR A IMAGEM, O NOME, O LEGADO E A OBRA DE JOSÉ DE SOUZA PIMENTEL E, VIA DE CONSEQUÊNCIA, NÃO PROMOVAM O ESPETÁCULO INTITULADO PAIXÃO DE CRISTO: A PAIXÃO DE PIMENTEL, FICANDO, AINDA, COMPELIDOS, A REALIZAREM, NO PRAZO DE 20 (VINTE) DIAS, NOVA CONVOCAÇÃO GERAL, VISANDO A COMUNICAÇÃO DOS INTERESSADOS ACERCA DA DESISTÊNCIA DA REALIZAÇÃO DO EVENTO POR ELES, MEDIANTE PUBLICAÇÃO EM 02 (DOIS) JORNAIS DE GRANDE CIRCULAÇÃO.
+Para a hipótese de descumprimento desta decisão fixo: (a) multa diária de R$ 5.000,00 (cinco mil reais), por dia de atraso na nova Convocação Geral, nos termos fixados; (b) multa de R$ 500.000,00 (quinhentos mil reais) por espetáculo (Paixão de Cristo: A Paixão de Pimentel) promovido.
+No mais:
+Considerando a ausência de manifestação interesse da parte autora na realização da audiência de conciliação/mediação, dispenso a aplicação ao caso do disposto no art. 334[2] do CPC/2015, e determino a citação da parte ré para, querendo, responder a presente ação no prazo de 15 (quinze) dias, com as advertências do art. 344 do CPC/2015.
+Apresentada resposta na modalidade de contestação e ocorrendo a hipótese prevista no art. 350 do CPC/2015, intimem-se a parte autora para se manifestar no prazo de 15 (quinze) dias.
+Por fim, determino Diretoria Cível de 1º Grau que promova a retificação, via sistema, do polo ativo e passivo da presente demanda, ante a informação contida no petitório de Id.: 38255980.
+Esta decisão serve como mandado, conforme Recomendação nº 03/2016 – CM/TJPE.
+À Diretoria Cível para providências de praxe. Intime-se. Cumpra-se.
+Recife, data da autenticação eletrônica
+Juiz(a) de Direito em exercício cumulativo

@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Azul espera certificação de aeroportos para iniciar operações em Caruaru e Serra Talhada"
+date: 2017-10-05
+tags: aeroportos,caruaru,Novembro Azul,operações policiais,serra talhada
+author: None
+---
+A Azul informou nesta quinta-feira, eme evento no Palácio do Campo das Princesas, que busca incrementar o alcance regional do hub preparando-se para iniciar operações em Caruaru e Serra Talhada, no interior Pernambucano, além de Mossoró, no Rio Grande do Norte.
+Os serviços devem ser iniciados após a certificação dos aeroportos para receber as aeronaves turboélices da companhia, modelo ATR 72, com capacidade para 70 assentos.
+Durante o evento foram anunciados três novos voos internacionais operados pela Azul Linhas Aéreas. As cidades de Rosário e Córdoba, na Argentina, serão servidas com voos diretos, uma vez por semana, com as aeronaves Airbus A320neo, que têm capacidade para até 174 assentos. Fort Lauderdale, nos EUA, ganhará operações partindo de Recife, duas vezes por semana, com as aeronaves Airbus A330, com capacidade para 271 assentos. A operação dos novos voos acontece no primeiro semestre de 2018. Os horários de Fort Lauderdale ainda estão em definição.
+Atualmente a capital pernambucana conta com conexões diretas com: Aracaju, Belém, Belo Horizonte, Curitiba, Fernando de Noronha, Fortaleza, São Paulo (Guarulhos), Goiânia, Juazeiro do Norte, João Pessoa, Maceió, Natal, Petrolina, Ribeirão Preto, São Luís, Salvador, Teresina, Uberlândia, Campinas, Campina Grande, Parnaíba e Jericoacoara. Na alta temporada, Cuiabá e Paulo Afonso também serão operados. Com o Hub, a Azul passou a operar 45 ligações diárias para 22 destinos dentro do país.
+“Em 2016, Pernambuco tornou-se uma das principais conexões aéreas do Nordeste. Isso porque a Azul implementou voos regulares para 12 novas cidades partindo do Recife. Hoje, Pernambuco é um dos principais destinos turísticos do Brasil e isso é reflexo da instalação do Hub da Azul na capital pernambucana. Com ele, se estabeleceram ligações diretas com todos os estados do Nordeste. Esse crescimento da malha aérea só confirma a vocação que Pernambuco tem para se tornar um excelente centro de operações das mais variadas companhias aéreas nacionais e internacionais”, comentou no evento o secretário de Turismo, Esportes e Lazer de Pernambuco, Felipe Carreras.
+“O crescimento foi corroborado pelo resultado de um estudo promovido pelo setor de pesquisas da Empetur sobre o impacto do Hub. Em 2016, pousaram no Aeroporto Internacional do Recife 11.369 aeronaves da companhia. No ano anterior, o número foi de 8.013 aeronaves. Uma variação de 41,8%. O desembarque de passageiros da Azul também apresentou crescimento de 58,5%. Em 2016 chegaram 928.959 pessoas no Recife, contra 585.800 em 2015”, comparou.
+“Com a Azul, o Recife é hoje a quinta cidade mais conectada do Brasil em quantidade de destinos, atrás apenas de São Paulo, Rio de Janeiro, Belo Horizonte e Brasília”, comenta o presidente da Azul, John Rodgerson.
+A expectativa é que os voos tenham início em março de 2018.
+O evento para divulgar a ampliação da malha aérea aconteceu no Palácio do Campo das Princesas e reuniu o prefeito Geraldo Julio. 
+"A gente vai ter agora 57 voos da companhia Azul no nosso aeroporto. A maioria dos aeroportos no Nordeste, nesses últimos dois anos, registrou queda no número de passageiros e cancelamentos de voos que existiam. Já no Recife acontece o inverso, a gente aumentou o número de passageiros e de destinos", comemorou o gestor.
+&nbsp;

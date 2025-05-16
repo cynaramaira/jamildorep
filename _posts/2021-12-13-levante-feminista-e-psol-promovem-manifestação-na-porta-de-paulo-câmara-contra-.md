@@ -1,0 +1,26 @@
+---
+layout: post
+title: "Levante feminista e PSOL promovem manifestação na porta de Paulo Câmara contra Pedro Eurico"
+date: 2021-12-13
+tags: Paulo Câmara
+author: JAMILDO MELO
+---
+O coletivo que se apresenta como Levante Feminista de Pernambuco realiza ato em solidariedade &agrave; Maria Eduarda Carvalho e &agrave; todas as mulheres e pessoas v&iacute;timas de viol&ecirc;ncia provocada pelo Estado, nesta segunda. A manifesta&ccedil;&atilde;o acontece de tarde, &agrave;s 16h, em frente ao Pal&aacute;cio do Governo.
+Paulo C&acirc;mara vai estar longe, entre o Agreste e Mata Sul.
+O governador Paulo C&acirc;mara visita, nesta segunda-feira (13.12), munic&iacute;pios do Agreste e Mata Sul do Estado para anunciar novos investimentos previstos no Plano Retomada. A agenda tem in&iacute;cio na cidade de Panelas, onde ele inaugura a Central de Oportunidades de Pernambuco (Cope) e anuncia a&ccedil;&otilde;es em diversas &aacute;reas estruturadoras. Em seguida, Paulo C&acirc;mara segue para Lagoa dos Gatos e Bel&eacute;m de Maria, onde autoriza novas interven&ccedil;&otilde;es e participa de inaugura&ccedil;&otilde;es.
+Veja os termos abaixo do ato de convoca&ccedil;&atilde;o abaixo.
+
+    
+            'É preciso romper o ciclo de violência contra as mulheres!', por Dani Portela
+            Caso Pedro Eurico: Defesa reitera inocência e reclama de pressa em inquérito
+            Primeira esposa de Pedro Eurico divulga nota e se coloca à disposição da Justiça para prestar depoimento
+        
+
+O ESTADO &Eacute; O OPRESSOR, O ESTADO &Eacute; O VIOLADOR, O ESTADO &Eacute; O PATRIARCADO!
+Em tempos de retrocessos, retirada de direitos e ascens&atilde;o do fascismo e da extrema direita, o governo de Paulo C&acirc;mara (PSB) se mostra alinhado &agrave;s necropol&iacute;ticas de Jair Bolsonaro. Com os n&uacute;meros de feminic&iacute;dios/transfeminic&iacute;dios e VCMs aumentando a cada dia, e todo o quadro de viol&ecirc;ncia e viola&ccedil;&atilde;o de Direitos Humanos dentro dos pres&iacute;dios (Pernambuco tem a terceira maior taxa de superlota&ccedil;&atilde;o carceraria do Brasil), al&eacute;m da crescente mis&eacute;ria amargada pela popula&ccedil;&atilde;o pernambucana, o governo do Estado de Pernambuco revela sua face machista, racista, LGBTQIA+f&oacute;bica a cada dia.
+No &uacute;ltimo dia 09 de dezembro, veio a p&uacute;blico o apelo por justi&ccedil;a de Maria Eduarda de Carvalho, ex-companheira do sr. Pedro Eurico, que somente ap&oacute;s 25 anos de viol&ecirc;ncias, 10 boletins de ocorr&ecirc;ncias, medida protetiva e toda forma de apagamento do quadro de viol&ecirc;ncias sofridas por esta mulher, ganha visibilidade. O fato, mostra n&atilde;o apenas como o patriarcado nos trata, mas tamb&eacute;m como o Estado age como opressor. O agressor estava como Secret&aacute;rio de Justi&ccedil;a e Direitos Humanos do Estado de PE, que n&atilde;o se posicionou como deveria, exonerando do cargo, demitindo e responsabilizando-o. O violador teve todo tempo e liberdade para escolher seu futuro, pedindo afastamento do cargo e sua pr&oacute;pria demiss&atilde;o. N&atilde;o bastando a coniv&ecirc;ncia de quem deveria defender as v&iacute;timas de viol&ecirc;ncia, o governo de PE ainda nomeia o advogado de defesa do agressor como seu sucessor, revelando o descaso com as mulheres violentadas.
+N&oacute;s, organiza&ccedil;oes e movimentos que comp&otilde;e a campanha contra o feminicidio - Levante Feminista de Pernambuco, juntes com diversos outros movimentos e sociedade civil, iremos realizar um ato em solidariedade &agrave; Maria Eduarda de Carvalho, ex-companheira do Sr. Pedro Eurico, que recentemente denunciou publicamente todas as agress&otilde;es sofridas durante seus 25 anos de relacionamento.
+Assim como Maria Eduarda de Carvalho, milhares de mulheres cis trans e travestis sofreram ou sofrem com a viol&ecirc;ncia dom&eacute;stica no Brasil que ocupa a quinta posi&ccedil;&atilde;o no ranking mundial de feminic&iacute;dios, l&iacute;der mundial em transfeminic&iacute;dios e foi agravada durante a pandemia. Em Pernambuco especificamente foi um dos estados que apresentou uma forte crescente nos casos de viol&ecirc;ncia contra todas as mulheres nos &uacute;ltimos 10 anos.
+Enquanto movimento feminista, que atuamos no combate a todos os tipos de viol&ecirc;ncia contra as travestis, mulheres trans e cis, repudiamos qualquer ato de viol&ecirc;ncia de g&ecirc;nero e exigimos que todas as provid&ecirc;ncias sejam tomadas em prote&ccedil;&atilde;o &agrave; Maria Eduarda. Cobramos que o Sr. Pedro Eurico, que ocupava o cargo de Secret&aacute;rio de Justi&ccedil;a e Direitos Humanos no Estado de Pernambuco, seja responsabilizado por todas as viol&ecirc;ncias e omiss&otilde;es cometidas.
+Em solidariedade e para exigir o fim da viol&ecirc;ncia, nos encontraremos &agrave;s 16:00, na pr&oacute;xima segunda (13), em frente ao Pal&aacute;cio do Governo.Convidamos &agrave; todes para se somar conosco nessa luta que n&atilde;o &eacute; individual e &eacute; de responsabilidade de todes.
+&nbsp;

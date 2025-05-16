@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Processo de impeachment não resolverá crise política, dizem especialistas"
+date: 2016-03-23
+tags: crise sanitária,impeachment,Naomi Campbell,Política,processo
+author: None
+---
+ Foto: Marcelo Camargo/ Agência Brasil
+Da ABr - Em tramitação no Congresso, o pedido de impeachment da presidente Dilma Rousseff, independentemente do resultado, não resolverá a crise política vivida pelo país, avaliam cientistas políticos ouvidos pela Agência Brasil. Para os especialistas, a polarização da política e a descrença da população nos partidos políticos permanecerão após o desfecho do julgamento do impedimento da presidente.
+Para o cientista político e professor titular do curso de ciência política da Universidade Federal de Minas Gerais (UFMG) Carlos Ranulfo, o impeachment não representa risco à democracia, mas ele considera a constitucionalidade do procedimento discutível.
+“Estamos discutindo o afastamento de um presidente sem base jurídica para tanto. É diferente o afastamento político do afastamento por crime de responsabilidade. Mas não há crime de responsabilidade que possa ser imputado a Dilma. É uma violência à Constituição”, disse Ranulfo.
+O cientista político, antropólogo e sociólogo da Universidade de Brasília (UnB) Antônio Flávio Testa considera que o momento político brasileiro fortalecerá a democracia e as instituições. Para Testa, o pedido de impedimento de Dilma tem fundamentação legal e “ótima fundamentação”.
+“Não vejo problemas [quanto à fundamentação do pedido]. As pedaladas fiscais foram julgadas pelo TCU [Tribunal de Contas da União] e configuram crime de responsabilidade”, afirmou, referindo-se ao mecanismo usado pelo governo, no ano passado, de repassar dinheiro de benefícios sociais à Caixa Econômica depois que o banco já havia feito o pagamento aos beneficiários.
+De acordo com o cientista político e professor do curso de Relações Internacionais da Universidade do Estado do Rio de Janeiro (Uerj), Maurício Santoro, no entanto, diferentemente do processo que resultou no impeachment do ex-presidente Fernando Collor de Mello, que, segundo ele, unificou o país e fortaleceu a democracia, no caso da presidente Dilma Rousseff o resultado deve provocar ainda mais tensionamento.
+“O processo contra o Collor fortaleceu a democracia. Tínhamos uma visão de que aquele impeachment era necessário. [Hoje] embora pesquisas demonstrem grande apoio ao impeachment, a base legal do pedido é bastante controversa. Não há, como houve no Collor, uma prova de que ela tenha recebido ou sido beneficiada pela corrupção”, comparou Santoro.
+Para ele, o clima de divisão política pode resultar, no Brasil, em um desfecho semelhante ao ocorrido na Itália, com a eleição de Silvio Berlusconi, após a Operação Mãos Limpas. “O momento de hoje [no Brasil] tem semelhanças com o que aconteceu na Itália após a Operação Mãos Limpas. Assim como a Mãos Limpas, que resultou na condenação de vários políticos, o resultado não foi uma democracia mais sólida, mas a ascensão de Berlusconi, que representou a expressão: se você não acredita na política, vote em mim. Mesmo dento da democracia, a aversão ao sistema pode gerar coisas muito estranhas”, afirmou.

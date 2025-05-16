@@ -1,0 +1,21 @@
+---
+layout: post
+title: "Adams diz que oposição quer 'forçar a mão' para impeachment"
+date: 2015-10-08
+tags: impeachment,Oposição
+author: None
+---
+ Foto: Antonio Cruz/ Agência Brasil
+Estadão Conteúdo - O ministro Luís Inácio Adams, da Advocacia-Geral da União (AGU), considerou nesta quinta-feira, 8, que o governo não errou na estratégia de defesa perante o Tribunal de Contas da União (TCU) e disse que a oposição está "querendo forçar a mão" para responsabilizar a presidente Dilma Rousseff e precipitar um pedido de impeachment com base no parecer da Corte de contas que recomendou a rejeição do balanço contábil de 2014.
+"A oposição está querendo forçar a mão. Evidente que sempre se buscou nesse parecer uma forma de tentar gerar um fato para a responsabilização, mas não é um fato, é uma opinião. (...) Esses fatos que foram expostos não configuram nem representam responsabilidade da presidente", disse Adams nesta tarde, ao deixar sessão do Supremo Tribunal Federal (STF).
+LEIA TAMBÉM:
+&gt; Jarbas diz que, com Eduardo Cunha na Câmara, impeachment vira lorota. Queda dele não ajuda Dilma
+&gt; OAB cria comissão para avaliar se pede impeachment de Dilma
+&gt; Oposição se reúne na casa de Cunha para debater roteiro do impeachment
+Nesta quarta-feira, 7, o TCU recomendou, por unanimidade, a reprovação das contas do governo Dilma, apesar dos recursos da AGU para tentar afastar o relator do processo, o ministro Augusto Nardes, e suspender o julgamento. A rejeição teve como base a identificação de irregularidades, entre elas as chamadas pedaladas fiscais, reveladas no ano passado pelo jornal O Estado de S.Paulo.
+Dilma recebeu a notícia da rejeição das contas pelo TCU de forma "tranquila", segundo Adams. "A presidente se mostrou tranquila, é uma etapa do processo, não é o fim", disse. De acordo com ele, o TCU não indicou a presidente Dilma como responsável pelas pedaladas. "Um processo de cassação (de mandato) por crime de responsabilidade precisa ter fatos, precisa ter elementos de responsabilização objetivos, que absolutamente não existem. E esse parecer do TCU não afirma isso, não permite esse tipo de ilação", complementou o ministro.
+O governo não pretende recorrer ao Judiciário para questionar a deliberação do TCU em um primeiro momento. "A estratégia vamos definir no momento certo. O Judiciário não é a meta inicial, é a última instância", afirmou. O ministro considerou que o julgamento teve "contaminação política" dentro e fora do TCU. Agora, o foco será o debate no Congresso.
+"Nós vamos ao Congresso evidentemente fazer esse debate, existe o espaço técnico também. (...) O que nós tivemos foi uma etapa desse processo. Nenhum advogado perde um processo por perder um recurso", avaliou o ministro, que foi categórico ao dizer que governo e AGU não erraram na estratégia de defesa. "Tínhamos a convicção de que havia um vício (suspeição de Nardes) e ainda temos essa convicção", afirmou.
+Desde o início da semana, o governo tentou afastar Nardes da relatoria do processo, sob argumento de que o ministro antecipou seu voto em manifestações à imprensa. O movimento foi alvo de críticas por parte de integrantes do TCU e da oposição. O presidente do PSDB, senador Aécio Neves (MG), defendeu a saída de Adams do cargo e disse que atuação do advogado-geral da União é parcial, e que, ao tentar constranger os tribunais em uma "atitude vexatória", ele virou "arauto da ilegalidade" na defesa da presidente Dilma. Nos bastidores, avalia-se que as sucessivas derrotas de Adams no TCU e no STF podem precipitar a demissão dele da AGU.
+O PPS ingressou com representações na Comissão de Ética Pública da Presidência da República contra Adams e contra o ministro da Justiça, Eduardo Cardozo, com argumento de que os dois infringiram o Código de Conduta da Alta Administração Federal ao colocar em dúvida a isenção de Nardes.
+Adams minimizou os comentários da oposição e disse que "ninguém" conversou com ele sobre sua saída do cargo. "Engraçado que disseram que estamos ameaçando, intimidando e acham que vou ficar intimidade com esse tipo de representação, que é absolutamente fútil e desnecessária", disse o ministro.

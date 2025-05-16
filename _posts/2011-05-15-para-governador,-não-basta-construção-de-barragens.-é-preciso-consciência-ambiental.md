@@ -1,0 +1,10 @@
+---
+layout: post
+title: "Para governador, não basta construção de barragens. É preciso consciência ambiental"
+date: 2011-05-15
+tags: barragens,construção,crime ambiental,GOVERNADORES,Naomi Campbell,Pará
+author: None
+---
+Durante o fechamento da segunda comporta da represa de Carpina, neste domingo (15), em Lagoa do Carro, na Mata Norte de Pernambuco, o governador Eduardo Campos (PSB) mandou um recado para a popula&ccedil;&atilde;o: n&atilde;o basta construir barragens. &Eacute; preciso criar uma consci&ecirc;ncia ambiental na popula&ccedil;&atilde;o.
+A considera&ccedil;&atilde;o foi feita depois de comentar a constru&ccedil;&atilde;o de cinco barragens no Estado, o que pretende come&ccedil;ar a fazer ainda este ano. Para Campos, &eacute; preciso que haja uma mudan&ccedil;a de h&aacute;bitos. &ldquo;Precisamos fazer mais que barragens. Precisamos ter consci&ecirc;ncia de poder recuperar os danos causados pela natureza. Precisamos recompor mata ciliar, precisamos que as pessoas mudem o padr&atilde;o de consumo, deixar de usar tanto combust&iacute;vel f&oacute;ssil. Precisamos de um outro conceito de desenvolvimento. Isso s&oacute; se faz quando a gente ganha as cabe&ccedil;as e os cora&ccedil;&otilde;es para um outro modelo de desenvolvimento em que a natureza n&atilde;o seja sempre a v&iacute;tima&rdquo;, explicou.
+O governador, assim como o prefeito do Recife, Jo&atilde;o da Costa (PT), lembrou os transtornos que os Estados Unidos est&atilde;o enfrentando com a cheia do Rio Mississippi. &ldquo;O clima e o tempo est&atilde;o mudando em fun&ccedil;&atilde;o do ac&uacute;mulo de agress&otilde;es que foram feitas &agrave; natureza. Ou as empresas, as pessoas e todos juntos resolvem mudar esse padr&atilde;o de rela&ccedil;&atilde;o com a natureza ou nem as barragens v&atilde;o dar jeito&rdquo;, alertou. 

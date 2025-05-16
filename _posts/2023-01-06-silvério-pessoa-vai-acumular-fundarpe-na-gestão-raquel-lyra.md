@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Silvério Pessoa vai acumular Fundarpe na gestão Raquel Lyra"
+date: 2023-01-06
+tags: jamildo, fundarpe
+author: Jamildo Melo
+---
+Al&eacute;m de cuidar da secretaria de Cultura do Estado, o cantor Silv&eacute;rio Pessoa tamb&eacute;m est&aacute; nomeado para cuidar da Fundarpe no novo governo de Pernambuco. Procurado mais cedo, o governo n&atilde;o deu explica&ccedil;&atilde;o.
+Silv&eacute;rio cuidar&aacute; do expediente da Fundarpe apenas temporariamente, pois a arquiteta Renata Borba vai assumir o posto. O nome de Renata, inclusive, j&aacute; foi anunciado pela governadora Raquel Lyra.
+Por&eacute;m, para assumir, Renata ter&aacute; de aguardar a reforma administrativa que ser&aacute; enviada pelo governo Raquel &agrave; Assembleia Legislativa de&nbsp;Pernambuco.
+Renata &eacute; formada em Arquitetura e Urbanismo pela Universidade Federal de Pernambuco, bacharel em Administra&ccedil;&atilde;o pela Universidade de Pernambuco (Fcap) e com MBA em Gest&atilde;o da Qualidade das Constru&ccedil;&otilde;es pela Universidade de Salvador. Cursa, atualmente, a especializa&ccedil;&atilde;o em Conserva&ccedil;&atilde;o e Restaura&ccedil;&atilde;o do Patrim&ocirc;nio Cultural Edificado, na Funda&ccedil;&atilde;o Joaquim Nabuco (Fundaj).
+Foi gerente de Habita&ccedil;&atilde;o do munic&iacute;pio do Cabo de Santo Agostinho e, em 2016, assumiu o cargo de superintendente do Iphan em Pernambuco, coordenando a execu&ccedil;&atilde;o de obras de restaura&ccedil;&atilde;o em diversos monumentos do estado, al&eacute;m de importantes a&ccedil;&otilde;es na &aacute;rea do Patrim&ocirc;nio Imaterial.
+Bate boca entre Jo&atilde;o Paulo e Daniel Coelho
+"E o CARNAVAL? Com a Secretaria de Cultura e Fundarpe esvaziadas pelo decreto da governadora Raquel Lyra, que demitiu os cargos comissionados e suspendeu as cess&otilde;es, a nossa folia - e toda economia que ela movimenta - pode ser gravemente prejudicada", disse Jo&atilde;o Paulo, deputado estadual.
+O secret&aacute;rio Daniel Coelho rebateu.
+"Deputado, teremos um lindo carnaval. Sei que muitos dos comissionados, eram indicados de voc&ecirc; excel&ecirc;ncia. Mas, n&atilde;o tem s&oacute; eles que sabem fazer o servi&ccedil;o. O secret&aacute;rio Silverio Pessoa j&aacute; tem uma qualificada equipe trabalhando para fazermos o melhor carnaval de todos os tempos".
+Silv&eacute;rio Pessoa
+Silv&eacute;rio Pessoa &eacute; o novo secret&aacute;rio de Cultura de Pernambuco. Ele apresenta-se como cantor, compositor e pesquisador em cultura popular e cotidiano escolar, religiosidade popular e m&uacute;sica religiosa e di&aacute;logos entre culturas, com atividades tamb&eacute;m na &aacute;rea de forma&ccedil;&atilde;o docente.
+De acordo com o governo do Estado, Silv&eacute;rio Pessoa &eacute; pedagogo, graduado pela Universidade Federal de Pernambuco. Tem p&oacute;s-gradua&ccedil;&atilde;o em Psicopedagogia pela Fafire e em Moderna Educa&ccedil;&atilde;o: Metodologias, Tend&ecirc;ncias e Foco no Aluno pela Escola de Humanidades da PUCRS. &Eacute; mestre e doutor em Ci&ecirc;ncias da Religi&atilde;o pela Universidade Cat&oacute;lica de Pernambuco, onde leciona atualmente.
+
+  
+  Nome saiu no Di&aacute;rio Oficial, com indica&ccedil;&atilde;o retroativa - Divulga&ccedil;&atilde;o
+
+Confira a lista com todos os secret&aacute;rios e secret&aacute;rias empossados:
+Casa Civil &ndash; Tulio Vila&ccedil;aCasa Militar &ndash; Coronel MamedeJusti&ccedil;a e Direitos Humanos&ndash;Lucinha MotaFazenda &ndash; Wilson Jos&eacute; de PaulaDesenvolvimento Agr&aacute;rio, Agricultura, Pecu&aacute;ria e Pesca &ndash; Aloisio FerrazSa&uacute;de &ndash; Zilda do Rego CavalcanteEduca&ccedil;&atilde;o e Esportes &ndash; Ivaneide DantasAdministra&ccedil;&atilde;o &ndash; Ana Mara&iacute;zaMobilidade e Infraestrutura &ndash; Evandro AvelarRecursos H&iacute;dricos e Saneamento &ndash; Jos&eacute; Almir CiriloPlanejamento, Gest&atilde;o e Desenvolvimento Regional &ndash; Fabr&iacute;cio Marques SantosDesenvolvimento Urbano e Habita&ccedil;&atilde;o &ndash; Simone BenevidesTurismo e Lazer &ndash; Daniel CoelhoComunica&ccedil;&atilde;o &ndash; Rodolfo Costa PintoCi&ecirc;ncia, Tecnologia e Inova&ccedil;&atilde;o &ndash; Mauric&eacute;lia VidalProcuradoria-Geral do Estado &ndash; Bianca TeixeiraCultura &ndash; Silverio PessoaDesenvolvimento Econ&ocirc;mico &ndash; Guilherme CavalcantiDefesa Social &ndash; Del. Carla Patr&iacute;cia CunhaDesenvolvimento Social, Crian&ccedil;a, Juventude e Preven&ccedil;&atilde;o &agrave;s Drogas &ndash; Carolina CabralMulher &ndash; Regina C&eacute;liaControladoria Geral do Estado &ndash; &Eacute;rika LacetDesenvolvimento Profissional e Empreendedorismo &ndash; Amanda AiresMeio Ambiente, Sustentabilidade e Fernando de Noronha &ndash; Ana Luiza FerreiraChefe de Gabinete da governadora &ndash; Eduardo VieiraAssessoria Especial &ndash; Fernando HolandaGabinete de Projetos Estrat&eacute;gicos &ndash; Diogo Bezerra&nbsp;

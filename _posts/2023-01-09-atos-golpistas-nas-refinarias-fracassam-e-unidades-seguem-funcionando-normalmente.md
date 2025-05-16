@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Atos golpistas nas refinarias fracassam e unidades seguem funcionando normalmente"
+date: 2023-01-09
+tags: jamildo, golpe, DEMOCRACIA
+author: Jamildo Melo
+---
+Segundo as organiza&ccedil;&otilde;es sindicais, as tentativas criminosas foram reprimidas com a atua&ccedil;&atilde;o conjunta da FUP, sindipetros e poder p&uacute;blico. Os ataques ,convocados por apoiadores de Bolsonaro em suas redes sociais, pretendiam impedir o fornecimento de combust&iacute;veis &agrave; popula&ccedil;&atilde;o.
+O coordenador-geral da FUP, Deyvid Bacelar, acompanha as movimenta&ccedil;&otilde;es nas unidades. Os sindipetros em todo o pa&iacute;s seguem com o monitoramento das unidades da Petrobr&aacute;s.
+&ldquo;A tentativa frustrada dos terroristas de invadir as instala&ccedil;&otilde;es da Petrobr&aacute;s demonstra a import&acirc;ncia estrat&eacute;gica da nossa empresa. Aumenta a nossa responsabilidade de reconstru&ccedil;&atilde;o da companhia, extirpando aqueles que atacam a democracia, as institui&ccedil;&otilde;es e a Petrobr&aacute;s. Nenhuma refinaria foi bloqueada, gra&ccedil;as &agrave; atua&ccedil;&atilde;o da FUP e seus sindicatos junto aos poderes p&uacute;blicos&rdquo;, disse o dirigente.
+At&eacute; a manh&atilde; desta segunda-feira, foram mapeados pequenos grupos de bolsonaristas nas proximidades de acesso &agrave;s refinarias e distribuidoras em S&atilde;o Paulo, Minas Gerais e no Rio Grande do Sul, mas sem bloqueios ou impactos para a opera&ccedil;&atilde;o das unidades.
+&ldquo;A situa&ccedil;&atilde;o na Repar (Refinaria Presidente Get&uacute;lio Vargas, no Paran&aacute;) na manh&atilde; desta segunda-feira &eacute; de normalidade, por&eacute;m aconteceu tentativa de bloqueio de distribuidora privada localizada pr&oacute;xima &agrave; refinaria por parte dos terroristas durante a madrugada. O movimento foi reprimido pelo aparato policial de seguran&ccedil;a&rdquo;, relata o presidente do sindipetro do Paran&aacute; e Santa Catarina, Alexandro Guilherme Jorge.
+Na Refinaria Henrique Lage (Revap), em S&atilde;o Paulo, aproximadamente 30 manifestantes continuavam no local nesta manh&atilde;, abordando caminh&otilde;es para evitar acesso &agrave; unidade. Mas a Pol&iacute;cia Militar local segue atuando, garantindo o fluxo e a seguran&ccedil;a dos caminhoneiros. N&atilde;o houve bloqueios.
+Na Refinaria Gabriel Passos (Regap), em Minas Gerais, 5 manifestantes continuam no canteiro central da via de acesso &agrave; unidade. As pol&iacute;cias municipal e federal e o Corpo de Bombeiros est&atilde;o presentes. N&atilde;o houve bloqueios.
+Na Refinaria Duque de Caxias (Reduc), no Rio de Janeiro, houve movimenta&ccedil;&atilde;o de alguns poucos manifestantes durante a madrugada, que foram rapidamente dispersos. Nesta manh&atilde;, n&atilde;o h&aacute; presen&ccedil;a de bolsonaristas. A Pol&iacute;cia Militar e o Batalh&atilde;o de Choque est&atilde;o presentes.
+Na Refinaria Alberto Pasqualini (Refap), no Rio Grande do Sul, h&aacute; aproximadamente 10 manifestantes, que permanecem acampados na r&oacute;tula em frente &agrave; unidade. A Pol&iacute;cia Militar, a Pol&iacute;cia Rodovi&aacute;ria Federal e o Batalh&atilde;o de Choque est&atilde;o presentes. N&atilde;o h&aacute; bloqueio.
+Atos pelo Brasil
+Organiza&ccedil;&otilde;es sindicais e populares que integram as frentes Brasil Popular e Povo Sem Medo, o F&oacute;rum das Centrais Sindicais, a Coaliz&atilde;o Negra Por Direitos e a Converg&ecirc;ncia Negra, est&atilde;o chamando a popula&ccedil;&atilde;o &agrave;s manifesta&ccedil;&otilde;es que ocorrer&atilde;o por todo o Brasil nesta segunda-feira (9), em defesa da democracia, das institui&ccedil;&otilde;es e da soberania do voto popular.
+V&iacute;deo mostra BOLSONARISTAS em invas&atilde;o ao plen&aacute;rio do SENADO FEDERAL

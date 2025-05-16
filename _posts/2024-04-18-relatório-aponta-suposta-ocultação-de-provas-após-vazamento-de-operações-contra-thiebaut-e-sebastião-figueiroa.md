@@ -1,0 +1,27 @@
+---
+layout: post
+title: "Relatório aponta suposta ocultação de provas após vazamento de operações contra Thiebaut e Sebastião Figueiroa"
+date: 2024-04-18
+tags: jamildo, Justiça Federal
+author: Jamildo Melo
+---
+O relat&oacute;rio final da Pol&iacute;cia Federal em torno de supostos crimes de corrup&ccedil;&atilde;o levantados a partir de contratos da pandemia, no &acirc;mbito do Governo de Pernambuco, sustenta que h&aacute; &ldquo;indicativos de conhecimento pr&eacute;vio das opera&ccedil;&otilde;es policiais Articulata e Payback e da oculta&ccedil;&atilde;o de provas por parte dos investigados&rdquo;.
+De acordo com o documento, s&atilde;o &ldquo;flagrantes as evid&ecirc;ncias&rdquo; de que os investigados tiveram conhecimento antecipado da opera&ccedil;&atilde;o.
+Nesse sentido, o documento registra elementos que corroboram para esse vazamento a partir de informa&ccedil;&otilde;es das resid&ecirc;ncias dos empres&aacute;rios Sebasti&atilde;o Figueiroa e Luciano Cyreno Ferraz e do ex-secret&aacute;rio Renato Xavier Thiebaut, da sede do Gabinete de Projetos Estrat&eacute;gicos, no Centro de Conven&ccedil;&otilde;es, em Olinda, al&eacute;m dos celulares de Simone Padilha Ferraz (secret&aacute;ria de Luciano Cyreno Ferraz) e de Renata da Silva Santos Beltr&atilde;o (secret&aacute;ria de Renato Xavier Thiebaut).
+
+      Leia Também
+      
+	    				
+                                              		             
+                                                                                            PF indicia e aponta ex-chefe do Gabinete de Projetos Estratégicos do Estado como 'chefe da organização criminosa'
+                                      
+	          
+
+Segundo a PF, a decis&atilde;o judicial e os mandados que viabilizaram a Opera&ccedil;&atilde;o Payback foram expedidos em oito de dezembro de 2020, feriado em homenagem &agrave; Nossa Senhora da Concei&ccedil;&atilde;o na capital pernambucana. No dia seguinte, segundo o relato oficial, &ldquo;aportou not&iacute;cia an&ocirc;nima comunicando que Sebasti&atilde;o Figueiroa j&aacute; tinha sido alertado por seus advogados quanto &agrave; exist&ecirc;ncia de uma opera&ccedil;&atilde;o policial em seu desfavor&rdquo;.
+&ldquo;... infelizmente, o resultado das buscas comprovou o vazamento da investiga&ccedil;&atilde;o, conforme fica n&iacute;tido em quase todos os Relat&oacute;rios de dilig&ecirc;ncia elaborados pelas diversas Autoridades Policiais respons&aacute;veis pelo cumprimento dos mandados&rdquo;, afirma a entidade.
+Na resid&ecirc;ncia de Sebasti&atilde;o Figueiroa, por exemplo, o advogado respons&aacute;vel pela sua defesa chegou imediatamente ap&oacute;s a Pol&iacute;cia, ainda por volta das seis da manh&atilde;. Questionados ainda no momento da busca e apreens&atilde;o, Figueiroa e sua esposa responderam que ela, Fabiana Rabin, estava na varanda, &agrave;s 6h, no momento da chegada das viaturas.
+Na resid&ecirc;ncia de Luciano Cyreno Ferraz, considerado pelas autoridades policiais o suposto arrecadador de propinas do esquema, chamou aten&ccedil;&atilde;o &ldquo;o fato de n&atilde;o existir no im&oacute;vel qualquer tipo de documento ou anota&ccedil;&atilde;o. Ressalte-se: n&atilde;o foi encontrada uma s&oacute; folha de papel em toda a resid&ecirc;ncia, denotando que o local havia sido totalmente limpo&rdquo;.
+Denominado pela investiga&ccedil;&atilde;o como &ldquo;chefe da organiza&ccedil;&atilde;o criminosa&rdquo;, Renato Thiebaut abriu as portas da sua resid&ecirc;ncia antes mesmo de os policiais tocarem a campainha, informa o relat&oacute;rio. &ldquo;A equipe policial foi surpreendida com o mesmo abrindo a porta do im&oacute;vel antes mesmo que fosse tocada a campainha&rdquo;.
+No im&oacute;vel, um cofre vazio estava aberto &ndash; com a chave inserida no dispositivo &ndash; e apenas um celular foi apreendido, mas o investigado n&atilde;o cedeu a senha do aparelho. Apesar de imagens do condom&iacute;nio apontarem que Thiebaut possu&iacute;a um tablet (esse equipamento aparece em suas apari&ccedil;&otilde;es no elevador do pr&eacute;dio em dias imediatamente anteriores), o equipamento n&atilde;o foi encontrado pelos policiais.
+Ainda de acordo com as autoridades policiais, os celulares das secret&aacute;rias de Luciano Cyreno Ferraz e de Renato Xavier Thiebaut tiveram significativa parcela dos seus dados apagados, especificamente conversas (chats de aplicativos) mantidos entre os dois. De acordo com a apura&ccedil;&atilde;o, h&aacute; registro de v&aacute;rios encontros entre os dois, parte deles ocorrendo na sede da pr&oacute;pria Secretaria de Projetos Estrat&eacute;gicos.
+Na conclus&atilde;o, a pol&iacute;cia afirma que &eacute; &ldquo;pouqu&iacute;ssimo prov&aacute;vel que se trate de uma infeliz coincid&ecirc;ncia o fato de todos os locais vinculados aos tr&ecirc;s principais alvos da presente investiga&ccedil;&atilde;o (Sebasti&atilde;o Figueiroa, Luciano Ferraz e Renato Thiebaut) n&atilde;o conterem pap&eacute;is, documentos, m&iacute;dias, computadores, anota&ccedil;&otilde;es ou qualquer outro elemento que pudesse se mostrar &uacute;til &agrave; investiga&ccedil;&atilde;o quando da execu&ccedil;&atilde;o dos mandados judiciais&rdquo;.

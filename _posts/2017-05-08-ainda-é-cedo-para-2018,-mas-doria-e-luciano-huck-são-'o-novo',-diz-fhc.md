@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Ainda é cedo para 2018, mas Doria e Luciano Huck são 'o novo', diz FHC"
+date: 2017-05-08
+tags: doria,eleições2018,luciano huck,novos,Pará,são
+author: None
+---
+Em entrevista ao jornal Folha de S. Paulo, o ex-presidente Fernando Henrique Cardoso afirmou ser "muito cedo" para falar em candidaturas ao Palácio do Planalto em 2018. Ainda assim, ao ser questionado sobre o prefeito de São Paulo, João Doria, que passou a ser uma "tábua de salvação" para o PSDB em meio aos grandes nomes do partido sendo atingidos pela Operação Lava Jato, o tucano afirmou que nomes como Doria e o apresentador de TV Luciano Huck "são o novo".
+LEIA MAIS:
+&gt;&gt; 'É mais confusão', diz FHC sobre eventual cassação de Temer
+&gt;&gt; Delação aponta esquema de corrupção no governo FHC
+"O PSDB, ao contrário do que dizem, sempre teve muitos quadros. Sempre tivemos três, quatro possíveis candidatos. A questão é que o sistema político brasileiro não favorece a formação de líderes nacionais. Fora de campanhas, quem aparecia nacionalmente? O ex-presidente, o presidente e um ou outro candidato a presidente. Quando alguém chamava atenção? Só os mais bizarros conseguiam. Isso agora mudou, está mudando. O Doria está fora [desse esquema anterior], o Luciano Huck está fora. Eles são o novo porque não estão sendo propelidos pelas forças de sempre. Temos de ver como isso se desenrola. Eu hoje acho cedo perguntar quem vai ser candidato. Temos de ver como o processo anda, como a sociedade está absorvendo todo o impacto da Lava Jato", afirmou.
+Ao ser perguntado sobre o governo de Michel Temer, FHC afirmou que o presidente "entendeu que o papel dele ou é histórico ou é nenhum". "A sua força está no Congresso, que está numa circunstância muito difícil devido à questão da Lava Jato. Todos, a oposição, o PT, o meu partido, foram atingidos. Mas o balanço é positivo. Veja, o governo vive uma crise herdada, assumindo uma massa falida. Às vezes, ele não tem tempo de se beneficiar dos avanços. Às vezes, tem. Vamos ver", apontou.
+&gt;&gt; Doria exibe carteira de trabalho em resposta a provocação de Lula
+De acordo com FHC, o PSDB não errou ao entrar no governo. "Era inevitável a entrada. Se não entrássemos, seríamos acusados de irresponsabilidade. Seríamos criticados de qualquer modo, mesmo se ficássemos de fora. Sempre há um preço a pagar. Eu posso, de toda maneira, fazer um comentário quase cínico: a eleição é só daqui a um ano e meio. Isso não significa que vamos apoiar, como partido político, ou fazer uma reforma qualquer. Não faremos. Por exemplo, a proposta de um deputado do meu partido [Nilson Leitão, do Mato Grosso] de mexer com as relações trabalhistas rurais, aquilo é uma loucura [a ideia aventada permite algo que críticos chamam de trabalho escravo legalizado, com pagamento na forma de alimentação e estadia]. Não pode ser assim".
+Sobre a ascensão de Lula nas pesquisas eleitorais, o ex-presidente afirmou que é um pouco estranho, apontando que "o PT virou o Lula". " Isso é ruim para ele, é ruim para o partido. E o Lula perdeu a classe média e o pessoal do dinheiro, isso não volta mais. A credibilidade está muito arranhada. Fora isso, nós temos de pensar que ainda haverá a pressão da campanha, os temas da campanha, se ele for candidato e se chegar ao segundo turno".

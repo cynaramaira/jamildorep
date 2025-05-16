@@ -1,0 +1,21 @@
+---
+layout: post
+title: "PF encaminha à Procuradoria inquérito sobre palestras de Lula"
+date: 2017-06-13
+tags: Lula,procuradoria municipal
+author: None
+---
+Estadão Conteúdo - A Polícia Federal encaminhou para a força-tarefa do Ministério Público Federal o inquérito que apura crimes de corrupção passiva e de lavagem de dinheiro supostamente praticados pelo ex-presidente da República Luiz Inácio Lula da Silva em sua empresa de palestras, a LILS Palestras, Eventos e Publicações - aberta em 2011, após deixar o governo.
+A investigação da Operação Lava Jato, em Curitiba, é uma das que ainda vão virar denúncia criminal, a ser apresentada ao juiz federal Sérgio Moro. Ela apura recebimento direto de R$ 9 milhões de seis empreiteiras acusadas de cartel e corrupção na Petrobras, outros pagamentos indiretos e de outras empresas.
+As suspeitas são que os pagamentos feitos por palestras realizadas pelo petista, no Brasil e em países das américas Latina e Central e África possam ter ocultado propinas.
+Na quinta-feira (8), o delegado Dante Pegoraro Lemos assumiu o inquérito e o encaminhou para os procuradores da Lava Jato, em Curitiba. O procedimento criminal será acrescido das delações premiadas do executivos da Odebrecht, uma das empreiteiras do cartel que fatiava obras na Petrobras que pagou pelas palestras de Lula.
+O inquérito era conduzido pelo delegado Márcio Anselmo, que iniciou as apurações da Lava Jato, e que no início do ano foi transferido para Vitória, no Espírito Santo.
+No dia 23 de março, ao deixar a condução do inquérito, o delegado escreveu em despacho que as investigações foram instauradas para apurar possíveis crimes de corrupção passiva e lavagem de dinheiro, após quebra de sigilo fiscal bancário, que "aponta recebimento de valores das empresas investigadas no âmbito da Operação Lava Jato (Odebrecht, Camargo Corrêa, UTC, Queiroz Galvão, Andrade Gutierrez e OAS) por parte da empresa LILS Palestras, Eventos e Publicações Ltda. em valores que alcançam R$ 9.338.658,75".
+Criada para que o ex-presidente pudesse dar palestras, a LILS movimentou entre 2011 e 2015 um total de R$ 52,3 milhões. Foram R$ 27 milhões recebidos, a maior parte de empreiteiras e grandes empresas, e R$ 25,2 milhões em débitos.
+Na ocasião, Anselmo sugeriu que o novo responsável pelo inquérito aguardasse "as informações prestadas pelos colaboradores relacionados aos fatos sob investigação" ou que fosse solicitado ao Supremo Tribunal Federal o "compartilhamento das informações" da mega delação da Odebrecht homologada em janeiro.
+A investigação contra Lula é uma das que ainda serão transformadas em processo criminal pela Lava Jato em Curitiba. O ex-presidente já é réu em dois processos abertos pelo juiz federal Sérgio Moro. Um deles, em fase final, aponta corrupção e lavagem de dinheiro na reforma e ampliação do tríplex do Guarujá (SP), pela OAS, e o segundo pela compra de um terreno e de um apartamento pela Odebrecht, que teria o petista como benefíciario.
+O ex-presidente ainda foi denunciado pela Procuradoria no final de maio por corrupção e lavagem de dinheiro nas reformas do sítio de Atibaia (SP), que teria envolvido as empreiteiras Odebrecht, OAS e Schahin, além do pecuarista José Carlos Bumlai, amigo de Lula.
+Fora de Curitiba, Lula é réu em outros três processos ligados direta ou indiretamente à Lava Jato.
+Outro lado
+Por meio de nota, o Instituto Lula negou mais uma vez as irregularidades. "Lula é vítima de 'lawfare'. Uma das táticas desse fenômeno consiste justamente na abertura de diversos procedimentos jurídicos sem materialidade, frívolos, exatamente como ocorre em relação a essa investigação relativa a palestras efetivamente realizadas pelo ex-presidente a partir de relações privadas e lícitas", destacou o Instituto Lula.
+Ainda em nota, o instituto salientou que todas as palestras do ex-presidente foram feitas e pagas com as devidas emissões de notas e pagamento de impostos. "Todas as informações sobre elas encontram-se em relatório disponível na internet", informou. "Tudo da mesma forma que outros ex-presidentes e dentro da lei, cobrando o mesmo valor e condições de palestras para mais de 40 empresas e setores, incluindo, por exemplo, Microsoft e Infoglobo", enfatizou o instituto.

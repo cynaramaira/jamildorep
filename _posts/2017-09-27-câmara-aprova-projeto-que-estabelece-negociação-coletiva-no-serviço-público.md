@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Câmara aprova projeto que estabelece negociação coletiva no serviço público"
+date: 2017-09-27
+tags: aprovados,Câmara,projeto,renegociação,Serviço
+author: None
+---
+Foi aprovado na Comissão de Constituição e Justiça (CCJ) da Câmara dos Deputados, nesta terça-feira (27), com o parecer favorável do relator Betinho Gomes (PSDB-PE), o projeto de lei que estabelece normas gerais de negociação coletiva  na administração pública direta, nas autarquias e nas fundações públicas dos podes da União, dos Estados, do Distrito Federal e dos municípios.
+A proposta estabelece princípios, objetivos gerais e limites para negociação coletiva; forma, abrangência, objeto, atores do instrumento de formalização da negociação coletiva; da relação com o Poder Legislativo, nas matérias provenientes de negociação coletiva que devam ser veiculadas por lei com reserva de iniciativa.
+No relatório, o tucano destacou ser um contrassenso que a legislação atual assegure ao servidor público o direito a greve, sem lhe garantir, contudo, o direito à negociação coletiva. “Até mesmo porque a negociação coletiva é corolário do direto de greve e do direito de sindicalização”, argumentou o deputado.
+Betinho Gomes ainda ressaltou que o projeto busca estimular as formas alternativas para a solução dos conflitos com o estímulo à autocomposição, promovendo a redução da judicialização de demandas, que podem ser resolvidas de modo mais célere entre as partes envolvidas na contenda.
+O Executivo federal possui canais permanentes de negociação, mas sem previsão legal. É isso que o projeto objetiva adequar, ao regulamentar essa prática, assegurando efetivamente as condições de participação dos atores envolvidos nesse processo, com as garantias constitucionais, o detalhamento dos procedimentos e as consequências jurídicas em razão da não observância dos pactos celebrados.
+“Esse projeto vai significar um avanço importante nas negociações entre o serviço público e o Executivo. É um instrumento modernizador dessas relações. Vai permitir que, antes de qualquer tipo de paralisação, o governo tenha a oportunidade de dialogar com os servidores condições de trabalho, conquistas, ganhos efetivos e sobretudo eficiência porque, a partir desse instrumento de negociação coletiva, vai impedir gastos desnecessários com paralisações que poderiam ser evitadas”, destaca o deputado Betinho Gomes.
+Como também foi aprovado pela Comissão de Trabalho, de Administração e Serviço Público, e tramita em caráter conclusivo, a proposta está aprovada pela Câmara e deve seguir para a sanção da Presidência da República.

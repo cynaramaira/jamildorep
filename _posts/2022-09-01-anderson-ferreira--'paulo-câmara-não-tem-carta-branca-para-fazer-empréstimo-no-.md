@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Anderson Ferreira: 'Paulo Câmara não tem carta branca para fazer empréstimo no apagar das luzes'"
+date: 2022-09-01
+tags: jamildo, anderson ferreira
+author: Jamildo Melo
+---
+O governador Paulo C&acirc;mara (PSB) revelou ao Blog de Jamildo, nesta quinta-feira (1), a contrata&ccedil;&atilde;o de um empr&eacute;stimo, no valor de R$ 800 milh&otilde;es, pelo Governo de Pernambuco, junto a bancos privados. Os detalhes foram informados logo depois pelo secret&aacute;rio da Fazenda, D&eacute;cio Padilha, em evento em Suape, Ipojuca.
+Nesta noite de quinta, o candidato de oposi&ccedil;&atilde;o Anderson Ferreira, do PL, reclamou da iniciativa.
+"A menos de 120 dias para o fim do mandato ... Feito no apagar das luzes, o ato despertou a aten&ccedil;&atilde;o e me posiciono no sentido de requerer informa&ccedil;&otilde;es quanto &agrave;s taxas de juros, aos prazos e &agrave;s garantias oferecidas, bem como ao comprometimento da receita dispon&iacute;vel".
+"O empr&eacute;stimo pode ser classificado como uma &ldquo;negociata imoral de cr&eacute;dito&rdquo; conduzida por Paulo C&acirc;mara, que, nestas elei&ccedil;&otilde;es tem como candidato &agrave; sucess&atilde;o Danilo Cabral (PSB). Vou reavaliar, a partir de janeiro, todas as decis&otilde;es que est&atilde;o sendo tomadas a toque de caixa".
+&ldquo;Definitivamente, n&atilde;o h&aacute; transpar&ecirc;ncia em nada no que o governo do PSB faz, mas o povo do nosso estado pode contar com a certeza de que, no dia 1&deg; de janeiro de 2023, n&oacute;s iremos abrir essa caixa preta. N&atilde;o se faz um empr&eacute;stimo de R$ 800 milh&otilde;es &agrave;s v&eacute;speras de deixar o governo e ainda mais sob a condi&ccedil;&atilde;o de pior governador da hist&oacute;ria de Pernambuco&rdquo;, afirmou o liberal.
+"A atitude foi de grande irresponsabilidade e a conta a ser paga vai ser deixada no colo do futuro gestor estadual. E lembrou que, at&eacute; a presente data, n&atilde;o houve qualquer explica&ccedil;&atilde;o por parte do gabinete do governador Paulo C&acirc;mara quanto &agrave; destina&ccedil;&atilde;o dos recursos arrecadados pelo Fundo Estadual de Equil&iacute;brio Fiscal (Feef)".
+
+&ldquo;Como se n&atilde;o bastasse todas as irresponsabilidades que se arrastam nesse governo, al&eacute;m de n&atilde;o ter moral e vergonha na cara, Paulo C&acirc;mara tamb&eacute;m n&atilde;o tem credibilidade junto &agrave; popula&ccedil;&atilde;o para fazer esse empr&eacute;stimo. Ele n&atilde;o tem carta branca para isso. E agora nos deparamos com mais esse presentinho, que sabe-se l&aacute; quanto ir&aacute; custar ao futuro do estado. Eleito, vou responsabiliz&aacute;-lo administrativa e, se couber, criminalmente por essas atitudes&rdquo;, assinalou Anderson Ferreira.
+
+PL aciona TRE contra Empetur por destinar recursos p&uacute;blicos para showm&iacute;cio em Arcoverde
+O Partido Liberal (PL) em Pernambuco entrou com uma representa&ccedil;&atilde;o junto ao Tribunal Regional Eleitoral (TRE) contra a Empresa Pernambucana de Turismo (Empetur) pelo que chamam de financiamento de propaganda pol&iacute;tico-eleitoral durante apresenta&ccedil;&atilde;o da cantora Bia Marinho, na &uacute;ltima segunda-feira (26), no 1&deg; Festival da Carraspana, em Arcoverde.
+A artista recebeu verba de R$ 15 mil dos cofres estaduais. A representa&ccedil;&atilde;o alega que a manifesta&ccedil;&atilde;o pol&iacute;tica caracterizou realiza&ccedil;&atilde;o de showm&iacute;cio, pr&aacute;tica vedada pela Legisla&ccedil;&atilde;o Eleitoral.
+O PL pede ao TRE que proceda pela intima&ccedil;&atilde;o do prefeito de Arcoverde, Jos&eacute; Wellington Cordeiro Maciel; do diretor-presidente da Empetur, Ant&ocirc;nio Neves Baptista; e da cantora Bia Marinho, para que sejam prestados os devidos esclarecimentos.
+&ldquo;Busca-se t&atilde;o somente pela medida alcan&ccedil;ar uma provid&ecirc;ncia para evitar a repeti&ccedil;&atilde;o do abuso eleitoral, de modo que se clama pela arbitramento de multa por essa zona eleitoral em valor adequado e proporcional para atingir o objetivo de inibir a nociva pr&aacute;tica&rdquo;, afirma o partido em trecho da representa&ccedil;&atilde;o.
+&nbsp;

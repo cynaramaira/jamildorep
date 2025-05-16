@@ -1,0 +1,21 @@
+---
+layout: post
+title: "A BR-104 que não quer parar"
+date: 2010-05-28
+tags: Naomi Campbell
+author: None
+---
+De Anat&oacute;lio Juli&atilde;o*
+A BR-104, tamb&eacute;m conhecida como a BR do Jeans, &eacute; a rodovia atrav&eacute;s da qual escoa a enorme produ&ccedil;&atilde;o de confec&ccedil;&otilde;es que diariamente brota, sobretudo, nos munic&iacute;pios de Toritama e Santa Cruz do Capibaribe.
+Por ela milhares de sulanqueiros de todo o Pa&iacute;s chegam para abastecer-se no monumental Shopping Santa Cruz Moda Center, maior que o Anhembi em S&atilde;o Paulo, atualmente abrigando mais de 6.000 antigos feirantes, que antes se espalhavam pela cidade ocupando-lhe quase todas as ruas.
+Atrav&eacute;s dela, centenas de toyoteiros serpenteiam levando e trazendo fregueses, pe&ccedil;as de tecido e dinheiro, muito dinheiro, que irriga a economia do Agreste Central e parte do Setentrional e come&ccedil;a, j&aacute;, a se capilarizar por outras cidades n&atilde;o t&atilde;o pr&oacute;ximas ao vigoroso p&oacute;lo de confec&ccedil;&otilde;es.
+Anunciada como obra refer&ecirc;ncia do governo de Eduardo Campos, a duplica&ccedil;&atilde;o da BR-104 redobrou os &acirc;nimos dos agrestinos de toda aquela regi&atilde;o. &ldquo;Agora vai&rdquo;, pensaram.
+Os trabalhos foram efetivamente iniciados, e um batalh&atilde;o de m&aacute;quinas de terraplenagem e asfalto passou a movimentar-se freneticamente em quase toda a sua extens&atilde;o. Um verdadeiro enxame de trabalhadores atuando em todos os setores como disciplinadas formigas emergidas de um formigueiro m&aacute;gico, preparando-se para o inverno.
+Foi assim que a vi, entusiasmado tamb&eacute;m, h&aacute; algumas semanas, quando por ali transitei pela &uacute;ltima vez.
+Na &uacute;ltima quarta-feira, por quest&otilde;es de trabalho, voltei a percorrer a BR-104. Desde o seu come&ccedil;o, partindo de Caruaru, notei que algo estava diferente. &Agrave; medida que fui penetrando o Agreste em busca de Toritama, verifiquei com espanto que as m&aacute;quinas tinham sido retiradas, os trabalhadores em &iacute;nfimos grupos se juntavam em torno de algum pequeno acabamento, ap&oacute;s longos trechos de deserto total.
+As obras-de-arte tinham tamb&eacute;m sido abandonadas, de forma que enormes bueiras, passagens, coletores e viadutos se expunham ao sol como caveiras de bovinos abatidos pela seca. Aqui e acol&aacute; uma fina poeira avermelhada corria do leito terraplanado da rodovia para a antiga, estreita e perigosa BR-104 de sempre.
+N&atilde;o disponho de informa&ccedil;&otilde;es consistentes sobre o que verdadeiramente motivou a paralisa&ccedil;&atilde;o da duplica&ccedil;&atilde;o de apenas 56 quil&ocirc;metros de extens&atilde;o, nem o que fez a empresa respons&aacute;vel pela sua execu&ccedil;&atilde;o retirar do canteiro de obras, m&aacute;quinas e homens como se tivessem sido abduzidos por um gigantesco ovni. E n&atilde;o quero arriscar, para n&atilde;o cometer injusti&ccedil;as.
+O que sim sei, &eacute; que, at&eacute; ontem, a BR-104 lembrava muito as paisagens da refinaria Abreu e Lima, em Ipojuca, e da Hemobr&aacute;s, em Goiana, de reluzentes placas oficiais, cujos imensos terrenos polvorosos, despidos de toda cobertura vegetal, retalhados e chapados pelas m&aacute;quinas, se nos apresentam como Saaras tropicais.
+Decepcionado, como toda a popula&ccedil;&atilde;o da regi&atilde;o de Toritama e Santa Cruz do Capibaribe, pensei comigo: &ldquo;deve ser algum sortil&eacute;gio que lan&ccedil;aram sobre sua excel&ecirc;ncia o governador Eduardo Campos. Suas grandes obras, logo ap&oacute;s vigoroso e barulhento in&iacute;cio, n&atilde;o conseguem ultrapassar o ro&ccedil;o do mato e os primeiros cortes da terraplenagem&rdquo;.
+Olhei para o c&eacute;u azul e di&aacute;fano do Agreste Central e pedi ao meu Padim Padre C&iacute;cero Rom&atilde;o Batista do Juazeiro que n&atilde;o permitisse que essa lufada de derrota e incompet&ecirc;ncia viesse a contaminar a fren&eacute;tica atividade dos homens e mulheres do Agreste que conseguiram, com sua pr&oacute;pria iniciativa e perseveran&ccedil;a, desenvolver uma das mais consistentes estrat&eacute;gias de sobreviv&ecirc;ncia, em ambiente t&atilde;o in&oacute;spito de Pernambuco.
+*Anat&oacute;lio Juli&atilde;o &eacute; soci&oacute;logo 

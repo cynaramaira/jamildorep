@@ -1,0 +1,37 @@
+---
+layout: post
+title: "Guerra jurídica entre OAB e MPPE ?"
+date: 2018-02-27
+tags: entrega,guerra,mppe,pessoa jurídica
+author: None
+---
+Os promotores e procuradores pernambucanos, em ao menos três grupos de Whatsapp, estão detonando a direção da OAB de Pernambuco, depois da anunciada decisão da entidade dos advogados de entrar na Justiça do Estado contra a criação de um auxílio-saúde, por parte do MPPE, no final do ano passado.
+Pelos prints recebidos pelo blog, lê-se cobras e lagartos contra a OAB, em uma reação muito forte. Todas as conversas são no sentido de manter os penduricalhos.
+“Tomara que a amizade resolva isto. Absurdo a OAB querer nos pautar”, escreve um, abaixo de uma foto na qual aparece o presidente da OAB Ronnie Duarte e o vice-presidente Leonardo Accioly.
+“Dão muita ‘asa’ a esse povo aqui”, reclama outro, querendo pautar o blog de Jamildo e toda a imprensa local.
+Para piorar o clima, relator em um processo no conselho do MP, o vice-presidente da OAB de Pernambuco, Leonardo Accioly, mandou incluir no teto verbas indenizatórias dos promotores. Leia o post do blog mais cedo.
+Nesta segunda-feira, no Recife, o Conselho Pleno da OAB Pernambuco aprovou por unanimidade, na noite desta segunda-feira (26), uma ação direta de inconstitucionalidade contra a lei que concede auxílio-saúde para todos os promotores e procuradores do Ministério Público do Estado (MPPE), inclusive para os já aposentados. Foram 36 votos favoráveis.
+A expectativa do presidente da Ordem, Ronnie Preuss Duarte, é de que a ação esteja pronta na próxima semana. A pauta deve ser levada ao Conselho Federal da OAB nesta terça-feira (27). Caberá ao colegiado nacional levar o documento ao Supremo Tribunal Federal (STF), que analisará o caso.
+LEIA TAMBÉM
+ » Dirceu Barros cumpre promessa de campanha sobre auxílio-saúde para membros do MPPE
+ » OAB insiste nas críticas contra auxílio-saúde dos promotores do MPPE: ‘aumento salarial escamoteado’
+ » Sem crise, MPPE agora quer auxílio-saúde para promotores e procuradores
+O auxílio-saúde de R$ 500 foi aprovado pela Assembleia Legislativa de Pernambuco (Alepe) no fim do ano passado, proposto pelo procurador-geral de Justiça, Francisco Dirceu Barros. Segundo a OAB, o impacto aos cofres estaduais é estimado em quase R$ 3 milhões somente em 2018, primeiro ano de vigência do benefício.
+Desde que o projeto entrou em tramitação, recebeu críticas da Ordem, que afirmou ser um “penduricalho” e criticou fatos como o de não incidir Imposto de Renda sobre ele. 
+“São exatamente iniciativas do tipo que colocam em xeque a imagem do Ministério Público, bem como do Poder Legislativo junto à população. Em tempos de aguda crise, nos quais há notório déficit nos quadros do Ministério Público e enquanto os jurisdicionados ressentem a ausência de promotores nas comarcas, é inaceitável que os recursos públicos disponíveis sejam direcionados ao incremento da remuneração de profissionais que já ocupam o ápice da pirâmide remuneratória”, disse a diretoria da OAB no fim de 2017.
+OAB insiste nas críticas contra auxílio-saúde dos promotores do MPPE desde o final do ano passado e chama de “aumento salarial escamoteado”
+No final do ano passado, após a ampla repercussão da matéria do Blog, repercutindo as falas do presidente da OAB de Pernambuco contra o então novo auxílio-saúde indenizatório dos promotores e procuradores do Ministério Público do Estado (MPPE), a diretoria da OAB divulgou uma nota oficial.
+O presidente Ronnie Duarte chegou a compartilhar a matéria do Blog em seu Facebook pessoal. Após vários advogados elogiarem as falas de Ronnie no Blog, a diretoria da OAB emitiu a nota oficial.
+"São exatamente iniciativas do tipo que colocam em xeque a imagem do Ministério Público, bem como do Poder Legislativo junto à população. Em tempos de aguda crise, nos quais há notório déficit nos quadros do Ministério Público e enquanto os jurisdicionados ressentem a ausência de promotores nas comarcas, é inaceitável que os recursos públicos disponíveis sejam direcionados ao incremento da remuneração de profissionais que já ocupam o ápice da pirâmide remuneratória", atacou a diretoria da OAB.
+A diretoria da OAB criticava ainda que a verba será indenizatória, ou seja, não vai incidir nenhum imposto sobre o "penduricalho". A OAB acusa os promotores de estarem recebendo um "aumento salarial escamoteado".
+"Como a verba mensal de R$ 500 destinada à assistência à saúde não será incorporada ao subsídio, o valor estará isento da incidência de Imposto de Renda e contribuição previdenciária, funcionando também como aumento salarial escamoteado. E assim, de forma simples e sem alarde, o novo privilégio deverá subtrair os cofres públicos em quase R$ 3 milhões apenas em 2018", explica a OAB.
+A OAB informou então que o "penduricalho" para os membros do MPPE vai "subtrair os cofres públicos em quase R$ 3 milhões apenas em 2018". Para os advogados, se trata de um "novo privilégio".
+Um detalhe não passou despercebido. É que a nota estava assinada inicialmente por quatro membros da diretoria da OAB, inclusive pelo conselheiro nacional do Ministério Público, Leonardo Accioly da Silva, que é também vice-presidente da OAB em Pernambuco.
+Leonardo Accioly é membro do Conselho Nacional do Ministério Público (CNMP), órgão de cúpula do Ministério Público brasileiro. Indicado pela OAB, sabatinado pelo Senado e nomeado pelo presidente da República, tem mandato de dois anos no CNMP, mas pode continuar acumulando suas funções na OAB.
+Segundo uma fonte sob reserva na OAB, para evitar constrangimentos com os colegas de Ministério Público de Leonardo Accioly, esta última nota contra o auxílio-saúde teve seu texto alterado no site algumas horas depois, sem alarde. Foram retirados os quatro nomes e passou a ser assinada apenas pela "diretoria da OAB".
+Veja o texto final da nota oficial da OAB:
+"Sobre pagamento de auxílio-saúde a promotores e procuradores de justiça
+A Ordem dos Advogados do Brasil, Seccional Pernambuco, lamenta profundamente a aprovação, por parte da Assembleia Legislativa de Pernambuco, em Primeira Discussão, do Projeto de Lei Complementar Desarquivado Nº 2.048/2014, do Ministério Público Estadual, concedendo auxílio-saúde de caráter indenizatório a promotores e procuradores de justiça ativos e inativos.
+Como a verba mensal de R$ 500 destinada à assistência à saúde não será incorporada ao subsídio, o valor estará isento da incidência de Imposto de Renda e contribuição previdenciária, funcionando também como aumento salarial escamoteado. E assim, de forma simples e sem alarde, o novo privilégio deverá subtrair os cofres públicos em quase R$ 3 milhões apenas em 2018.
+São exatamente iniciativas do tipo que colocam em xeque a imagem do Ministério Público, bem como do Poder Legislativo junto à população. Em tempos de aguda crise, nos quais há notório déficit nos quadros do Ministério Público e enquanto os jurisdicionados ressentem a ausência de promotores nas comarcas, é inaceitável que os recursos públicos disponíveis sejam direcionados ao incremento da remuneração de profissionais que já ocupam o ápice da pirâmide remuneratória.
+Diretoria da OAB-PE"

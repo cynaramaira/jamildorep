@@ -1,0 +1,29 @@
+---
+layout: post
+title: "Contra privatização, governadores do Nordeste propõem desvincular a Chesf da Eletrobras"
+date: 2017-09-05
+tags: Chesf,Contran,Eletrobras,GOVERNADORES,nordeste,privatização
+author: None
+---
+Os nove governadores do Nordeste assinaram uma carta enviada ao presidente Michel Temer (PMDB) nesta terça-feira (5) contra a venda da Companhia Hidro Elétrica do São Francisco (Chesf), vinculada à Eletrobras. No documento, os gestores usam o argumento do PSB de Paulo Câmara (Pernambuco) - responsável por encaminhar o texto - e afirmam que a privatização condiciona os projetos ligados ao rio. Entre as cinco propostas apresentadas por eles está a exclusão da companhia do grupo da estatal, transformando-a numa empresa pública vinculada ao Ministério da Integração Nacional.
+A carta justifica que a região passa por um período de seca, que culminou na redução da vazão dos reservatórios de Xingó e Sobradinho. "No caso particular do Rio São Francisco, a recorrência de ciclos hidrológicos críticos, como o vivenciado no Nordeste ao longo da presente década, já recomendariam cautela antes de se colocar em pauta qualquer projeto de transferência da operação para investidores privados", defende o texto. "Com isso, põe em risco a segurança hídrica de numerosa população e ainda desestimula que levemos adiante estudos e planos para outros usos da água, no que podemos estar comprometendo o futuro de gerações."
+LEIA TAMBÉM
+ » Fernando Filho diz que comprador da Eletrobras será obrigado por lei a preservar São Francisco por 30 anos
+ » Frente vai pedir a ministério para recuar em privatização da Chesf
+ » Ministro pretende privatizar Eletrobras até o primeiro semestre de 2018
+Os governadores também sugerem a manutenção do contrato de concessão das usinas cotizadas, cujo prazo se encerra
+ em 2043. O Ministério de Minas e Energia anunciou no fim do mês passado a descotização.
+Isso significa uma mudança no modelo que vigora desde 2013, quando um conjunto de hidrelétricas antigas, a maioria controlada pela Eletrobras, passou a entregar a energia aos distribuidores a um preço que cobre só os custos de operação e manutenção, determinado pela Agência Nacional de Energia Elétrica (Aneel). As usinas seriam privatizadas e os novos concessionários poderiam vender a energia a preços de mercado, o que, segundo previsões da Aneel, poderia gerar um aumento de cerca de 10% nos preços para o consumo doméstico. O governo prevê um impacto de no máximo 7%.
+"Entendemos que um setor que exerce tamanho impacto sobre todas as cadeias produtivas e camadas sociais não deve, em hipótese alguma, financiar ou cobrir déficits no caixa do governo", afirma a carta. "Obviamente não desconhecemos a desafiadora conjuntura econômica e entendemos que esforços extraordinários precisam ser feitos por todos em todas as esferas. Mas uma política que drene recursos da economia para o Estado via aumento da tarifa energética terá efeitos colaterais que neutralizarão qualquer resultado positivo buscado. Como se não bastasse, configuraria uma tributação adicional encoberta que é ilegal e inaceitável."
+» Desafeto da família Coelho assume frente ‘em defesa da Chesf’ na Assembleia
+ » Chineses, fundos e europeias na lista de candidatos à compra da Eletrobras
+ » Privatização da Eletrobras divide governistas e oposição na Câmara
+Além da manutenção do regime de cotas, os governadores pedem que seja adicionada à tarifa um percentual para a Chesf. O valor teria que garantir à companhia a possibilidade de concluir o plano de obras já contratado e um investimento contínuo em fontes alternativas. O recurso deveria assegurar também a manutenção da transposição do rio São Francisco e a execução de um plano de revitalização da bacia elaborado pela Agência Nacional de Águas (ANA).
+"O efeito sobre as tarifas de energia em todo o Brasil, segundo técnicos do setor, seria da ordem de no máximo 1,5%. Esse valor é menos da metade do que pagamos durante três décadas para ajudar os sistemas isolados através da Conta de Compensação de Combustíveis - CCC", argumentam no documento.
+Os gestores querem ainda criar um grupo para unificar quatro órgãos especializados no desenvolvimento da região: Chesf, Departamento Nacional de Obras Contra as Secas (Dnocs), Superintendência do Desenvolvimento do Nordeste (Sudene) e Companhia de Desenvolvimento dos Vales do São Francisco e do Parnaíba (Codevasf). Esse grupo seria responsável pela proposição de um modelo de governança transparente e blindado às ingerências políticas e partidárias e seria pago com os recursos do aumento da tarifa sobre a energia cotizada. 
+Privatização da Eletrobras evidencia racha no PSB
+Parlamentares do partido ligados a Paulo Câmara iniciaram uma ofensiva contra a venda da Chesf nas últimas semanas, em meio à movimentação pelos bastidores do ministro de Minas e Energia, Fernando Filho, para deixar o PSB, cuja bancada na Câmara nunca viu com bons olhos a sua ida para o primeiro escalão do governo Michel Temer (PMDB). O rompimento dos socialistas com a gestão ainda levou a um clima de insatisfação no grupo do ministro e do pai dele, o senador Fernando Bezerra Coelho (PE), que não tem seguido as orientações da direção da sigla nas votações dos projetos de Temer.
+Em resposta à privatização, os deputados que estão do lado da executiva nacional, contra Fernando Filho, argumentam que estão seguindo a posição histórica do PSB, já que o ex-presidente do partido Miguel Arraes foi um crítico ferrenho à proposta no governo Fernando Henrique Cardoso (PSDB), e criaram frentes parlamentares contra a desestatização da Eletrobras tanto no Congresso Nacional quanto na Assembleia Legislativa de Pernambuco (Alepe).
+» Leia a carta
+ 
+ Leia a carta dos governadores do Nordeste sobre a privatização da Eletrobras  from Portal NE10

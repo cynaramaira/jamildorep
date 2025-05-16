@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Procurador-geral da AL não viu irregularidade na contratação da TVU"
+date: 2008-03-16
+tags: Geral,Irregularidades,Naomi Campbell,procuradoria municipal
+author: None
+---
+Mesmo depois do presidente da Assembl&eacute;ia Legislativa ter se recusado a assinar a dispensa de licita&ccedil;&atilde;o, para a formaliza&ccedil;&atilde;o do &lsquo;conv&ecirc;nio&rsquo; com a UFPE, alegando que a produ&ccedil;&atilde;o e veicula&ccedil;&atilde;o n&atilde;o era o escopo da parceira, a Assembl&eacute;ia Legislativa deu forma legal &agrave; contrata&ccedil;&atilde;o.
+O aval foi dado pelo procurador-geral da casa, Ismar Teixeira Cabral, no dia 27 de novembro de 2007. Ismar &eacute; o mesmo funcion&aacute;rio cujo nome aparece em um of&iacute;cio apresentado &agrave; Justi&ccedil;a Federal no final de janeiro na reprodu&ccedil;&atilde;o do conv&ecirc;nio entre a AL e UFPE/TVU/Funda&ccedil;&atilde;o Lumi&egrave;re. O documento n&atilde;o tem assinatura nem do presidente da AL, nem do reitor Amaro Lins. Veja aqui. Na semana passada, apareceu uma segunda vers&atilde;o do documento, assinada pelo vice-presidente da AL, Izaias Regis.
+No parecer PG n&ordm; 509/07, o procurador diz que dava resposta a uma solicita&ccedil;&atilde;o da &aacute;rea de comunica&ccedil;&atilde;o social.
+&ldquo;No exame da minuta do conv&ecirc;nio, n&atilde;o verificamos irregularidade&rdquo;, escreve.
+Ao que parece, o parecer buscou acomodar a j&aacute; conhecida posi&ccedil;&atilde;o majorit&aacute;ria da Mesa Diretora, manifestada publicamente na semana que passou pelo vice-presidente da casa. &ldquo;A presta&ccedil;&atilde;o de servi&ccedil;o &eacute; de suma import&acirc;ncia e tem contribuido e muito para a melhoria da imagem institucional da casa&rdquo;, diz, em certo trecho.
+Em um dos trechos, o procurador escreve o que pode ser interpretado como um recado ao presidente, que recusou-se a assinar a contrata&ccedil;&atilde;o. &ldquo;N&atilde;o pode a administra&ccedil;&atilde;o p&uacute;blica deixar de celebrar contratos pela mera op&ccedil;&atilde;o de seus gestores&rdquo;, diz.
+Outra justificativa &eacute; que n&atilde;o a UFPE (em tese) n&atilde;o visa lucro. &ldquo;N&atilde;o se vislumbra na UFPE o objetivo de auferir receita por meio da presta&ccedil;&atilde;o de servi&ccedil;o&rdquo;, diz. O &lsquo;conv&ecirc;nio&rsquo; representa a movimenta&ccedil;&atilde;o de R$ 1,8 milh&atilde;o por ano. A presta&ccedil;&atilde;o do servi&ccedil;o, inicialmente sob a cobertura da FADE, come&ccedil;ou em 2002. Em abril do ano passado, depois de completar cinco anos, come&ccedil;ou a ser questionada a necessidade de licita&ccedil;&atilde;o, uma vez que a Lei de Licita&ccedil;&otilde;es imp&otilde;e o prazo m&aacute;ximo de 60 meses. Uma concorr&ecirc;ncia foi convocada e cancelada. No final do ano, a UFPE foi chamada a fazer diretamente o conv&ecirc;nio.
+O pedido de um parecer jur&iacute;dico foi feito no dia 31 de outubro, pela &aacute;rea de comunica&ccedil;&atilde;o social da AL, tendo recebido o n&uacute;mero 240/2007. Nele, o prest&iacute;gio da UFPE &eacute; invocado.
+&ldquo;Ressaltamos que esta &uacute;ltima &eacute; mantenedora do n&uacute;cleo de TV e r&aacute;dios universit&aacute;rias, cuja TVU (canal 11) &eacute; respons&aacute;vel pela transmiss&atilde;o dos programas da Asssembl&eacute;ia na TV, desde abril de 2002&rdquo;, diz um trecho.
+&ldquo;A TVU &eacute; a &uacute;nica TV P&uacute;blica que transmite sua programa&ccedil;&atilde;o em sinal aberto (UHF) para o Recife, grande Recife e, mais recentemente, para 12 munic&iacute;pios do interior do Estado&rdquo;, assinala o pedido de parecer.
+ 

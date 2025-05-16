@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Odiado pelos bolsonaristas, Dino é um dos ministros mais bem avaliados de Lula. Só perde para Haddad"
+date: 2023-08-11
+tags: jamildo, Flávio Dino, Lula, Fernando Haddad
+author: Jamildo Melo
+---
+A primeira edi&ccedil;&atilde;o da sondagem Genial/Quaest &ldquo;O que pensam os deputados federais&rdquo;, que se pretende a maior radiografia de como a C&acirc;mara Federal, revelou que os ministros Fernando Haddad (52% de aprova&ccedil;&atilde;o), Flavio Dino (48%) e Simone Tebet (47%) s&atilde;o os mais bem avaliados pelos deputados.
+Na compara&ccedil;&atilde;o com o governo do ex-presidente Jair Bolsonaro, 43% dos deputados consideram o atual governo melhor (contra 49% da opini&atilde;o p&uacute;blica), 12% n&atilde;o enxergam diferen&ccedil;a (11% na popula&ccedil;&atilde;o) e 36% avaliam que o governo est&aacute; pior (34% na popula&ccedil;&atilde;o).
+Avalia&ccedil;&atilde;o do Governo Lula
+A avalia&ccedil;&atilde;o do Governo Lula &eacute; positiva para 35%, regular para 30% e negativa para 33%. Esses &iacute;ndices s&atilde;o pr&oacute;ximos dos registrados na avalia&ccedil;&atilde;o da opini&atilde;o p&uacute;blica feita em junho, que mostrou 37% com avalia&ccedil;&atilde;o positiva, 32% regular e 27% negativa. J&aacute; em rela&ccedil;&atilde;o &agrave; sondagem realizada em julho com o mercado financeiro, os parlamentares mostram-se mais otimistas, uma vez que 44% dos executivos ouvidos avaliaram negativamente o governo e apenas 20% manifestaram aprova&ccedil;&atilde;o.
+No recorte por ideologia, o destaque &eacute; o Centro: 34% avaliam positivamente o governo e 56% o consideram regular. Na Esquerda, o governo &eacute; bem avaliado por 86% e na Direita, as avalia&ccedil;&otilde;es negativas somam 74%. O Centro tamb&eacute;m &eacute; destaque sobre o rumo atual do Brasil: 70% consideram que o pa&iacute;s est&aacute; indo na dire&ccedil;&atilde;o correta, 25% t&ecirc;m opini&atilde;o contr&aacute;ria e 5% n&atilde;o sabem ou n&atilde;o responderam. Na Esquerda, 95% apoiam a dire&ccedil;&atilde;o atual e, na Direita, 79% reprovam.
+A pesquisa tamb&eacute;m revela um parlamento dividido sobre o governo Lula, mas que considera o pa&iacute;s na dire&ccedil;&atilde;o certa e v&ecirc; boas chances de aprova&ccedil;&atilde;o da agenda econ&ocirc;mica do ministro Fernando Haddad. A pesquisa ouviu 185 deputados, em amostra proporcional por regi&atilde;o do Pa&iacute;s e partidos pol&iacute;ticos.

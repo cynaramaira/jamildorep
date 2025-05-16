@@ -1,0 +1,16 @@
+---
+layout: post
+title: "MPPE solicita ao Recife informações sobre despesas de licitação relativas às ações de enfrentamento à Covid-19"
+date: 2020-05-20
+tags: covid,Despesas,Doações,licitação,mppe,Recife
+author: None
+---
+O MP do Estado informou, nesta quarta, que os promotores de Justiça de Defesa do Patrimônio Público da Capital e o Centro de Apoio Operacional às Promotorias de Justiça de Defesa do Patrimônio Público (Caop Patrimônio Público) promoveram uma reunião virtual, na manhã desta terça-feira (19), para discutir as denúncias referentes à probidade dos gastos públicos da Prefeitura do Recife em relação ao enfrentamento da pandemia da Covid-19.
+A Oposição no Estado e no município tem feito críticas e o tema foi objeto de polêmica na Câmara Municipal do Recife, nesta semana.
+De acordo com o órgão, ao final da reunião, os membros do Ministério Público de Pernambuco (MPPE) decidiram solicitar ao município do Recife informações sobre a origem dos recursos que custearam as dispensas de licitação (se são verbas federais, estaduais ou municipais); reiterar o pedido de informações ao Tribunal de Contas do Estado (TCE) acerca das medidas de fiscalização já adotadas pelo órgão; requisitar todos os procedimentos de dispensa de licitação para enfrentamento à Covid-19 realizados pelo município do Recife em que não houver recursos federais; e agendar uma reunião com a Controladoria Municipal.
+"A solicitação desses dados visa suprir a falta de informações necessárias ao acompanhamento das despesas públicas, que se coloca como um obstáculo para o trabalho de controle social dos órgãos de fiscalização, como o MPPE, (TCE) e Ministério Público de Contas (MPCO), e da própria sociedade.", explica a nota.
+Segundo os promotores de Justiça, "uma parte dos procedimentos de dispensa de licitação publicados pelo município do Recife na área dedicada à Covid-19 do Portal da Transparência não apresenta dados como o objeto da licitação, justificativa da despesa, quantidade de produtos adquiridos, local da entrega dos bens ou prestação do serviço, prazo de entrega, razão da escolha ou justificativa do preço de aquisição dos itens. Em outros casos, foram identificadas divergências de dados e inconsistências na numeração dos procedimentos licitatórios."
+"A ausência de detalhamento e padronização das informações divulgadas nos Portais da Transparência pode gerar dificuldades para que os órgãos de controle possam avaliar as práticas de transparência e acesso à informação por parte dos cidadãos."
+Outro lado
+Em nota, a Prefeitura do Recife informou que "não recebeu nenhuma correspondência do MPPE hoje".
+"Todas as correspondências enviadas pelos órgãos de controle foram respondidas dentro do prazo. Esclarece ainda que todos os processos de compra estão sendo enviados desde abril, por iniciativa da Prefeitura, para o Tribunal de Contas do Estado. A Prefeitura do Recife preza pela transparência em todos os seus atos e tem feito os esclarecimentos necessários aos órgãos de controle", diz a Prefeitura.

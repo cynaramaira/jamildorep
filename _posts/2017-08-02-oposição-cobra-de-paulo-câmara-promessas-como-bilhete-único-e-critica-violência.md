@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Oposição cobra de Paulo Câmara promessas como bilhete único e critica violência"
+date: 2017-08-02
+tags: cobra,crítica,Oposição,Paulo Câmara
+author: None
+---
+O líder da oposição, Silvio Costa Filho (PRB), aproveitou a presença do governador Paulo Câmara (PSB) nessa terça-feira (1º) para fazer cobranças ao socialista. Entre os assuntos em pauta, as contas públicas, promessas de campanha e as constantes críticas à segurança no Estado.
+O deputado citou os números levantados pela bancada. "Tivemos o primeiro semestre dos últimos dez anos e agora, como os números de julho, infelizmente já registramos mais de 3 mil homicídios em Pernambuco", enumerou. "Além de 2.380 casos de assaltos a ônibus, 100 casos de ataques a agências bancárias, mais de 70 mil casos de crimes contra o patrimônio (roubos e assaltos), mais de 1 mil casos de estupros e 18 casos de violência contra a mulher."
+Em entrevista após a primeira sessão da Assembleia Legislativa de Pernambuco (Alepe) no plenário nomeado Eduardo Campos, Paulo Câmara rebateu o opositor. "Eu sou o primeiro a dizer que a segurança não está boa, não precisa a oposição dizer o que eu já tenho dito", afirmou o governador.
+Silvio Costa Filho ainda apontou que, mesmo atribuindo o crescimento da violência ao tráfico de drogas, o Governo de Pernambuco vem reduzindo os investimentos em ações de prevenção. "O programa Atitude, por exemplo, teve uma redução de R$ 10 milhões em seu orçamento entre 2014 e 2016, o que se repetiu em outros programas sociais, como Chapéu de Palha, Mãe Coruja, Ganhe o Mundo e Pedala PE", disse.
+O opositor ainda listou obras paradas ou que não foram iniciadas pela gestão socialista. A recuperação da BR-101; a requalificação da BR-232; a implantação da Navegabilidade do Rio Capibaribe; a conclusão dos ramais Leste-Oeste e Norte-Sul do BRT; os 20 Compaz; seis UPAEs, o Hospital Geral de Cirurgias da Região Metropolitana; o Hospital da Mulher de Petrolina, e o Hospital Mestre Dominguinhos em Garanhuns foram alguns empreendimentos citados pelo parlamentar. Silvio Costa Filho ainda cobrou uma solução para o imbróglio da Arena Pernambuco.
+"A população aguarda ainda promessas, como o bilhete único no sistema de transporte público e projetos como o Doutor em Chegou, Remédio em Casa e Farmácia mais perto de Você. Não vou nem falar da promessa de dobrar o salário dos professores, por causa da grave dificuldade financeira vivida pelo Estado", disse.
+O deputado reconheceu que o governo tem pago os salários em dia, o que não acontece em outros estados por causa da crise econômica. Porém, afirmou que a situação da administração é crítica. "Pernambuco está refém da obtenção de recursos extraordinários para fechar as contas. Em 2016, por exemplo, investimentos apenas R$ 129 milhões com dinheiro azul e branco. E o governo insiste em terceirizar a culpa, dizendo que tudo que acontece em Pernambuco é culpa da União."

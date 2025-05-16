@@ -1,0 +1,14 @@
+---
+layout: post
+title: "'Desafio o governador a pedir a abertura de investigação, como já fiz', diz Silvio Costa Filho"
+date: 2017-05-25
+tags: Desafios Urbanos,GOVERNADORES,investigação,reabertura,silvio costa filho
+author: None
+---
+O líder da Oposição na Assembleia Legislativa de Pernambuco (Alepe), o deputado Silvio Costa Filho (PRB), respondeu às críticas do líder do governo, o deputado Isaltino Nascimento (PSB), após o socialista sair em defesa do governador Paulo Câmara e do prefeito Geraldo Julio, ambos do PSB, depois de os parlamentares da oposição voltarem a cobrar explicações sobre as delações da JBS. Silvio afirmou que os envolvidos na Lava Jato do PSB terão "vergonha de andar em Pernambuco".
+Isaltino afirmou que Silvio "sabe muito bem o que é ser acusado", em relação ao caso da Secretaria de Turismo. Silvio rebateu afirmando que existe diferença entre os dois casos. "Quero lembrar ao líder do governo que quando ocorreu o episódio da Secretaria, tomei todas as providências cabíveis. Fui ao Tribunal de Contas do Estado, ao Ministério Público, pedi a instalação de uma CPI na Assembleia Legislativa e fiz ainda mais, fui pessoalmente à Polícia Federal pedir a abertura de investigação. Tenho todas as contas da minha gestão à frente da secretaria aprovadas, por unanimidade, pelo Tribunal de Contas do Estado", se defendeu.
+» “Silvio sabe muito bem o que é ser acusado”, diz Isaltino Nascimento
+O líder da oposição também lembrou que o PSB já foi citado outras vezes por delatores da Operação Lava Jato. "Também já ocorreram várias operações da Polícia Federal em nosso Estado, investigando irregularidade nas gestões do PSB. Foram sete ao todo, nos últimos três anos: Fair Play, Turbulência, Vórtex, Filhotes, Vidas Secas, Politeia e Catilinárias", disse.
+"A denúncia do delator da JBS sobre o governador Paulo Câmara é gravíssima e como líder da oposição vou continuar cobrando uma explicação verdadeira e convincente, pois o povo de Pernambuco precisa saber quem está falando a verdade", afirmou.
+» Oposição continua cobrando explicações de Paulo e Geraldo sobre delações da JBS
+Silvio afirmou que vai continuar fazendo debate com o governador e afirmou: "Não tenho dúvida que em um futuro bem próximo as investigações da Operação Lava Jato sobre as gestões do PSB serão concluídas e, com certeza, muitos atores deste partido vão ter vergonha de andar em Pernambuco. Aliás, nem sei se poderão andar. No meu caso, fui a Polícia Federal pedir para ser investigado. Já no caso do governador, é a Polícia Federal que está atrás dele. Desafio o governador a pedir a abertura de investigação, como fiz quando meu nome foi envolvido em denúncias", afirmou.

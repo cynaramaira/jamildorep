@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Paulo Câmara diz que Hemobrás é maior que questão eleitoral"
+date: 2017-08-09
+tags: fundo eleitoral,Hemobrás,Maioria,Paulo Câmara
+author: None
+---
+Cobrado pela oposição a se posicionar publicamente sobre a polêmica envolvendo a Hemobrás e o Ministério da Saúde, o governador Paulo Câmara (PSB) enviou uma nota ao Jornal do Commercio nesta quarta-feira (9) afirmando que vai fazer "tudo ao seu alcance" para evitar o esvaziamento da estatal de hemoderivados e criticando os adversários. "A unidade política é importante, fundamental, mas que vá além dos arroubos de motivação eleitoral", afirmou no texto.
+A Hemobrás tem hoje uma Parceria para o Desenvolvimento Produtivo (PDP) com a Shire que prevê a compra do fator VIII recombinante, medicamento usado no tratamento de hemofílicos, pela estatal, mas também a transferência da tecnologia para que a produção passe para Pernambuco até 2023. O produto é o que tem maior valor agregado na planta de Goiana, na Mata Norte do Estado.
+O ministro Ricardo Barros, porém, quer fechar com um consórcio que engloba a empresa suíça Octapharma, citada na Operação Máfia dos Vampiros. Nesse novo negócio, a produção do recombinante passaria para o Instituto de Tecnologia do Paraná (Tecpar), em Maringá, reduto eleitoral do ministro, e em Pernambuco ficaria apenas o fracionamento do plasma, hoje executado pela Hemobrás em outro contrato.
+"A Hemobrás é hoje um patrimônio de Pernambuco e o Governo do Estado fará tudo ao seu alcance para que a empresa não seja esvaziada. Além disso, para o Brasil, a escolha economicamente sustentável é fortalecer a Hemobrás, em vez de enfraquecê-la", defendeu Paulo Câmara. A Hemobrás é o resultado da atuação de diversos governos - estaduais e federais - que escolheram nosso Estado como o melhor local para receber a fábrica. Qualquer hipótese que vá na direção contrária será combatida com firmeza pelo Governo de Pernambuco."
+A fábrica em Goiana custou até agora cerca de R$ 1 bilhão e precisa de mais R$ 600 milhões para concluir os 30% restantes.
+A Shire propõe investir U$ 250 milhões na conclusão da planta de Goiana. Além disso, aceitou estender o prazo de pagamento e abrir mão dos juros da dívida da estatal com a empresa, hoje estimada em U$ 175 milhões – pela compra do recombinante. Enquanto isso, no negócio proposto pelo ministro o investimento de US$ 250 milhões em Pernambuco, mas para que o Estado fique com o fracionamento do plasma, e US$ 200 milhões iriam para o Paraná, para a fabricação do recombinante, mais lucrativo.
+O contrato com a Shire já foi rompido unilateralmente pelo ministério, mas uma decisão judicial garantiu a manutenção da parceria.

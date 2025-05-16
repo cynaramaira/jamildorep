@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Deputados estaduais boicotam agendas de Raquel Lyra, em sinal de protesto"
+date: 2023-04-26
+tags: jamildo, raquel lyra, deputados estaduais
+author: Jamildo Melo
+---
+Um bom sinal do descontentamento dos deputados estaduais com a nova gest&atilde;o estadual, desde &agrave;s elei&ccedil;&otilde;es, &eacute; o boicote informal que os parlamentares est&atilde;o promovendo contra as agendas de Raquel Lyra, pelo interior. Normalmente, os deputados s&atilde;o convidados para eventos junto &agrave;s bases pelo interior. O blog apurou que a gest&atilde;o Raquel Lyra tem convidado formalmente os parlamentares, mas eles tem tocado, preferindo n&atilde;o prestigiar os eventos pol&iacute;ticos.
+Os parlamentares reclamam que n&atilde;o s&atilde;o atendidos pelo secret&aacute;rios estaduais, nem conseguem marcar audi&ecirc;ncias com facilidade para tratar de demandas de suas bases. At&eacute; hoje a lista com os celulares chegou na Casa. S&atilde;o citados como exemplo de aten&ccedil;&atilde;o m&iacute;nima os secret&aacute;rios de Fazenda e Planejamento, que retornam as liga&ccedil;&otilde;es dos deputados.
+Na visita que fez a Caruaru, na semana passada, apenas um deputado da regi&atilde;o apareceu.
+Com a insatisfa&ccedil;&atilde;o, nos bastidores, &eacute; dada como certa a derrota da indica&ccedil;&atilde;o do novo conselheiro ou conselheira para a vaga que ser&aacute; aberta no TCE, com a aposentadoria de Teresa Duere. "Quem Raquel Lyra colocar a m&atilde;o vai ser derrotado"
+Em outro sinal de descontentamento, nesta quarta-feira, uma semana depois da visita com pompa e circunst&acirc;ncia da governadora Raquel Lyra &agrave; Assembleia Legislativa do Estado, para apresentar um pedido de autoriza&ccedil;&atilde;o de um empr&eacute;stimos internacional bilion&aacute;rio, os deputados estaduais retiraram o projeto de pauta, de todas as comiss&otilde;es, at&eacute; ao menos a semana que vem.
+Segundo apurou o blog, o movimento coordenado tem o objetivo de sinalizar descontentamento com a gest&atilde;o, no relacionamento com a casa. Uma das demandas n&atilde;o atendidas &eacute; a volta do pessoal que trabalhava na Alepe, cedida pelo Estado, antes do "exonera&ccedil;o" do come&ccedil;o do ano. "Todos os &oacute;rg&atilde;os (TJPE, MPPE, TCE...) foram atendidos, menos a Alepe, mesmo havendo um conv&ecirc;nio de vigor", afirma uma fonte do blog.
+Na semana passada, na segunda 17, a governadora Raquel Lyra fez visita simb&oacute;lica aos deputados estaduais, em busca de aval para empr&eacute;stimo internacional de R$ 3,4 bilh&otilde;es. No dia, a governadora Raquel Lyra confirmou que os recursos v&atilde;o refor&ccedil;ar investimentos do Estado de Pernambuco em &aacute;reas como seguran&ccedil;a p&uacute;blica, saneamento e estradas, conforme havia informado o blog de Jamildo.

@@ -1,0 +1,16 @@
+---
+layout: post
+title: "O Nordeste de Dilma"
+date: 2010-10-31
+tags: Dilma,nordeste
+author: None
+---
+Por S&eacute;rgio Montenegro Filho, em seu blog
+Continuidade &eacute; a palavra que deve nortear o futuro governo Dilma Rousseff (PT). Eleita sob as ben&ccedil;&atilde;os - e esfor&ccedil;os - do presidente Lula, agora cabe exclusivamente a ela, a partir de janeiro, cumprir os compromissos assumidos em seu nome pelo padrinho pol&iacute;tico nos palanques e fora deles.
+E isso inclui, sobremaneira, o Nordeste. N&atilde;o foi a toa que Lula rearrumou a geografia pol&iacute;tica do Pa&iacute;s, migrando para c&aacute; o PT que at&eacute; ent&atilde;o estava acostumado aos redutos oper&aacute;rios do ABC paulista e dos Estados do Sul. Desbancou, com isso, os coron&eacute;is da ind&uacute;stria da mis&eacute;ria que trocavam votos por dentaduras e sapatos e implantou aqui uma pol&iacute;tica assistencial que, se n&atilde;o &eacute; a melhor de todas - e n&atilde;o &eacute; mesmo - serviu ao menos para garantir uma das suas promessas de campanha: tr&ecirc;s refei&ccedil;&otilde;es di&aacute;rias para quem &agrave;s vezes n&atilde;o tinha nem uma.
+Agora, por&eacute;m, vir&atilde;o as cobran&ccedil;as. Dilma ouviu e aprovou os compromissos assumidos por Lula em seu nome. Ter&aacute; que zelar por um Nordeste que acreditou nela e lhe garantiu total hegemonia. Foram 78% dos votos no Maranh&atilde;o, 77% no Cear&aacute; e 76% em Pernambuco, s&oacute; para citar os principais. Mas ela venceu nos nove Estados.
+Est&aacute; claro que Dilma n&atilde;o &eacute; Lula, e e que &eacute; praticamente imposs&iacute;vel igualar os &iacute;ndices de popularidade do padrinho. Mas se quiser assegurar um m&iacute;nimo de aprova&ccedil;&atilde;o ao seu governo, &eacute; aconselh&aacute;vel conquistar a simpatia de quem nela apostou suas fichas.
+Afinal, nunca na hist&oacute;ria deste pa&iacute;s o sofrido Nordeste brasileiro recebeu tanta aten&ccedil;&atilde;o por parte do governo central como nos &uacute;ltimos oito anos. Fica dif&iacute;cil at&eacute; mesmo &agrave; oposi&ccedil;&atilde;o negar isso. &Eacute; tanto que a regi&atilde;o terminou se revelando, reconhecidamente, um calcanhar de aquiles da campanha do candidato derrotado Jos&eacute; Serra (PSDB).
+O povo nordestino jogou alto na elei&ccedil;&atilde;o da &quot;candidata de Lula&quot;. E vai cobrar. As obras - independente do discurso de campanha dos tucanos - est&atilde;o em andamento. Se est&atilde;o no prazo, &eacute; outra discuss&atilde;o, mas o fato &eacute; que deix&aacute;-las de lado, depois de tantas promessas, j&aacute; n&atilde;o &eacute; uma alternativa.
+A presidente Dilma Rousseff for&ccedil;osamente vai ter que olhar do Planalto Central na dire&ccedil;&atilde;o do Nordeste, no mesmo &acirc;ngulo que lhe ensinou seu padrinho pol&iacute;tico. &Eacute; claro que ela ter&aacute; outros 19 Estados para atender. N&atilde;o se trata de reneg&aacute;-los. Mas se ela preza pela continuidade que tanto defendeu na campanha, espera-se que mantenha a aten&ccedil;&atilde;o especial &agrave; nossa regi&atilde;o.
+&nbsp; 

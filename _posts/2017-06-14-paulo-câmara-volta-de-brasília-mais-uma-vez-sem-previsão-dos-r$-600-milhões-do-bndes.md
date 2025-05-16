@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Paulo Câmara volta de Brasília mais uma vez sem previsão dos R$ 600 milhões do BNDES"
+date: 2017-06-14
+tags: BNDES,Brasília,Paulo Câmara,previsão
+author: None
+---
+Duas semanas após o presidente Michel Temer (PMDB) sinalizar a liberação do empréstimo de R$ 600 milhões para Pernambuco pelo Banco Nacional de Desenvolvimento Econômico e Social (BNDES), dinheiro que seria usado em parte para as obras de barragens nas cidades atingidas pelas enchentes, o governador Paulo Câmara (PSB) continua sem previsão para a liberação do crédito. O socialista esteve em Brasília nesta quarta-feira (14) para uma reunião com o presidente do banco, Paulo Rabello de Castro, mas não recebeu resposta positiva sobre a liberação do valor.
+O crédito já havia sido solicitado e aprovado em março, mas para obras de adutoras para levar segurança hídrica ao interior e de presídios no Estado. Com a chuva que deixou 27 municípios em estado de emergência, porém, Paulo Câmara acordou com Temer que iria usar parte do dinheiro para retomar as obras de quatro barragens para prevenir as enchentes na Mata Sul. As obras foram prometidas desde as cheias de 2010, quando o governador era Eduardo Campos (PSB), e agora estão paradas - segundo a gestão estadual, devido à interrupção nos repasses da União. Faltam R$ 383 milhões para essas obras.
+LEIA TAMBÉM
+» Temer sinaliza liberação de empréstimo de R$ 600 milhões do BNDES para obras
+» Paulo Câmara vai a Brasília tentar destravar empréstimo de R$ 600 milhões
+» Troca no BNDES não vai afetar empréstimo de R$ 600 mi, prevê secretário
+Na reunião, Paulo Câmara lembrou a Rabello o compromisso de Temer em dar celeridade ao empréstimo. "Todos essas pautas de Pernambuco já estão sendo tratadas pela equipe técnica do BNDES, mas achei importante detalhar pessoalmente as demandas de Pernambuco. Nosso Estado estabeleceu uma parceria bastante efetiva com o banco nos últimos anos, que, tenho certeza, será mantida", afirmou o governador através da assessoria de imprensa.
+Alongamento da dívida
+O governador também aproveitou a reunião com o presidente do BNDES para pedir o alongamento da dívida do Estado com o banco. Com isso, o governo teria um tempo maior para pagar o débito e reduziria o valor das parcelas. A expectativa da gestão é de reduzir em R$ 15 milhões mensais os desembolsos.
+"São R$ 180 milhões por ano que vamos destinar a investimentos. O governador Paulo Câmara já determinou às equipes das secretarias da Fazenda e de Planejamento fazer os estudos, baseados no que foi anunciado pelo presidente Michel Temer na reunião que teve ontem (dia 13) com os governadores", afirmou pela assessoria de imprensa o secretário de Planejamento e Gestão de Paulo Câmara, Márcio Stefanni. "Queremos destinar esse dinheiro também para as áreas de educação, segurança pública, recursos hídricos, mobilidade urbana, estradas e sistema prisional."
+O governo não explicou os detalhes sobre o valor da dívida e o processo de renegociação e o secretário não atendeu às ligações.
+Após o encontro de Temer com os governadores, o Palácio do Planalto prepara uma renegociação de R$ 50,46 bilhões para os estados em duas etapas, uma delas ainda este ano. A primeira fase do refinanciamento, a ser executada em 2017, prevê a repactuação de R$ 20 bilhões em dívidas de Estados com o BNDES que têm garantia da União. A segunda fase inclui a renegociação de R$ 30 bilhões de dividas sem garantia da União, incluindo a linha BNDES Copa, que financiou sobretudo a construção de estádios para o Mundial de futebol. Essa etapa só será efetivado a partir de janeiro de 2018.
+A medida é importante para dar um alívio de caixa aos governadores, que enfrentam dificuldades financeiras, mas também é um gesto político no momento em que Temer busca manter a base aliada unida para retomar as votações de reformas e para barrar eventual denúncia do procurador-geral da República, Rodrigo Janot, contra o presidente com base nas delações da JBS.

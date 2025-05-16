@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Waldemar Borges diz que eleição prova que oposição a Paulo Câmara não tem aderência na população"
+date: 2016-11-02
+tags: eleição,Lô Borges,Naomi Campbell,Oposição,Paulo Câmara,população,Prova
+author: None
+---
+No mesmo dia em que, de tarde, Antônio Campos dava sua polêmica entrevista, em Olinda, na Alepe, de manhã, o líder do Governo na Assembleia Legislativa, Waldemar Borges, fez uma avaliação do processo eleitoral na Reunião Plenária desta terça-feira (01.11)
+Do ponto de vista do Governo, Borges avaliou o resultado como extremamente positivo, tanto no aspecto numérico, quanto, sobretudo, na sua dimensão política.
+“Evidentemente que tivemos algumas perdas, mas o resultado final significa uma ampliação expressiva da nossa base, do número de municípios governados pelos partidos que fazem parte da base de sustentação do Governo e um número maior de pernambucanos que residem em cidades administradas por partidos coligados. O resultado eleitoral foi uma demonstração inconteste de apoio da população de Pernambuco ao projeto político da Frente Popular liderada pelo governador Paulo Câmara. O crescimento da nossa presença no Estado e a diminuição dos municípios administrados pela oposição mostra a falta de aderência do discurso oposicionista e a aprovação da maneira firme, serena e conseqüente como o Governo tem enfrentado as dificuldades dos tempos atuais", afirmou.
+O parlamentar contabilizou o crescimento da base de sustentação do Governo.
+“Tínhamos 123 municípios governados por partidos da nossa base de sustentação. Hoje temos, numa leitura mais rigorosa, levando em consideração apenas os partidos que estão na base, 139 municípios. Mas se considerarmos outros companheiros que se elegeram por partidos que não estão na base, mas que efetivamente apoiam o Governo, vamos chegar a um número de 156 municípios hoje vinculados ao projeto liderado pela Frente Popular", afirmou.
+“Isso nos dá ânimo, garra pra continuar nesse caminho. A gente sabe que os tempos que virão serão ainda mais duros. O próximo ano se apresenta como um ano talvez de maior dificuldade, mas a gente, com esse respaldo que teve das urnas da população pernambucana, vai, com serenidade e convicção, continuar nesse mesmo rumo. Pernambuco nos disse que estamos no caminho certo", afirmou.
+Borges também congratulou, em nome da bancada, todos os deputados e deputadas que participaram do pleito eleitoral deste ano.
+“Todos deram uma importante contribuição, independente do resultado eleitoral, para que a gente vá consolidando esse processo de aprendizado democrático, que ainda é muito embrionário em um País que tem 500 anos de existência, mas que só agora completou recentemente 30 anos ininterruptos de regime democrático. Todos que se dispuseram a ir às ruas defender suas idéias, seus pontos de vista, colocar sob apreciação da população o que pensam , os projetos que defendem, devem ser saudados de forma muito positiva porque tudo isso significa uma contribuição no amadurecimento desse processo”.

@@ -1,0 +1,11 @@
+---
+layout: post
+title: "OAB de Pernambuco critica absolvição de Renan Calheiros: É vergonhosa"
+date: 2007-09-13
+tags: crítica,pernambuco,Renan Calheiros
+author: None
+---
+O presidente da Ordem dos Advogados do Brasil, Sec&ccedil;&atilde;o Pernambuco (OAB-PE), Jayme Asfora, classificou&nbsp;como vergonhoso o resultado da vota&ccedil;&atilde;o no Senado Federal que absolveu o senador Renan Calheiros no processo de cassa&ccedil;&atilde;o por quebra de decoro parlamentar. &quot;&Eacute; um grande preju&iacute;zo para a Institui&ccedil;&atilde;o e para todo o Pa&iacute;s que, nos &uacute;ltimos meses, acompanhou as den&uacute;ncias e as comprova&ccedil;&otilde;es das irregularidades cometidas pelo senador que chegou a usar as instala&ccedil;&otilde;es do pr&oacute;prio Senado para cuidar de sua defesa&quot;, avaliou Asfora.
+Para ele, tamb&eacute;m foi inadmiss&iacute;vel a posi&ccedil;&atilde;o do Pal&aacute;cio do Planalto que, at&eacute; bem pouco tempo, defendia de forma veemente o seu aliado, o senador Renan Calheiros. &quot;Ontem, na v&eacute;spera da vota&ccedil;&atilde;o no Plen&aacute;rio, o Pal&aacute;cio decidiu &lsquo;lavar as m&atilde;os&rsquo; e deixar apenas ao Legislativo a responsabilidade sobre o caso, como se a situa&ccedil;&atilde;o n&atilde;o tivesse qualquer rela&ccedil;&atilde;o com o Executivo. Mas a pr&oacute;pria l&iacute;der do PT, senadora Ideli Salvatti, defendeu, de forma vexat&oacute;ria, at&eacute; o &uacute;ltimo momento, a absolvi&ccedil;&atilde;o do senador.&quot;
+Ele conclui afirmando que a OAB-PE preocupa-se com essa fragiliza&ccedil;&atilde;o das institui&ccedil;&otilde;es democr&aacute;ticas brasileiras - sobretudo de um dos seus principais pilares, o Senado - e o conseq&uuml;ente desequil&iacute;brio entre os Poderes que possa resultar desse processo. &quot;N&atilde;o podemos aceitar uma &lsquo;chaviza&ccedil;&atilde;o&rsquo; do Brasil.&quot; Por fim, o presidente afirmou que a OAB-PE se solidariza com os deputados que, no in&iacute;cio da sess&atilde;o, foram agredidos pelos seguran&ccedil;as do Senado no momento em que exigiam simplesmente o cumprimento de uma ordem judicial emanada pelo ministro do STF &ndash; inst&acirc;ncia m&aacute;xima da Justi&ccedil;a brasileira, Ricardo Lewandowski. 
+&nbsp; 

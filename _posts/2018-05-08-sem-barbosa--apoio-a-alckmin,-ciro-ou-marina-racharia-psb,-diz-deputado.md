@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Sem Barbosa: apoio a Alckmin, Ciro ou Marina racharia PSB, diz deputado"
+date: 2018-05-08
+tags: Ciro Gomes,deputado,geraldo Alckmin,Marina Lima,nelson barbosa
+author: None
+---
+Estadão Conteúdo - Vice na chapa encabeçada por Marina Silva em 2014 e atual vice-presidente de Relações Governamentais do PSB, o ex-deputado Beto Albuquerque enxerga o risco de um racha profundo na legenda, caso o projeto de uma candidatura própria ao Palácio do Planalto seja de fato abandonado. Reconhecendo que o partido foi surpreendido pela desistência do ex-ministro do Supremo Tribunal Federal (STF) Joaquim Barbosa de concorrer, Albuquerque ressaltou que o apoio a qualquer um dos nomes hoje colocados para a corrida presidencial seria prejudicial para o conjunto do partido.
+"Seja Ciro Gomes, Geraldo Alckmin, Marina Silva ou qualquer nome hoje colocado, o PSB ganharia de um lado e perderia do outro. Precisamos de uma solução que não atrapalhe nossos 10 candidatos nos Estados", disse Albuquerque. "Infelizmente, não temos outro Joaquim Barbosa na manga, não temos outro Eduardo Campos. Mas é essencial que encontremos uma maneira de manter uma candidatura própria", destacou ao Broadcast Político (serviço de notícias em tempo real do Grupo Estado), mencionando o ex-governador de Pernambuco morto em 2014, em um acidente de avião.
+A disputa interna do PSB passa em especial pelo alinhamento de diretórios regionais ao governador de São Paulo e candidato à reeleição, Márcio França, e ao comando do partido em Pernambuco, do governador Paulo Câmara.
+LEIA TAMBÉM
+» Saída de Joaquim Barbosa ‘facilita a unidade da esquerda’, diz Humberto
+» Joaquim Barbosa temia perder dinheiro e tranquilidade numa aventura eleitoral
+» Saída de Joaquim Barbosa prejudica Marília Arraes. PSB fica livre para aliança com PT
+» Em rede social, Joaquim Barbosa anuncia que não será candidato
+O PSB também contava com a candidatura própria como forma de assegurar um desempenho positivo nas disputas para a Câmara e para o Senado. Sobre permitir que os diretórios regionais da legenda caminhem livremente com outras candidaturas, o ex-parlamentar emendou: "Liberar as bases para fazer o que quiserem seria uma decisão analfabeta politicamente."
+"Eu lamento ele (Joaquim Barbosa) não ser candidato. A gente perde um pedaço de um futuro mais promissor, mais ético para o País. Mas que bom que decidiu antes. A gente perde um candidatíssimo, mas por outro lado não entre numa eleição com alguém em dúvida", afirmou Albuquerque, relembrando o cenário da disputa presidencial de 2014. "Nem o Eduardo, nem a Marina e eu unificamos o partido. Qualquer outro candidato não vai unificar, as realidades regionais são muito diferentes", continuou.
+Candidatura
+Beto Albuquerque reafirmou que será candidato ao Senado pelo Rio Grande do Sul. Ele chegou a colocar seu nome como pré-candidato a presidente no início do ano, antes das conversas do partido com Barbosa se intensificarem. Nesta terça, o socialista reforçou que não se colocará novamente à disposição do partido para a tarefa. "Eu já fiz meu sacrifício em 2014. Sou candidato ao Senado e não abrirei mão. Mas é essencial que algum colega se coloque. Qualquer nome bem preparado tem condições de cumprir esse papel." Uma saída, disse, seria um nome do PSB de Pernambuco se apresentar para a disputa, para que a legenda possa capitalizar o legado de Eduardo Campos e Miguel Arraes no Estado.
+Motivos
+De acordo com Albuquerque, Joaquim Barbosa chegou a comentar com correligionários, enquanto ensaiava a candidatura, sobre algumas das razões pessoais que poderiam fazê-lo abandonar a corrida presidencial. Na lista, o sustento financeiro de alguns de seus familiares e a saúde de sua mãe. "Ele tem família grande, tem gastos, tem empresa de advocacia que ajuda a complementar a renda", disse o ex-deputado. "A vida pessoal dele pesava muito. Ele tinha um modo de vida mais calmo, a mãe doente... Ele é meio arrimo de família, ele falou que cuida de muita gente."
+Albuquerque negou que Barbosa tenha se queixado de problemas de saúde. Na mensagem pública em que anunciou sua desistência, o ex-presidente do Supremo Tribunal Federal afirmou, sem detalhar, que a decisão foi "estritamente pessoal".

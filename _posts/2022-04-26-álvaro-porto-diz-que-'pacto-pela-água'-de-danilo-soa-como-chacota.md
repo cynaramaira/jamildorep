@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Álvaro Porto diz que 'pacto pela água' de Danilo soa como chacota"
+date: 2022-04-26
+tags: jamildo, eleições 2022
+author: JAMILDO MELO
+---
+O compromisso do pr&eacute;-candidato do PSB ao governo, Danilo Cabral, de criar um &ldquo;pacto pela &aacute;gua&rdquo;, anunciado em entrevista nesta segunda-feira (25.04), foi criticado pelo deputado estadual &Aacute;lvaro Porto (PSDB), que tamb&eacute;m, nesta segunda, apresentou apelo ao Governo do Estado para fortalecer o abastecimento de &aacute;gua de munic&iacute;pios do Agreste, Mata e Sert&atilde;o.
+De acordo com Porto, o PSB, depois de quatro mandatos consecutivos no Executivo estadual, parece estar "fazendo chacota" com a popula&ccedil;&atilde;o ao falar de pacto pela &aacute;gua.
+&ldquo;Como n&atilde;o se tem vergonha de assumir um compromisso deste estando h&aacute; tanto tempo no poder? Algu&eacute;m acredita mesmo que, ap&oacute;s esses anos todos, o PSB tem interesse e compet&ecirc;ncia para resolver a quest&atilde;o do abastecimento? A &uacute;nica capacidade que o PSB demonstra &eacute; de anunciar promessas e fazer pouco caso do sofrimento dos pernambucanos&rdquo;, disse.
+Al&eacute;m de &Aacute;lvaro Porto, outras lideran&ccedil;as pol&iacute;ticas tamb&eacute;m criticaram Danilo Cabral pela proposta. Miguel Coelho (UB) disse que trata-se de um deboche do PSB ap&oacute;s 16 anos no Poder e Jo&atilde;o Arnaldo (PSOL) afirma que "n&atilde;o se pode tratar uma quest&atilde;o t&atilde;o s&eacute;ria como o abastecimento de &aacute;gua com promessas vazias, que afrontam a intelig&ecirc;ncia de nossa gente".
+&Aacute;lvaro&nbsp;lembra que mesmo em Bonito, munic&iacute;pio do Agreste conhecido pelas cachoeiras, balne&aacute;rios e cursos d&rsquo;&aacute;gua que abastecem as vizinhas Bezerros e Caruaru, os moradores sofrem com falta de &aacute;gua.
+&ldquo;O mesmo ocorre em Quipap&aacute;, na Mata Sul. O distrito de Vila Nova, que fica a 100 metros da barragem Pau Ferro, tamb&eacute;m n&atilde;o disp&otilde;e de &aacute;gua nas torneiras&rdquo;.
+Os dois munic&iacute;pios, juntamente com Angelim, S&atilde;o Jo&atilde;o, Jurema, Cal&ccedil;ado, Brej&atilde;o, Lajedo, Panelas, Capoeiras, Garanhuns, S&atilde;o Caetano, Palmeirina, Sanhar&oacute; e Canhotinho (Agreste), S&atilde;o Benedito do Sul e Jaqueira (Mata Sul), Carna&iacute;ba (Sert&atilde;o do Paje&uacute;) e Cabrob&oacute; (Sert&atilde;o do S&atilde;o Francisco) est&atilde;o na lista encaminhada por Porto ao governador Paulo C&acirc;mara, &agrave; secret&aacute;ria de Infraestrutura de Recursos H&iacute;dricos, Fernandha Batista, e &agrave; diretora-presidente da Compesa (Companhia Pernambucana de Saneamento), Manuela Marinho.
+O deputado destaca que, por onde tem passado, a queixa sobre a inefici&ecirc;ncia da Compesa &eacute; geral. Ele lembra que levantamentos feitos por entidades como o Observat&oacute;rio do Saneamento Ambiental do Recife revelam que o &iacute;ndice de perda de &aacute;gua tratada em Pernambuco chega a 52%.
+&ldquo;Mais da metade da &aacute;gua que deveria chegar &agrave;s torneiras se perde. Quer dizer, o dinheiro p&uacute;blico vai pro ralo, a popula&ccedil;&atilde;o &eacute; penalizada pela incompet&ecirc;ncia da atual gest&atilde;o estadual e o pr&eacute;-candidato do governo ainda fala em pacto pela &aacute;gua. Parece brincadeira&rdquo;, disse.

@@ -1,0 +1,9 @@
+---
+layout: post
+title: "Assembléia discute hoje projeto contra nepotismo. Ninguém sabe grau de restrição"
+date: 2007-03-07
+tags: Assembleia Geral,Contran,projeto
+author: None
+---
+Jorge CavalcantiEspecial para o Blog
+Os integrantes da mesa diretora da Assembléia Legislativa e os líderes partidários se reúnem, na tarde de hoje, para discutir o projeto de lei antinepotismo que será elaborado pela Casa. Os deputados estaduais devem definir até que grau de parentesco a proibição de contratação de parentes para cargo comissionado deve atingir.O Poder Executivo e o Tribunal de Contas do Estado (TCE) já enviaram um projeto antinepotismo, impedindo a nomeação de familiar até terceiro grau. As matérias estão em tramitação na Comissão de Justiça da Casa. O relator já foi definido: o ex-presidente da Assembléia Romário Dias (PFL), que possui um filho empregado em seu gabinete. Quando as matérias do Executivo e TCE forem aprovadas, até bisnetos, bisavôs e cunhados serão proibidos de serem nomeados. Porém, primos são considerados parentes de quarto grau e não serão atingidos pela lei.Agora, o presidente da Assembléia, Guilherme Uchôa (PDT), prefere não emitir opinião pessoal sobre o alcance do projeto de lei antinepotismo do Legislativo. Afirma que, na condição de presidente, deve expressar a vontade da maioria. No entanto, no final de fevereiro, quando voltou ao comando da Casa após um infarto, Uchôa disse que a Assembléia não iria copiar o projeto do Executivo e do TCE, mas sim “ter um próprio”. Na ocasião, ele admitiu ter um filho, Guilherme Uchôa Júnior, empregado em seu gabinete e defendeu uma proibição de contratação de parentes mais branda, baseada no Código Eleitoral, que impede a candidatura de familiar do chefe do Executivo até segundo grau. 

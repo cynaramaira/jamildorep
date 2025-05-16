@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Vice-líder do PT denunciado na Secretaria da Mulher na Câmara por ataque à honra de médica cubana"
+date: 2014-02-11
+tags: ALTA MÉDICA,ataque,Câmara,mulher,Seguradora Líder,Vicência,Witzel denunciado
+author: None
+---
+Na quarta-feira da semana passada, o vice-líder do PT, Zé Geraldo (PA), subiu à tribuna da Câmara dos deputados e fez declarações logo após a médica cubana ter abandonado o programa sob a alegação de ter sido enganada pelos governos brasileiro e cubano e por só receber 10% do valor pago aos seus colegas não-cubanos. O município paraense é reduto eleitoral do petista, que ainda acusou a refugiada de ser uma profissional “que não tem como prestar um bom serviço à população”.
+O governista utilizou a tribuna do plenário para ofender a honra da médica cubana Ramona Rodriguez, acusando-a de ser “vista várias vezes totalmente embriagada” e por "querer se deitar com homens" no município de Pacajá (PA), onde a refugiada atendia pelo programa do governo federal Mais Médicos.
+Nesta terça-feira, o líder do Democratas na Câmara Federal, Mendonça Filho (PE), anunciou que o partido entrou com uma denúncia na Secretaria da Mulher contra o vice-líder do PT, Zé Geraldo (PA).
+A Secretaria da Mulher é composta pela Procuradoria da Mulher, liderada pela deputada Elcione Barbalho (PMDB-PA); e pela Coordenadoria dos Direitos da Mulher, chefiada por Jô Moraes (PCdoB-MG).
+“O deputado Zé Geraldo subiu à tribuna para ler uma nota de um conselho municipal de uma cidade do Pará caluniando, mentindo, diminuindo e falando da intimidade da médica cubana. Falando dos encontros dela. Uma atitude discriminatória que atinge os direitos fundamentais na condição de ser humano da doutora Ramona e atinge os direitos dela na condição de mulher”, denunciou Mendonça Filho.
+“O cubano não pode ser tido como um ser menor, um ser humano reduzido à condição de 10% de um médico espanhol ou português. O cubano tem que ser tratado com respeito, com dignidade, no mesmo patamar”, defende o democrata.
+Na representação encaminhada à secretaria, o partido acusa Zé Geraldo tomando como base a Declaração sobre a Eliminação da Violência contra a Mulher, aprovada pela Organização das Nações Unidas (ONU) em 1993. Na definição do manifesto, configura-se como violência baseada no gênero quando “um ato é dirigido contra uma mulher, porque é mulher, ou quando atos afetam as mulheres de forma desproporcional”.
+Mendonça Filho vai se reunir na próxima terça-feira (18/2), às 10h, com as ministras Maria do Rosário (Direitos Humanos) e Eleonora Menicucci (Secretaria das Mulheres) juntamente com a médica cubana Ramona Matos Rodriguez. O deputado solicitou a audiência para requisitar apoio, proteção e segurança a médica que vem sofrendo ataques por parte de petistas a exemplo do deputado Zé Geraldo (PT-PA).
+Para Mendonça Filho, são necessárias providências imediatas contra atitudes como a do parlamentar petista que usou termos caluniosos disseminando o ódio e o machismo. Em seu discurso, Zé Geraldo afirmou que a médica "bebia e se deitava com homens". O democrata ainda destaca que esse tipo de posicionamento estimula a militância nas redes sociais a agredir e propagar mentiras contra Ramona Rodriguez colocando sua segurança em risco.

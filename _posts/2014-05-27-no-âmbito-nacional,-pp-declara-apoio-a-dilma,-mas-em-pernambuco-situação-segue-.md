@@ -1,0 +1,14 @@
+---
+layout: post
+title: "No âmbito nacional, PP declara apoio a Dilma, mas em Pernambuco situação segue indefinida"
+date: 2014-05-27
+tags: declaração,Dilma,nacional,pernambuco
+author: None
+---
+Da Agência Estado
+Ao receber nesta terça-feira (27) o apoio do PP à campanha de reeleição, a presidente Dilma Rousseff (PT) recorreu ao tom eleitoral e fez críticas indiretas ao pré-candidato a presidente Aécio Neves (PSDB). A estratégia de Dilma segue uma linha traçada pela cúpula do PT de polarizar a disputa presidencial, neste momento, com Aécio. No discurso para uma plateia composta por integrantes do PP, ela ressaltou que um dos orgulhos do governo é não ter caído na tentação de medidas impopulares para enfrentar a crise econômica mundial.
+"Podemos dizer para o resto do mundo que passamos pela pior crise desde 1929. Eu acho que nós podemos nos orgulhar de, mantendo a estabilidade, termos conseguido assegurar o nível de emprego e não caímos na tentação nas chamadas medidas impopulares, que nada mais são do que recessão, desemprego e arrocho salarial", afirmou. 
+As declarações de Dilma são uma crítica indireta ao pré-candidato do PSDB a presidente, que, caso seja eleito, diz que pretende recorrer a "medidas impopulares" para assegurar a estabilidade da economia do Brasil.Na fala, a presidente também comentou, de forma indireta, a falta de consenso no PP em torno da campanha dela. Esta será a primeira eleição em que o partido se coligará numa chapa presidencial com o PT. A iniciativa deve garantir cerca de um minuto na publicidade eleitoral gratuita de Dilma. Apesar de a ampla maioria se posicionar a favor da atual gestão, os Diretórios Estaduais do PP de Minas Gerais, Rio de Janeiro e Rio Grande do Sul sinalizam que apoiarão a candidatura presidencial do PSDB. 
+Em Pernambuco, a tendência é o apoio ao candidato da Frente Popular, Paulo Câmara, do PSB, partido do ex-governador Eduardo Campos. "Ao longo desse processo, nós temos situações extremas, de conflito, que nem todo mundo concorda conosco. Isso faz parte da democracia, principalmente, num País tão diverso como o nosso. Mas tenho certeza que nós temos um compromisso que é um compromisso com o desenvolvimento econômico sustentável, social e a redução da desigualdade do nosso país", afirmou a presidente.Na questão social, Dilma também ressaltou a participação do Ministério das Cidades, comandado pelo PP, na condução do programa Minha Casa, Minha Vida (MCMV), uma das bandeiras de campanha do PT. 
+"Uma coisa que nunca o Brasil viu. Agradeço, profundamente, essa parceria, essa aliança no sentido mais profundo da palavra, que é a capacidade de juntos construirmos algo que é para o bem comum, de todos os brasileiros." 
+Em outro momento de afago ao PP, Dilma mostrou-se grata pela adesão da bancada da sigla no Congresso à votação da proposta que estabeleceu que 75% dos royalties do pré-sal sejam destinados à área de educação.

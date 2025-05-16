@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Defesa de Aécio volta a negar acusações após PGR reforçar pedido de prisão"
+date: 2017-06-10
+tags: apostas,defesa,prisão
+author: None
+---
+Estadão Conteúdo - A defesa do senador afastado Aécio Neves (PSDB-MG) voltou a negar o teor as acusações feitas com base nas delações dos executivos da JBS. O procurador-geral da República (PGR), Rodrigo Janot, reforçou nessa sexta (9) o pedido de prisão preventiva do tucano por considerar que o delito é de alta gravidade e há risco de reiteração dos crimes.
+Segundo o Ministério Público, as gravações feitas pelos donos da JBS mostram o senador afastado pedindo propina e tentando obstruir as investigações da Operação Lava Jato.
+"A principal prova acusatória da suposta corrupção é a gravação feita por um então aspirante a delator que, além de se encontrar na perícia para comprovação da autenticidade e integridade, retrata uma conversa privada, dolosamente manipulada e conduzida pelo delator para obter os incríveis e sem precedentes benefícios", rebate a defesa de Aécio em nota. "A defesa tem a convicção de que demonstrará a absoluta correção das condutas do senador Aécio Neves."
+Para o advogado Alberto Zacharias Toron, que atua na defesa do senador afastado, a acusação de corrupção "não para em pé", pois o suposto de pedido de propina seria na verdade negociação para a compra de um apartamento da família de Aécio pelos donos da JBS. "A conversa gravada clandestinamente pelo delator refere-se a uma relação privada, desvinculada de bens e interesses públicos", diz o advogado. A defesa também refutou acusações de que o senador teria beneficiado o frigorífico durante seu mandato de governador de Minas Gerais. "Corrupção, portanto, não há."
+Sobre a acusação de obstrução à Justiça, a defesa de Aécio alega que a fundamentação do Ministério Público parte das posições do senador afastado em relação a determinados projetos de lei, o que configura violação do princípio básico de separação de poderes na visão da defesa. "Objetiva o PGR criminalizar o livre exercício de legislar, pois, em termos simples, não gostou do modo de votar do senador Aécio Neves", diz a nota.
+Toron diz ainda que a "suposta influência" de Aécio na troca de delegados que atuam na força-tarefa da Lava Jato se trata de conversa privada, "quase sempre" induzida pelo delator, "sem qualquer consequência prática". Segundo o advogado, o diálogo reflete o sentimento do senador afastado com o tratamento recebido durante as investigações.

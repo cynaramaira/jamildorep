@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Aluísio Lessa critica 'covardia' do presidente Bolsonaro com Anvisa"
+date: 2021-12-18
+tags: Anvisa
+author: JAMILDO MELO
+---
+O deputado estadual Alu&iacute;sio Lessa reagiu &agrave;s declara&ccedil;&otilde;es do presidente Jair Bolsonaro, que amea&ccedil;ou expor publicamente os t&eacute;cnicos da Ag&ecirc;ncia que aprovaram a nota t&eacute;cnica indicando a vacina&ccedil;&atilde;o contra a Covid 19 para crian&ccedil;as a partir de 5 anos.
+"Nunca na hist&oacute;ria desse Pa&iacute;s um presidente foi t&atilde;o abjeto no trato com sa&uacute;de da popula&ccedil;&atilde;o. E se n&atilde;o bastasse a tirania de usar o cargo maior da Rep&uacute;blica para insultar, desrespeitar e intervir nas institui&ccedil;&otilde;es de Estado, essa amea&ccedil;a a servidores da Anvisa feita por Jair Bolsonaro &eacute; de uma covardia inaceit&aacute;vel".
+O deputado anotou que a Anvisa (Ag&ecirc;ncia Nacional de Vigil&acirc;ncia Sanit&aacute;ria) foi fundada em 1999. Ou seja, j&aacute; tem mais de 20 anos de atua&ccedil;&atilde;o. Que ela &eacute; classificada como ag&ecirc;ncia reguladora, sob forma de autarquia &ndash; &oacute;rg&atilde;o aut&ocirc;nomo da administra&ccedil;&atilde;o p&uacute;blicacom personalidade jur&iacute;dica, patrim&ocirc;nio e receita pr&oacute;prios &ndash; e &eacute; vinculada ao Minist&eacute;rio da Sa&uacute;de. E que isso, por si s&oacute;, nesse contexto, j&aacute; se pode ver o tamanho da import&acirc;ncia desse instrumento na vida da popula&ccedil;&atilde;o.
+"A Anvisa atua no controle sanit&aacute;rio de produtos nacionais e importados, na &aacute;rea de alimentos, medicamentos, agrot&oacute;xicos etc e de alguns estabelecimentos como Portos, aeroportos, postos de fronteiras laborat&oacute;rios, dentre outros. Ela deve garantir que todos eles sejam seguros, de qualidadee com efic&aacute;cia comprovada no nosso dia-a-dia", esclareceu Alu&iacute;sio Lessa.
+O deputado manifestou sua solidariedade aos t&eacute;cnicos da Ag&ecirc;ncia Reguladora, como a todos os profissionais envolvidos no combate &agrave; Pandemia de Covid que v&ecirc;m sofrendo ataques, que qualificou de covardes, por parte do presidente Bolsonaro.
+"Ainda bem que o tempo dessa vergonha internacional chamada Bolsonaro est&aacute; com os seus dias contados. O povo vai lhe dar uma resposta &agrave; altura nas pr&oacute;ximas elei&ccedil;&otilde;es", previu Lessa.

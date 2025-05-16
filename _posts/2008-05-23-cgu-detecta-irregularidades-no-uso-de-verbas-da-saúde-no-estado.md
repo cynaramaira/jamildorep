@@ -1,0 +1,14 @@
+---
+layout: post
+title: "CGU detecta irregularidades no uso de verbas da saúde no Estado"
+date: 2008-05-23
+tags: Estado,Irregularidades
+author: None
+---
+A Controladoria-Geral da Uni&atilde;o (CGU) finalizou os trabalhos de auditoria nos oito Estados definidos na s&eacute;tima edi&ccedil;&atilde;o do Programa de Fiscaliza&ccedil;&atilde;o a Partir de Sorteios P&uacute;blicos. Foram fiscalizados recursos da ordem de R$ 672,5 milh&otilde;es, repassados pela Uni&atilde;o para a execu&ccedil;&atilde;o descentralizada de programas federais. A &aacute;rea fiscalizada, a da Sa&uacute;de, tamb&eacute;m foi escolhida por sorteio.
+Problemas de toda ordem foram constatados nos Estados fiscalizados. A maior parte desses problemas diz respeito &agrave;s condi&ccedil;&otilde;es de armazenamento dos medicamentos, geralmente inadequadas; prazos de validade de medicamentos vencidos e compra feita por pre&ccedil;os superiores aos do Banco de Pre&ccedil;os do Minist&eacute;rio da Sa&uacute;de. 
+Em Pernambuco, a fiscaliza&ccedil;&atilde;o da CGU tamb&eacute;m identificou irregularidades nas condi&ccedil;&otilde;es de armazenamento e aus&ecirc;ncia de preenchimento dos formul&aacute;rios de controle de temperatura. Nas farm&aacute;cias hospitalar e ambulatorial foi constatado que os hemoderivados n&atilde;o s&atilde;o armazenados em c&acirc;maras frigor&iacute;ficas, estando guardadas em geladeiras comuns. 
+De acordo com os fiscais, nas bulas dos medicamentos, tais como Fator IX, Fator VIII, Complexo Protomb&iacute;nico e Von Willebrand, &eacute; recomendado que sejam conservados sob temperatura entre 2&ordm; e 8&ordm;C, n&atilde;o podendo ser congelados. As medi&ccedil;&otilde;es de temperatura, segundo os auditores, teriam de ser feitas a cada quatro horas e afixadas nas portas das geladeiras. Em uma das geladeiras da farm&aacute;cia hospitalar a medi&ccedil;&atilde;o n&atilde;o era realizada h&aacute; doze dias porque n&atilde;o havia term&ocirc;metro.
+Os relat&oacute;rios foram encaminhados, para as provid&ecirc;ncias cab&iacute;veis, ao Minist&eacute;rios da Sa&uacute;de; &agrave; Procuradoria-Geral da Rep&uacute;blica; ao Tribunal de Contas da Uni&atilde;o; &agrave; C&acirc;mara dos Deputados (Mesa Diretora e Comiss&atilde;o de Fiscaliza&ccedil;&atilde;o Financeira e Controle); ao Senado Federal (Mesa Diretora e Comiss&atilde;o de Fiscaliza&ccedil;&atilde;o Financeira e Controle); &agrave; Procuradoria-Geral de Justi&ccedil;a do Estado; &agrave; Procuradoria da Rep&uacute;blica no Estado; ao Tribunal de Contas do Estado; ao Governo Estadual e &agrave; Assembl&eacute;ia Legislativa do Estado.
+Os relat&oacute;rios de fiscaliza&ccedil;&atilde;o j&aacute; est&atilde;o dispon&iacute;veis em vers&atilde;o integral na p&aacute;gina da CGU na internet (www.cgu.gov.br).
+ 

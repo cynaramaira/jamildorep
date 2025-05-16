@@ -1,0 +1,51 @@
+---
+layout: post
+title: "Justiça vê fraudes e anula licitação de ônibus de Petrolina"
+date: 2022-09-27
+tags: jamildo, Petrolina, Miguel Coelho
+author: Jamildo Melo
+---
+Sem alarde, em agosto &uacute;ltimo, o juiz Sydnei Alves Daniel, da Vara da Fazenda P&uacute;blica de Petrolina, constatou fraudes cont&aacute;beis na licita&ccedil;&atilde;o para a escolha da empresa de transporte p&uacute;blico do munic&iacute;pio, declarou inabilitada a empresa escolhida, em 2019, ainda na gest&atilde;o Miguel Coelho, sugeriu a rescis&atilde;o do contrato e determinou a abertura de um novo processo licitat&oacute;rio.
+
+    
+            BOLSONARO EM PETROLINA: Bolsonaro e Anderson Ferreira fazem motociata no Sertão nesta terça-feira; veja percurso
+        
+
+O magistrado atendeu um pedido da empresa Girassol Servi&ccedil;os de Transportes Ltda, contra a autarquia municipal de mobilidade de Petrolina (AMMPLA) e contra a empresa Atl&acirc;ntico Transportes Ltda, que havia ganho a concorr&ecirc;ncia, em 2019 ainda.
+Gest&atilde;o de Petrolina critica empresa perdedora e vai recorrer 
+A campanha de Miguel Coelho preferiu n&atilde;o se pronunciar, e passou a quest&atilde;o para a gest&atilde;o de Petrolina, que respondeu aos questionamentos da Justi&ccedil;a com uma nota oficial.
+"A Prefeitura de Petrolina esclarece que se trata de uma a&ccedil;&atilde;o ordin&aacute;ria proposta pela Girassol Servi&ccedil;os de Transportes Ltda. Inconformada com a derrota no processo licitat&oacute;rio deflagrado pelo edital de Concorr&ecirc;ncia P&uacute;blica N&ordm; 03/2019, a empresa afirma que a Atl&acirc;ntico Transportes Ltda., n&atilde;o poderia ser declarada habilitada e vencedora da licita&ccedil;&atilde;o supracitada, pois alega que existiam falhas na regularidade fiscal e balan&ccedil;o patrimonial da Atl&acirc;ntico".
+"Ressaltamos que tanto o Minist&eacute;rio P&uacute;blico do Estado de Pernambuco, como o Tribunal de Contas do Estado de Pernambuco - Corte especializada para an&aacute;lise de processos licitat&oacute;rios, opinaram que a empresa Atl&acirc;ntico demonstrou de forma regular a sua boa capacidade financeira, estando apta para ser declarada habilitada e vencedora da licita&ccedil;&atilde;o".
+"Portanto, todo o procedimento foi realizado seguindo os ditames da Lei de Licita&ccedil;&otilde;es, apurando a boa situa&ccedil;&atilde;o financeira da Atl&acirc;ntico de forma objetiva, atrav&eacute;s do c&aacute;lculo de &iacute;ndices cont&aacute;beis previstos no edital".
+"A Prefeitura de Petrolina destaca ainda que a Atl&acirc;ntico vem cumprido com tudo que foi especificado em edital e a cidade conta com uma frota de 83 &ocirc;nibus novos, com elevadores e espa&ccedil;o exclusivo para pessoas com defici&ecirc;ncia, tomadas USB e Wi-fi para os usu&aacute;rios. Al&eacute;m da redu&ccedil;&atilde;o de 6% no valor da passagem, que na &eacute;poca custava R$ 3,70 e foi reduzida para R$ 3,50".
+"Por fim, por n&atilde;o concordar com os termos da senten&ccedil;a (processo N&ordm; 0002470-14.2019.8.17.3130), a Autarquia Municipal de Mobilidade de Petrolina (AMMPLA) adotar&aacute; as medidas judiciais necess&aacute;rias para demonstrar que os atos realizados para contrata&ccedil;&atilde;o da Atl&acirc;ntico Transportes Ltda foram regulares", afirmou&nbsp; a gest&atilde;o municipal.
+Entenda um pouco mais da licita&ccedil;&atilde;o pol&ecirc;mica em Petrolina
+A concorr&ecirc;ncia 003/2019 saiu em fevereiro de 2019, visando promover a concess&atilde;o da presta&ccedil;&atilde;o de servi&ccedil;o p&uacute;blico de transporte de Petrolina. Quatro empresas se credenciaram, entre elas a Girassol, a Atl&acirc;ntico Transportes e mais duas, Viva Petrolina e Cons&oacute;rcio Planalto.
+Ainda na fase de contesta&ccedil;&atilde;o, a Girassol reclamou do balan&ccedil;o patrimonial apresentado pela Atl&acirc;ntico Transportes, que tinha sede na Bahia. A concorrente colocava suspeitas na Atl&acirc;ntico ao observar que, entre 2017 e 2018, o PL da empresa havia passado de R$ 3,1 milh&otilde;es para R$ 45 milh&otilde;es.
+De acordo com a Girassol, a autarquia local, que realizava a licita&ccedil;&atilde;o, ignorou os questionamentos em resposta, um dia antes de indeferir as alega&ccedil;&otilde;es e declarar vencedora a Atl&acirc;ntico. A Girassol pediu na Justi&ccedil;a uma liminar para a suspens&atilde;o, at&eacute; o julgamento do m&eacute;rito. A autarquia local apresentou um agravo de instrumento e postergou a aprecia&ccedil;&atilde;o do pedido de liminar recursal.
+
+    
+            Metrô do Recife: Fórum é criado para debater questões do transporte público na cidade
+        
+
+De acordo com o que relata a senten&ccedil;a, a presid&ecirc;ncia do TJPE chegou a suspender os efeitos da decis&atilde;o do ju&iacute;zo fazend&aacute;rio de Petrolina,, atrav&eacute;s da aprecia&ccedil;&atilde;o do agravo.
+Na querela jur&iacute;dica que se seguiu, a Atl&acirc;ntico Transportes contestou a decis&atilde;o e alegou que a quest&atilde;o j&aacute; havia perdido o objeto (considerando que ela havia sido declarada vencedora). "N&atilde;o houve qualquer aumento expressivo injustific&aacute;vel de capital. N&atilde;o temos m&aacute;cula ou desvio", afirmou, em s&iacute;ntese.
+Tamb&eacute;m a AMMPLA contestou o magistrado e negou irregularidades, na instru&ccedil;&atilde;o, rebatendo em especial as supostas inconsist&ecirc;ncias no balan&ccedil;o patrimonial. Nas alega&ccedil;&otilde;es, a autarquia se socorreu do TCE, alegando que havia dado aval.
+A Girassol ent&atilde;o pediu uma per&iacute;cia cont&aacute;bil, com o que o MP concordou.
+Perito encontrou irregularidades
+
+  
+  Parados - DAY SANTOS/JC IMAGEM 
+
+De acordo com as informa&ccedil;&otilde;es da Justi&ccedil;a de Petrolina, o perito Ant&ocirc;nio Souza Lima Neto foi nomeado em 2020. No trabalho, ele sustenta e reclama das supostas irregularidades na fase de habilita&ccedil;&atilde;o da concorr&ecirc;ncia, por parte da autarquia.
+Apesar disto, destaca o magistrado, o MP deu parecer pela improced&ecirc;ncia dos pedidos, com a alega&ccedil;&atilde;o de que "a empresa demandada tem exercido o objeto contratual, sem maiores intercorr&ecirc;ncias", situa&ccedil;&atilde;o em que "a anula&ccedil;&atilde;o da concorr&ecirc;ncia n&atilde;o se revelaria poss&iacute;vel &agrave; luz da necessidade de resguardar o interesse p&uacute;blico".
+O juiz Sydnei Alves Daniel, da Vara da Fazenda P&uacute;blica de Petrolina, n&atilde;o se deu por satisfeito, de acordo com a senten&ccedil;a. "... mesmo ciente que balan&ccedil;os fraudulentos poderiam impactar na qualifica&ccedil;&atilde;o econ&ocirc;mica e financeira do participante do procedimento licitat&oacute;rio...", comentou, sobre o parecer ministerial. "... a evolu&ccedil;&atilde;o do patrim&ocirc;nio l&iacute;quido de R$ 3,1 milh&otilde;es para R$ 45 milh&otilde;es entre os exerc&iacute;cios de 2017 e 2018 n&atilde;o encontra lastro nos documentos cont&aacute;beis da referida Atl&acirc;ntico Transportes Ltda", frisa.
+"... expert (perito) chegou a conclus&atilde;o de que houve fraude na escritura cont&aacute;bil da vencedora do certame. O patrim&ocirc;mio l&iacute;quido seria apenas R$ 21 milh&otilde;es, R$ 24 milh&otilde;es n&atilde;o foram comprovados... se n&atilde;o fosse isto, (Atl&acirc;ntico Transportes) n&atilde;o atenderia o requerimenyo econ&ocirc;mico-financeiro exigido no processo licitat&oacute;rio".
+Na senten&ccedil;a, falas do per&iacute;to cont&aacute;bil d&atilde;o conta que ele reclamou que a empresa dificultou o andamento da per&iacute;cia ao n&atilde;o apresentar todos os documentos solicitados e informa que, ap&oacute;s os questionamentos, a empresa fez ajustes e pagou impostos junto &agrave; Receita Federal.
+Sab&atilde;o at&eacute; na posi&ccedil;&atilde;o adotada pelo TCE
+Na senten&ccedil;a, o juiz auxiliar de Petrolina faz cr&iacute;ticas indiretas ao Tribunal de Contas do Estado (TCE) por onde a querela passou tamb&eacute;m.
+"... em que pesem os respeit&aacute;veis argumentos relativos ao princ&iacute;pio da continuidade dos servi&ccedil;o, a decis&atilde;o administrativa do TCE representa verdadeiro incentivo para que os licitantes perdedores e outros tatos licitantes pelo &agrave;is optem por fraudar seus documentos fiscais, a fim de atingir os &iacute;ndices econ&ocirc;mico financeiros... No presente caso, a fraude frustra o carater competitivo do certame por admitir concorrentes que n&atilde;o comprovaram sua sa&uacute;de econ&ocirc;ico-financeira. N&atilde;o h&aacute; outro caminho, sen&atilde;o reconhecer a ilicitude e inabilitar o concorrente (Atl&acirc;ntico Transportes)", escreveu.
+De acordo com operadores do direito, a senten&ccedil;a n&atilde;o tem resultados imediatos. "O juiz vai decidir estes embargos. Depois sobe para tr&ecirc;s desembargadores em uma camara civel do TJPE. Ainda tem a fase recursal. Assim, n&atilde;o deve afetar a situa&ccedil;&atilde;o do transporte l&aacute; de imediato. S&oacute; depois dos desembargadores decidirem"
+&nbsp;
+Tribunal de Justi&ccedil;a de Pernambuco Poder Judici&aacute;rio
+Vara da Fazenda P&uacute;blica da Comarca de Petrolina Processo n&ordm; 0002470-14.2019.8.17.3130 AUTOR: GIRASSOL SERVICOS DE TRANSPORTES LTDA REU: AUTARQUIA MUNICIPAL DE MOBILIDADE DE PETROLINA - AMMPLA, ATLANTICO TRANSPORTES E TURISMO LTDA DESPACHO Defiro o pedido de ID n&ordm; 112044513 e determino a expedi&ccedil;&atilde;o de alvar&aacute; para levantamento dos valores remanescentes de honor&aacute;rios periciais. Em rela&ccedil;&atilde;o aos embargos de declara&ccedil;&atilde;o opostos pela requerente, considerando a possibilidade de atribui&ccedil;&atilde;o de efeitos infringentes, intime-se o Embargado para, no prazo de 05 (cinco) dias, querendo apresentar manifesta&ccedil;&atilde;o[1]. O prazo para manifesta&ccedil;&otilde;es processuais ser&aacute; contado em dobro para o Minist&eacute;rio P&uacute;blico, Advocacia P&uacute;blica e Defensoria P&uacute;blica[2]. Decorrido o prazo, com ou sem resposta, voltem-me conclusos. Registro que os embargos de declara&ccedil;&atilde;o n&atilde;o possuem efeito suspensivo[3] e interrompem o prazo para a interposi&ccedil;&atilde;o de recurso[4].Petrolina, data conforme assinatura eletr&ocirc;nica. Sydnei Alves Daniel Juiz de Direito Auxiliar

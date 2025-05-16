@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Ação digital pró-governo mantém base com menos de 20% dos perfis no Twitter, mas amplia presença no debate com 51% das interações"
+date: 2020-06-18
+tags: ação,Ampliação,Debate,Enem digital,fenômenos astronômicos,governo,PROS,Twitter
+author: None
+---
+Sala de Democracia Digital da FGV - Os recentes desdobramentos do cenário político em Brasília voltaram a impulsionar a participação do grupo de apoio ao governo federal na discussão política do Twitter esta semana, conforme o índice digital atualizado pela Diretoria de Análise de Políticas Públicas da FGV (FGV DAPP) e que contempla o debate político e sobre a pandemia de coronavírus no país desde o começo de março.
+Nesta terça-feira (16), este núcleo de apoio ao governo persistiu abaixo de 20% dos perfis que interagiram no debate, mas responderam por 51% de todas as interações (e 49% na segunda, 15) - a primeira vez desde o fim de maio que este grupo reúne a maioria dos retuítes na plataforma.
+De outro lado, no grupo central que organiza boa parte dos perfis de oposição ao governo, de políticos, influenciadores digitais, celebridades e da imprensa, nesta terça manteve-se em 30% dos perfis da rede, longe de agregar outras bases digitais como ocorrido em outros momentos da política recente no país. O impacto direto de influenciadores digitais de viralização específica nas redes sociais também decaiu esta semana, com o núcleo político retomando o controle da pauta digital.
+O cansaço da quarentena: grupo não alinhado discute o longo isolamento social
+Esta semana, a base de perfis não alinhados a eixos políticos e que regularmente debate outras questões associadas à pandemia (novamente o maior grupo, com 35% dos perfis) afastou-se do cenário nacional e sobre o governo federal para reiterar outras agendas de importância, como o cansaço com a quarentena de 3 meses, a difícil retomada de um cotidiano pré-Covid e a redução nas opções de entretenimento e do conforto com a situação de se ficar em casa regularmente. Também o grupo, porém, questiona iniciativas de reabertura julgadas como precipitadas e lamenta que a curva epidemiológica do país demore a cair, em comparação com outras nações.
+
+No WhatsApp, protestos nos Estados Unidos e discussão racial começam a impactar os grupos políticos
+Normalmente, o acompanhamento de grupos brasileiros de debate político no WhatsApp é organizado a partir da conjuntura estritamente nacional, afora links e conteúdos de âmbito internacional vinculados à Amazônia ou ao governo dos Estados Unidos. No entanto, esta semana, os protestos de larga escala em cidades norte-americanas engajaram-se na pauta local de mais compartilhamento nos grupos, assim como o debate sobre racismo. Links sobre George Floyd, o homem negro morto pela polícia de Minneapolis, no estado de Minnesota, entre os de maior relevância no período.

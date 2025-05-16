@@ -1,0 +1,18 @@
+---
+layout: post
+title: "João Paulo defende Lula; Gilson Machado critica"
+date: 2024-02-20
+tags: jamildo, Israel, Palestina
+author: Jamildo Melo
+---
+O deputado estadual Jo&atilde;o Paulo, do PT, conhecido por ser defensor da quest&atilde;o Palestina, foi um dos que em Pernambuco saiu em defesa de Lula no epis&oacute;dio envolvendo Israel. No arco conservador, o ex-ministro do turismo de Bolsonaro, Gilson Machado, tamb&eacute;m se pronunciou, atacando Lula. "Minha solidariedade ao presidente Lula que, numa posi&ccedil;&atilde;o de estadista e em defesa dos povos oprimidos do mundo, pronunciou-se contra o genoc&iacute;dio em curso na Palestina, que j&aacute; deixou um saldo de 28 mil mortes, a maioria crian&ccedil;as e mulheres. Reafirmo meu apoio aos palestinos, por um imediato cessar-fogo na regi&atilde;o e a retomada da constitui&ccedil;&atilde;o de um Estado Palestino livre e soberano. #lulatemrazao", afirmou Jo&atilde;o Paulo.
+"A banaliza&ccedil;&atilde;o do Holocausto pelo Presidente de ocasi&atilde;o, coloca o Pa&iacute;s na sarjeta do relacionamento internacional. Impressionante parte da imprensa domesticada, minimizando e contemporizando com essa profana&ccedil;&atilde;o do sofrimento do povo de Israel, com mais de 6 milh&otilde;es de v&iacute;timas", escreveu.
+No plano nacional, a imprensa brasileira repercute desde a noite de domingo (18) a not&iacute;cia de que a oposi&ccedil;&atilde;o ao governo Lula j&aacute; recolhe assinaturas para instaurar um processo de impeachment contra o presidente da Rep&uacute;blica, em virtude de suas declara&ccedil;&otilde;es sobre a guerra de Israel em Gaza.
+"O Brasil nunca tinha entrado na briga. O Pr de ocasi&atilde;o (como se refere ao presidente Lula) escolheu um lado. Aqui temos a maior comunidade &aacute;rabe do mundo. E grande comunidade judaica, que sempre conviveram bem. Inclusive tenho amigo judeu casado com libanesa", disse o ex-ministro.
+Em passagem pela capital da Eti&oacute;pia no &uacute;ltimo final de semana, Lula disse que n&atilde;o h&aacute; paralelos na hist&oacute;ria para o massacre que Israel pratica indiscriminadamente contra o povo palestino em Gaza ap&oacute;s o ataque do Hamas em 7 de outubro de 2022, a n&atilde;o ser com o que Hitler fez contra os judeus.
+A declara&ccedil;&atilde;o causou rea&ccedil;&otilde;es de Israel e de seus defensores no Brasil. O primeiro-ministro Benjamin Netanyahu afirmou que Lula desonrou a mem&oacute;ria de mais de 6 milh&otilde;es de judeus assassinados pelo regime nazista.
+Nas redes sociais, o deputado federal Kim Kataguiri disse que &ldquo;Lula nos colocou em rota de colis&atilde;o com uma das na&ccedil;&otilde;es mais amigas do Brasil. (&hellip;) Essa atitude precisa de uma resposta imediata das institui&ccedil;&otilde;es brasileiras.&rdquo;
+O deputado federal petista Lindbergh Farias tamb&eacute;m saiu em defesa de Lula. &ldquo;A direita brasileira n&atilde;o para de amea&ccedil;ar a democracia e tentar tomar o mandato na marra. Agora falam em impeachment de Lula por criticar duramente, como deve ser feito, os absurdos cometidos pelo governo ultradireitista de Netanyahu, que tem o sangue de mais de 10 mil crian&ccedil;as palestinas nas m&atilde;os.&rdquo;
+
+Hipocrisia 
+Nas redes sociais, internautas lembraram que o ex-presidente Jair Bolsonaro e a deputada federal Bia Kicis travaram encontros com pol&iacute;ticos do partido neonazista da Alemanha sem que isso fosse interpretado como uma afronta a Israel, nem ter sido motivo de pedido de impeachment. Outros ainda lembraram que o senador Fl&aacute;vio Bolsonaro, filho de Jair Bolsonaro, comparou as pris&otilde;es dos manifestantes que atentaram contra a democracia em 8 de Janeiro de 2023 com o holocausto.

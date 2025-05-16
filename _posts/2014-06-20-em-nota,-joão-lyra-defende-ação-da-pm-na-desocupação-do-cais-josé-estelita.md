@@ -1,0 +1,35 @@
+---
+layout: post
+title: "Em nota, João Lyra defende ação da PM na desocupação do Cais José Estelita"
+date: 2014-06-20
+tags: ação,DESOCUPAÇÃO,Estelita,joão d,Louro José,Nota,raquel lyra
+author: None
+---
+Governador defende ação da PM e diz que não cabe ao Estado discutir decisão do TJPE. Foto: Felipe Ribeiro/JC Imagem
+Em nota divulgada na página oficial do Governo do Pernambuco, o governador João Lyra Neto (PSB) quebrou o silêncio sobre a reintegração de posse do terreno no Cais José Estelita onde deve ser erguido o projeto Novo Recife, ocorrida na terça-feira (17) e cuja ação da Polícia Militar vem sendo questionada pelo excesso no uso da força. A crítica teria partido inclusive do antecessor de Lyra, o ex-governador e presidenciável Eduardo Campos (PSB).
+Na nota, Lyra diz que o uso de força pela PM foi necessário devido à resistência dos manifestantes ao cumprimento da ordem judicial e a "ameaças à integridade física dos agentes públicos presentes". O governador também reforçou que toda a ação foi grava em vídeo pela polícia e que excessos da parte dos policiais e dos acampados estão sendo apurados.
+Leia também: Comandante geral da PM defende operação policial no Estelita, rebate críticas da OAB e promete processar manifestantes que falaram em racismo e furto por PMs
+"Não cabe ao Governo do Estado julgar o mérito da decisão e sim, conforme determina a Constituição Brasileira, apoiar o Poder Judiciário no cumprimento da mesma", escreveu. "Cumpri, integral e rigorosamente, todas as atribuições constitucionais que jurei ao tomar posse como Governador de Estado", garante no texto.
+Além de alegarem utilização de violência pela PM, os manifestantes também criticam o Estado por descumprir um acordo de procedimento para reintegração de posse que previa uma comunicação com 48h de antecedência aos ocupantes, além da participação do Ministério Público.
+Na nota, o governador não cita o acordo, mas reitera que o Tribunal de Justiça de Pernambuco (TJPE) requereu no dia 13, em caráter de urgência, o uso da força policial para cumprir a ordem do desembargador Márcio Fernando de Aguiar Silva, que havia determinado a desocupação do terreno no dia 29 de maio.
+ Foto: Elvis de Lima/NE10
+"É dever do Governador do Estado manter o respeito à Constituição e a convivência harmônica entre as três esferas de poder: Executivo, Legislativo e Judiciário", diz Lyra. "Uma coisa é o debate sobre o projeto imobiliário no Cais José Estelita, que deve prosseguir no rito democrático. Outra coisa é a ação de reintegração de posse do terreno, emitida pelo Tribunal de Justiça de Pernambuco", defende.
+Além da repreensão de Campos nos bastidores, a condução de Lyra da ação foi criticada publicamente pela ex-senadora Marina Silva, vice de Eduardo na chapa presidencial, e pelo prefeito do Recife, Geraldo Julio (PSB). A ação no Cais José Estelita teria criado um mal estar dentro do PSB que pode prejudicar a candidatura do ex-secretário da Fazenda Paulo Câmara.
+A ocupação do terreno começou no dia 21 de maio, após o início das demolições dos galpões, por um grupo de manifestantes contrário a construção das 12 torres residenciais e empresariais do Novo Recife. Após a reintegração de posse, um grupo passou a acampar próximo ao Cabanga Iate Clube.
+ Foto: Elvis de Lima/NE10
+Leia a nota do governador na íntegra:
+NOTA OFICIAL
+No que diz respeito ao projeto imobiliário do Consórcio Novo Recife em terreno localizado no Cais José Estelita, reitero minha compreensão de que o empreendimento deve ser amplamente debatido com a participação da sociedade civil organizada, iniciativa privada e poderes públicos, num grande diálogo em clima de entendimento e colaboração mútua.
+Com a experiência de prefeito por dois mandatos, defendo que o nosso país precisa de uma ampla reforma urbana, na qual sejam respeitados os princípios do planejamento, sustentabilidade ambiental e da convivência entre as pessoas. A legislação do solo urbano no Brasil tem se mostrado absolutamente anacrônica e carece de uma reformulação urgente. Precisamos construir as cidades do futuro.
+Uma coisa é o debate sobre o projeto imobiliário no Cais José Estelita, que deve prosseguir no rito democrático. Outra coisa é a ação de reintegração de posse do terreno, emitida pelo Tribunal de Justiça de Pernambuco (TJPE).
+É dever do Governador do Estado manter o respeito à Constituição e a convivência harmônica entre as três esferas de poder: Executivo, Legislativo e Judiciário.
+Para que todos compreendam as medidas adotadas pelo Executivo Estadual, é preciso uma breve retrospectiva dos fatos:
+No dia 22 de maio passado, manifestantes ocuparam terreno na área privada do empreendimento imobiliário do Consórcio Novo Recife. Imediatamente, os proprietários ajuizaram ação para reintegração de posse. No dia 23, o juiz José Ronemberg Travassos da Silva, da 19ª Vara Cível, a quem o processo foi distribuído, determinou ao oficial de justiça Antônio Carlos Araújo a vistoria do imóvel. No cumprimento da diligência, o oficial de justiça constatou a invasão e foi hostilizado e ameaçado pelos ocupantes, fato que consta nos autos do processo.
+No dia 29 de maio, o Poder Judiciário determinou a reintegração de posse do terreno, conforme despacho do desembargador substituto Márcio Aguiar, que solicitou a força policial no sentido de fazer cumprir a decisão. Por absoluta intransigência dos ocupantes, a determinação do Judiciário não pode ser atendida.
+No dia 13 de junho, o Poder Judiciário requereu, mais uma vez, em caráter de "urgência", a força policial para o cumprimento do mandado de reintegração de posse. Em 18 de junho, a 4ª Câmara Civil do TJPE, por unanimidade, manteve a decisão.
+Não cabe ao Governo do Estado julgar o mérito da decisão e sim, conforme determina a Constituição Brasileira, apoiar o Poder Judiciário no cumprimento da mesma.
+Esse é o Estado Democrático de Direito que conquistamos após muitas lutas contra o regime autoritário.
+A ação de reintegração de posse, prevista pela Constituição Brasileira, sob pena de intervenção federal no Estado caso não seja cumprida, ocorreu no dia 17 de junho - após 29 dias de ocupação. Os oficiais de justiça José Roberto de Araújo e Márcia Gomes, acompanhados da Polícia Militar de Pernambuco, tentaram por mais de uma hora chegar a um entendimento com os ocupantes acampados no terreno. Ofereceram, inclusive, transporte para seus pertences, o que foi aceito por muitos, até que se estabeleceu um impasse. Como foi atestado pelos Oficiais de Justiça, houve por parte dos ocupantes resistência à ordem judicial e ameaças à integridade física dos agentes públicos presentes. Em razão disso, os oficiais de justiça demandaram o uso da força necessária para o cumprimento da ordem. Todos os fatos foram consignados nos autos do processo, gravados em vídeo pela Polícia Militar e registrados pela imprensa. Eventuais excessos, sejam de policiais ou dos acampados no terreno, estão sendo apurados.
+Cumpri, integral e rigorosamente, todas as atribuições constitucionais que jurei ao tomar posse como Governador de Estado.
+João Soares Lyra Neto
+Governador do Estado de Pernambuco

@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Livrarias do Recife comemoram Centro de Distribuição da Companhia das Letras em Jaboatão   "
+date: 2024-04-05
+tags: jamildo, livro
+author: Jamildo Melo
+---
+Nesta semana, o blog de Jamildo revelou em primeira m&atilde;o que o grupo da Companhia das Letras vai inaugurar em abril um novo Centro de Distribui&ccedil;&atilde;o em Jaboat&atilde;o dos Guararapes, Regi&atilde;o Metropolitana do Recife. A empresa disse que o movimento era um marco para o mercado editorial brasileiro, concentrado na regi&atilde;o Sudeste. No Recife, como era de se esperar, as livrarias comemoraram a novidade.
+Qual o amante dos livros que j&aacute; n&atilde;o chegou em busca de um lan&ccedil;amento nas livrarias locais e saiu frustrado? E olha que, entre os oito estados do Nordeste, Pernambuco e Cear&aacute; s&atilde;o os que representam a maior fatia nas vendas. Jos&eacute; Diego Virg&iacute;nio, Analista de Produtos da Livraria Jaqueira, disse que o impacto do Centro de Distribui&ccedil;&atilde;o em Pernambuco vai transformar todo o mercado editorial do Nordeste.
+&ldquo;Sofremos muito com os clientes em busca de lan&ccedil;amentos que ainda n&atilde;o chegaram nas lojas. Com esse dep&oacute;sito aqui n&atilde;o teremos mais demora em receber os lan&ccedil;amentos e reposi&ccedil;&otilde;es da Companhia&rdquo;.
+Ele afirma que com essa mudan&ccedil;a ser&aacute; poss&iacute;vel entender melhor o perfil do leitor de cada estado. &ldquo;Atualmente a Companhia j&aacute; representa boa parte do nosso acervo e esperamos uma parceria ainda mais frut&iacute;fera e plural. Acreditamos que &eacute; um passo grande, mas apenas inicial, da Companhia, que poder&aacute; desdobrar em uma atua&ccedil;&atilde;o mais presente no Nordeste e com a possibilidade de realiza&ccedil;&atilde;o de grandes eventos&rdquo;, declara.
+Jacob Berenstein Neto, s&oacute;cio-propriet&aacute;rio da Livraria Imperatriz, que est&aacute; no mercado desde 1930, tamb&eacute;m celebra a proximidade do dep&oacute;sito.
+&ldquo;Vamos ter os lan&ccedil;amentos muito rapidamente nas lojas. Antes a gente precisava acumular uma quantidade grande de t&iacute;tulos para fazer um pedido, por conta do custo do frete. Com o centro de distribui&ccedil;&atilde;o aqui vamos ter mais efici&ecirc;ncia nessas entregas. Isso torna a Companhia das Letras muito mais competitiva que as demais editoras.&rdquo;, comenta.
+L&iacute;der no com&eacute;rcio de livros no pa&iacute;s e detentora de um espa&ccedil;o log&iacute;stico em Pernambuco, a Amazon v&ecirc; com bons olhos esse investimento da editora de maior relev&acirc;ncia do pa&iacute;s. &ldquo;Ficamos muito felizes com a inaugura&ccedil;&atilde;o deste Centro de Distribui&ccedil;&atilde;o da Companhia das Letras no Nordeste. Certamente esse movimento vai ajudar a beneficiar os leitores da regi&atilde;o&ldquo;, declara Ricardo Perez, Country Manager Books, da Amazon.
+O novo Centro de Distribui&ccedil;&atilde;o da Companhia das Letras entra em funcionamento agora em abril. A celebra&ccedil;&atilde;o de inaugura&ccedil;&atilde;o ocorreu no dia 03, &agrave;s 18h30, na Livraria Jaqueira, no Pa&ccedil;o Alf&acirc;ndega.

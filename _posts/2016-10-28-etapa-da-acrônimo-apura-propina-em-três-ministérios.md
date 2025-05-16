@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Etapa da Acrônimo apura propina em três ministérios"
+date: 2016-10-28
+tags: Apuração,Ministérios,primeira etapa,propina
+author: None
+---
+Estadão Conteúdo - A Polícia Federal deflagrou nesta quinta-feira, 27, a 11ª fase da Operação Acrônimo, que apura pagamento de propina por contratos de publicidade nos Ministérios da Saúde, Cidades e Turismo. Em delação premiada, a empresária Danielle Fonteles, dona da Pepper Comunicação Interativa, admitiu ter sido subcontratada pela agência Agnelo Comunicação para participar de campanhas nas três pastas. Em troca, teria feito pagamentos ao empresário Benedito Rodrigues Oliveira, o Bené, outro delator, que confessou operar esquemas de corrupção no governo federal.
+Conforme os depoimentos de Danielle, Bené intermediou a contratação da Agnelo Pacheco com a ajuda do assessor Marcier Trombiere, que chefiou, entre 2011 e 2012, os setores de comunicação na Saúde e nas Cidades. Ela disse que Trombiere recebeu propina do empresário em troca de facilidades à empresa no governo.
+As declarações da empresária indicaram aos investigadores que a participação do assessor no suposto esquema não foi integralmente descrita por Bené em sua colaboração. Por isso, ele poderá perder benefícios pactuados com investigadores da Operação Acrônimo se comprovado que tentou protegê-lo.
+Caberá à Procuradoria-Geral da República (PGR) avaliar se cabe rever o acordo com o empresário, que conseguiu transferência para a prisão domiciliar desde junho.
+Danielle afirmou que em 2011, a pedido de Bené, Trombiere conseguiu que a Agnelo fosse contratada para campanha de combate à dengue na Saúde. A agência, no entanto, não teria executado os serviços, que foram terceirizados à Pepper, a qual receberia R$ 1 milhão pelos serviços. Disse que sua empresa repassou R$ 283 mil a uma empresa ligada a Bené e sugeriu que ele pagasse R$ 120 mil, a título de comissão, a Marcier, o que, segundo ela, ocorreu.
+Trombiere já havia sido preso em 2014, na 1ª fase da Acrônimo, quando voltava de Belo Horizonte com Bené num jatinho, transportando dinheiro de origem suspeita. Na época, ele colaborava para a campanha de Fernando Pimentel (PT) ao governo de Minas. O petista também não é alvo desta fase. O Estado não conseguiu contato com o advogado de Trombiere. A defesa de Bené não retornou contatos da reportagem. A Agnelo, em nota, informou ter "todos os arquivos e comprovantes que garantem o cumprimento de todos os trabalhos contratados" pela Pepper. As informações são do jornal O Estado de S. Paulo

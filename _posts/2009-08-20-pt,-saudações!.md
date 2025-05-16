@@ -1,0 +1,19 @@
+---
+layout: post
+title: "PT, saudações!"
+date: 2009-08-20
+tags: PT,Secretaria de Saúde de Pernambuco
+author: None
+---
+Por S&eacute;rgio Montenegro Filho, no blog www.polislivre.blogspot.com
+&nbsp;
+O que quase todo mundo esperava, aconteceu. Por ordem expressa do Pal&aacute;cio do Planalto, os governistas integrantes do Conselho de &Eacute;tica do Senado votaram pela absolvi&ccedil;&atilde;o do presidente da Casa, Jos&eacute; Sarney (PMDB-AP), nas 11 den&uacute;ncias encaminhadas contra ele pela oposi&ccedil;&atilde;o.
+Mas o que nem todos esperavam era que o presidente Lula passasse um hist&oacute;rico rolo-compressor por cima do pr&oacute;prio partido para salvar um aliado de outra legenda. Afinal, o PT s&oacute; chegou aonde chegou &ndash; o governo federal &ndash; gra&ccedil;as &agrave;s overdoses de corporativismo que marcaram sua trajet&oacute;ria ao longo de muitos anos na oposi&ccedil;&atilde;o.
+Os petistas ficaram famosos por suas brigas internas, mas jamais permitiram que elas extrapolassem os limites das reuni&otilde;es plen&aacute;rias. Dissid&ecirc;ncias e tend&ecirc;ncias distintas, sempre houve, mas no momento da disputa eleitoral, davam lugar a uma unidade monol&iacute;tica, dif&iacute;cil de combater.
+Isso foi at&eacute; chegar ao poder. Em nome da &ldquo;governabilidade&rdquo;, Lula montou em torno de sua administra&ccedil;&atilde;o um bloco multipartid&aacute;rio gigantesco e disforme, recheado de interesses distintos e, muitas vezes, indiz&iacute;veis.
+No epis&oacute;dio do Conselho de &Eacute;tica, prevaleceu o interesse direto do pr&oacute;prio Lula: garantir a alian&ccedil;a com o PMDB para pavimentar a candidatura de Dilma Rousseff &agrave; Presid&ecirc;ncia no pr&oacute;ximo ano. Nem que isso significasse ter que cortar na pr&oacute;pria carne.
+Foi o que aconteceu. Agora, se tiver um m&iacute;nimo de orgulho, o l&iacute;der petista no Senado, Alo&iacute;sio Mercadante, entrega o cargo, conforme prometeu, caso o Planalto obrigasse seus senadores a votar a favor de Sarney. Palavra dada, &eacute; hora de cumpri-la.
+Mas a sa&iacute;da do ex-companheiro de chapa de Lula em 1994 da lideran&ccedil;a n&atilde;o deve ser o &uacute;nico pre&ccedil;o a ser pago pela salva&ccedil;&atilde;o de Sarney. Um dos senadores mais decentes do partido, Fl&aacute;vio Arns PR), deixou clara a situa&ccedil;&atilde;o interna ap&oacute;s o sapo que teve que engolir: pediu desculpas aos seus eleitores em rede nacional de televis&atilde;o e abriu a porta para deixar o PT, ao afirmar que o partido deu as costas &agrave; sociedade e descumpriu seu ide&aacute;rio.
+A justificativa, prevista em lei, permite que um parlamentar saia da legenda sem perder o mandato. &ldquo;Aspectos eleitorais est&atilde;o se sobrepondo &agrave; &eacute;tica e ao respeito &agrave; sociedade&rdquo;, bradou o senador dissidente, que &eacute; sobrinho de Zilda Arns e do cardeal Paulo Evaristo Arns.
+A cr&iacute;tica de Arns aconteceu, inclusive, poucas horas ap&oacute;s a senadora Marina Silva (AC) anunciar sua sa&iacute;da do PT ap&oacute;s 30 anos de milit&acirc;ncia partid&aacute;ria. E por motivos semelhantes. Ela foi v&iacute;tima do rolo-compressor palaciano quando, como ministra do Meio Ambiente, se colocou contra a vontade de Lula de afagar grupos empresariais de explora&ccedil;&atilde;o da Amaz&ocirc;nia. Os empres&aacute;rios venceram, e predominou mais uma vez a autofagia petista em nome do poder.
+Curioso &eacute; que, ap&oacute;s tudo isso, a &uacute;nica declara&ccedil;&atilde;o que se obteve de Sarney foi que, a partir de agora, o Senado voltar&aacute; ao normal. N&atilde;o explicou, por&eacute;m, se a normalidade a que se referia &eacute; a institucional ou a que certamente continuar&aacute; beneficiando pequenos e poderosos grupos aliados do Planalto.&nbsp; 

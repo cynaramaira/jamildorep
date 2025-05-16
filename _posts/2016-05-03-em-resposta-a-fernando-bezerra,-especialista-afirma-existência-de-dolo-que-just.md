@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Em resposta a Fernando Bezerra, especialista afirma existência de dolo que justifica impeachment"
+date: 2016-05-03
+tags: Fernando Collor,impeachment,justificativa
+author: None
+---
+ Foto: Fábio Medina Osório
+Em resposta a dois questionamentos feitos pelo senador Fernando Bezerra Coelho (PSB-PE), que integra a Comissão Especial do Impeachment no Senado, o presidente do Instituto Internacional de Estudos de Direito Constitucional, Fábio Medina Osório, afirmou, nessa segunda (2) que medidas tomadas pela presidente Dilma Rousseff devem ser analisadas sob o ponto de vista do “dolo”.
+Ao elencar e analisar atos fiscais e de gestão pública por parte da presidente, que Osório considera serem ilegais e/ou irregulares, o advogado destacou: “O dolo recai sobre aspectos que integram todos estes comportamentos (da chefe do Executivo). O dolo é considerado de modo muito mais amplo dentro da responsabilidade política. O dolo não é a intenção de se locupletar (enriquecer, tirar proveito). O dolo não é a má fé, não é a intenção de embolsar dinheiro público. O dolo é uma corrupção ideológica. O dolo diz respeito a um determinado estilo de governo, a um método de governar”.
+As perguntas de Fernando Bezerra referiam-se aos principais argumentos que embasam o pedido de impeachment: as chamadas “pedaladas fiscais” (manobras fiscais) e à assinatura de decretos presidenciais de suplementação orçamentária não numerados. “Temos de esgotar a análise destas questões para não haver dúvidas sobre a existência ou não de indícios de autoria (de dolo) por parte da presidente da República”, destacou o senador. “A defesa (de Dilma Rousseff) alega, em relação aos decretos, que não houve dolo na medida em que a decisão da presidente se fundamentou em pareceres técnicos que apontavam a viabilidade da operação”, contemporizou Bezerra Coelho.
+Em resposta a tais questionamentos do senador, Fábio Osório disse que a responsabilidade pela escolha da equipe técnica que assessora a Presidência é, também, de Dilma Rousseff. E completou: “Nós não podemos presumir que um governante seja ignorante ou que ignore ou que tenha desconhecimento do que se passa ao seu redor. Este é o dolo que nós sugerimos que deva ser apreciado (pelo Senado)”.
+Mais cedo, no início da quinta reunião da Comissão Especial do Impeachment (CEI), o procurador do Tribunal de Contas da União (TCU), Júlio Marcelo de Oliveira, classificou como "práticas destrutivas" a chamada "contabilidade criativa" - definição utilizada pelo governo para explicar as pedaladas fiscais, principal fundamento do pedido de impeachment.
+"Não se trata de contabilidade criativa; mas, sim, de contabilidade destrutiva, maquiagem, manobra, fraude fiscal. Práticas que destruíram as contas públicas e o ambiente econômico do país", afirmou Oliveira. Também compareceu à reunião de hoje da CEI, como convidado indicado pela oposição ao governo, o juiz José Maurício Conti.

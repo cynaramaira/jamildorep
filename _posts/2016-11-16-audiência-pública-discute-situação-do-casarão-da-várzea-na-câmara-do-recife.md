@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Audiência pública discute situação do Casarão da Várzea na Câmara do Recife"
+date: 2016-11-16
+tags: Câmara,Recife
+author: None
+---
+A Câmara Municipal do Recife realiza, nesta quarta-feira (16), a partir das 19h, uma audiência pública para discutir a situação e as providências necessárias para garantir a restauração e preservação do Casarão Magitot, popularmente conhecido como Casarão da Várzea, localizado nas proximidades da principal praça do bairro. A iniciativa é da vereadora Marília Arraes (PT). A audiência acontece na próprio prédio como forma de alertar toda a sociedade para a urgência da questão.
+O prédio, que foi transformado em Imóvel Especial de Preservação, em 2015, pela Prefeitura da Cidade do Recife (PCR), foi construído em 1905 e sediou o primeiro hospital odontológico da América Latina, o Hospital Magitot, em meados da década de 60. Apesar de ter sido classificado como um IEP, a Executivo municipal não adotou as medidas necessárias para garantir o restauro e preservação do bem.
+Em meados de setembro, a Prefeitura do Recife iniciou a demolição de parte da estrutura que circunda o Casarão Magitot sem qualquer preocupação com o prejuízo que poderia causar a estrutura geral do imóvel. Também sem consultar a população local sobre seus desejos e expectativas para o prédio, o Executivo anunciou que o local iria abrigar um mercado público, mas não apresentou nenhum projeto de restauro do prédio.
+Em 28 de setembro, diante do risco iminente de danos permanentes ao patrimônio público, um grupo de moradores da área e ativistas de movimentos populares ocuparam o prédio e acionaram o Ministério Público de Pernambuco, que determinou a suspensão das obras e da demolição de parte da estrutura das torres onde estavam localizadas as antigas caixas de água da construção. O MPPE também ingressou com uma Ação Civil Pública cobrando a PCR ações imediatas que garantam o restauro e preservação do prédio.
+A PCR foi convocada para enviar representantes para a audiência, que contará ainda com a presença de movimentos sociais, grupos que atuam na preservação do patrimônio urbanístico do Recife, do MPPE e outras instituições que tenham interesse no tema.

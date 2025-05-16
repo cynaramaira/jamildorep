@@ -1,0 +1,34 @@
+---
+layout: post
+title: "Paulo Câmara pede que Bolsonaro não degrade o Metrô do Recife e  espera BNDES para decidir estadualização"
+date: 2022-05-18
+tags: jamildo, Metrô do Recife
+author: Jamildo Melo
+---
+Em uma nota de tr&ecirc;s par&aacute;grafos, o governo do Estado pediu que o governo Federal n&atilde;o permita o sucateamento do Metr&ocirc; do Recife, enquanto tenta repassa-lo ao governo do Estado, em um processo que est&aacute; sendo estudado pelo BNDES, no Rio de Janeiro. Paulo C&acirc;mara observa que ainda n&atilde;o bateu o martelo e que espera os dados da viabilidade econ&ocirc;mica para tomar uma decis&atilde;o.&nbsp;
+
+    
+            Metrô do Recife é alvo de críticas do deputado estadual Romero Albuquerque
+            Metroviários dizem ser contra privatização do Metrô do Recife
+            João Arnaldo e Eugênia Lima criticam privatização do metrô do Recife
+            Crea e Sindmetro criam fórum permanente de discussão sobre o metrô do Recife
+        
+
+"Diante da crise pela qual passa o Metr&ocirc; do Recife, importante meio de transporte p&uacute;blico para a popula&ccedil;&atilde;o de grande parte da Regi&atilde;o Metropolitana, o Governo de Pernambuco espera que o Governo Federal, controlador da CBTU e respons&aacute;vel pela opera&ccedil;&atilde;o e manuten&ccedil;&atilde;o do Metr&ocirc;, cumpra com sua obriga&ccedil;&atilde;o de manter em pleno funcionamento as linhas de transporte do sistema, enquanto se concluem por parte do BNDES os estudos de viabilidade econ&ocirc;mica".
+"O modelo de gest&atilde;o que vir&aacute; a ser proposto pelo Governo Federal ainda dever&aacute; ser submetido a diversas inst&acirc;ncias de debate p&uacute;blico. O fato de estudar repassar o controle do sistema a outra inst&acirc;ncia n&atilde;o justifica que o Governo Federal abandone e corte recursos do sistema, afetando diariamente o funcionamento do metr&ocirc;, como a popula&ccedil;&atilde;o tem assistido todos os dias".
+"O Governo do Estado se coloca &agrave; disposi&ccedil;&atilde;o para construir solu&ccedil;&otilde;es e, inclusive, a assumir compromissos financeiros com o Governo Federal para garantir que o Metr&ocirc; n&atilde;o falte aos milhares de usu&aacute;rios que recorrem a ele. Em tempo, a gest&atilde;o estadual esclarece que n&atilde;o foi firmado nenhum acordo formal sobre a concord&acirc;ncia ou n&atilde;o do modelo de opera&ccedil;&atilde;o a ser proposto por parte do Governo Federal. Quando de posse dos estudos do BNDES, o Governo do Estado far&aacute; as devidas an&aacute;lises e apresentar&aacute; suas propostas de investimento e moderniza&ccedil;&atilde;o do Metr&ocirc; do Recife".
+Sindicato diz que greve poder&aacute; ser decretada, caso o Governo do Estado n&atilde;o desista do processo de estadualiza&ccedil;&atilde;o ou privatiza&ccedil;&atilde;o
+J&aacute; a diretoria do Sindmetro-PE informou que se encontrou na manh&atilde; desta quarta-feira (18) com a vice-governadora Luciana Santos, o Secret&aacute;rio de Planejamento de Pernambuco, Alexandre R&ecirc;belo e o presidente do PSB de Pernambuco, Sileno Guedes, para "cobrar" um posicionamento do Governo Estadual em rela&ccedil;&atilde;o ao processo de estadualiza&ccedil;&atilde;o ou privatiza&ccedil;&atilde;o do metr&ocirc; do Recife.
+O Sindicato disse mais uma vez que &eacute; contra a estadualiza&ccedil;&atilde;o e que espera at&eacute; a Assembleia Geral Extraordin&aacute;ria, que ser&aacute; realizada na noite desta quinta (19), uma nota do Governo do Estado desistindo do processo que est&aacute; em andamento. Veja acima.
+"Em caso de um posicionamento que n&atilde;o seja a desist&ecirc;ncia da estadualiza&ccedil;&atilde;o/ privatiza&ccedil;&atilde;o, a categoria que &eacute; soberana em suas decis&otilde;es, pode decretar paralisa&ccedil;&atilde;o do Sistema metrovi&aacute;rio na sexta-feira (20)".
+"Independentemente do posicionamento do Governo Estadual, o SINDMETROPE continuar&aacute; vigilante e na luta contra a privatiza&ccedil;&atilde;o do sistema metrovi&aacute;rio e em defesa da tarifa social de R$2,00 para atender aos trabalhadores e trabalhadoras pernambucanos que dependem do metr&ocirc;, al&eacute;m de cobrar do governo Federal os investimentos e verbas de custeio para voltarmos a ser um metr&ocirc; refer&ecirc;ncia em transporte p&uacute;blico e de qualidade", diz o sindicato.
+Conhe&ccedil;a o cemit&eacute;rio dos metr&ocirc;s quebrados do Recife
+Existe um verdadeiro &ldquo;cemit&eacute;rio de trens&rdquo; do Metr&ocirc; do Recife, localizado no Centro de Manuten&ccedil;&atilde;o de Cavaleiro (CMC), oficina de reparo das composi&ccedil;&otilde;es que atendem ao sistema metroferrovi&aacute;rio do Grande Recife.
+Segundo um dos funcion&aacute;rios, s&atilde;o pelo menos 20 trens parados. S&atilde;o equipamentos quebrados e/ou sem pe&ccedil;as para reposi&ccedil;&atilde;o. &ldquo;&Eacute; muito f&aacute;cil e c&ocirc;modo falar dos trens, apontar falhas e problemas. &Eacute; f&aacute;cil culpar a CBTU. Mas sem recursos &eacute; imposs&iacute;vel. E cad&ecirc; o investimento?&rdquo;, questiona.
+&nbsp;
+&nbsp;
+'Paulo C&acirc;mara mostra que &eacute; s&oacute;cio do sucateamento do Metr&ocirc; do Recife', diz Raquel Lyra
+Pr&eacute;-candidata ao Governo do Estado, Raquel Lyra (PSDB) considera a nota enviada pelo Governo do Estado ao blog de Jamildo, na qual o cobra-se que o Governo Federal n&atilde;o permita o sucateamento do Metr&ocirc; do Recife, revela neglig&ecirc;ncia da gest&atilde;o do PSB, nos &uacute;ltimos oito anos, com sistema de transporte que atende a quase 400 mil pernambucanos por dia.
+&ldquo;Com a cobran&ccedil;a feita s&oacute; agora ao Governo Federal, Paulo C&acirc;mara mostra que o sil&ecirc;ncio o tornou s&oacute;cio e c&uacute;mplice do sucateamento do metr&ocirc; do Recife&rdquo;, afirma Raquel.
+A pr&eacute;-candidata, que recentemente esteve nas esta&ccedil;&otilde;es do metr&ocirc; ouvindo dos passageiros relatos do sufoco di&aacute;rio, disse que "ap&oacute;s passar anos se esquivando da responsabilidade de ao menos cobrar uma a&ccedil;&atilde;o da CBTU" no sentido de prestar um atendimento de qualidade, o Governo do PSB lan&ccedil;a uma nota que &eacute; uma verdadeira confiss&atilde;o de culpa.
+"Um trecho da nota diz, por exemplo, que &ldquo;o Governo do Estado se coloca &agrave; disposi&ccedil;&atilde;o para construir solu&ccedil;&otilde;es e, inclusive, assumir compromissos financeiros com o Governo Federal para garantir que o Metr&ocirc; n&atilde;o falte aos milhares de usu&aacute;rios que recorrem a ele&rdquo;, afirma.

@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Requerimento que pede instalação da CPI da Covid deve ser lido nesta terça"
+date: 2021-04-13
+tags: Caso Banestado,covid,PEDESTRE,superterça
+author: None
+---
+Nesta terça-feira (13), o presidente do Senado, Rodrigo Pacheco, deve ler o requerimento para instalação da CPI da Covid. Um áudio divulgado neste domingo (11), entre o senador Jorge Kajuru e o presidente Jair Bolsonaro, sobre a instalação da comissão parlamentar de inquérito, repercutiu no Senado.
+O documento pede a criação de uma comissão parlamentar de inquérito para investigar ações e omissões do governo federal no enfrentamento da pandemia e o colapso da saúde no estado do Amazonas no começo do ano. Entretanto, alguns senadores propõem que as investigações alcancem também os governos estaduais, distrital e municipais, o que pode ocorrer com a ampliação das investigações ou até com a criação de outra comissão.
+O senador Alessandro Vieira (Cidadania-SE) protocolou requerimento junto à Mesa Diretora do Senado pedindo a ampliação do escopo da CPI da Covid. Ele quer que a comissão investigue também atos praticados por agentes políticos e administrativos dos estados, do Distrito Federal e dos municípios “na gestão de recursos públicos federais destinados a custear as políticas sanitárias adotadas com o objetivo de combater a pandemia da covid-19 e seus efeitos”.
+“Garantimos a abertura da CPI da Covid e agora apresentamos o pedido para ampliar o seu escopo, incluindo os atos praticados por governadores, prefeitos e outros agentes administrativos. É preciso apurar a verdade em todas as esferas. Quem não deve não teme!”, escreveu Alessandro Vieira pelo Twitter.
+Já o senador Eduardo Girão (Podemos-CE) está prestes a protocolar um requerimento para a criação de uma comissão parlamentar de inquérito para investigar não só o governo federal, mas também os governos dos demais entes federados.
+“Conseguimos! Já são mais de 34 assinaturas até o momento! Reunimos o número de assinaturas suficientes para protocolar uma CPI abrangendo União, estados e municípios. Espero que a verdade venha à tona, quem tá devendo vai ter que se justificar e quem errou vai ter que ser punido”, publicou Girão no início da tarde desta segunda.
+Por sua vez, o senador Roberto Rocha (PSDB-MA) avisou que vai apresentar requerimento para que seja criada uma CPI mista, ou seja, uma comissão parlamentar de inquérito com participação de senadores e deputados federais. Ele pede que essa comissão mista investigue possíveis irregularidades no uso de recursos federais por estados, Distrito Federal e municípios no combate à pandemia.
+
+As propostas foram recebidas com apoios de alguns senadores e críticas de outros.
+Para o líder da minoria no Senado, senador Jean Paul Prates (PT-RN), o desempenho dos governo estaduais e municipais pode ser investigado pelas respectivas assembleias legislativas e câmaras municipais.
+— A União é responsável por distribuir as verbas orçamentárias para todos os entes da federação. Se aconteceram irregularidades na destinação ou mesmo na aplicação desse dinheiro, é preciso apurar tudo. Se o governo federal não fez nada de errado, não há o que temer, bem como os gestores estaduais e municipais que fizeram uso dessas verbas. Uma CPI não é um bicho de sete cabeças. Além de ter o papel de investigar, ela pode contribuir com propostas de médio e longo prazo para o enfrentamento da covid-19 no país. Vamos ter que conviver com esse vírus e as consequências e as sequelas da covid-19 durante muito tempo — afirmou.
+Pelo Twitter, os senadores Luiz do Carmo (MDB-GO), Elmano Férrer (PP-PI), Flávio Arns (Podemos-PR), Jorge Kajuru (Cidadania-GO) e Ciro Nogueira (PP-PI) afirmaram apoiar a inclusão dos governos subnacionais entre os investigados.
+“A CPI é necessária para investigar as inúmeras denúncias de atos que colocaram o Brasil neste caos que estamos vivendo”, afirmou Arns.
+Ciro Nogueira, por sua vez, argumentou que “neste momento grave deveríamos estar totalmente empenhados em garantir socorro aos brasileiros e não desviar desse foco com CPIs. Mas já que a comissão deve ser instaurada, que façamos uma investigação completa”.
+Em contraponto a essa posição, os senadores Fabiano Contarato (Rede-ES), Cid Gomes (PDT-CE) e Randolfe Rodrigues (Rede-AP) foram às redes sociais defender que cabe às assembleias legislativas investigar possíveis irregularidades nos governos estaduais.
+Cid Gomes afirmou que ampliar a CPI da Covid ou criar outra comissão “serve para desviar do fato principal e gerar confusão”. Ele também ressaltou que “CPI não é brincadeira; há uma comissão para ser instalada, inclusive com determinação do STF”.
+Para Randolfe Rodrigues, o presidente da República está tentando interferir na instalação da CPI da Covid. “Não vamos perder de vista: as assembleias estaduais podem investigar as ações dos governadores. O Congresso se dedica aos desvios federais! No Amapá, já há pedido de CPI pelos deputados”, destacou Randolfe.
+Com Agência Senado

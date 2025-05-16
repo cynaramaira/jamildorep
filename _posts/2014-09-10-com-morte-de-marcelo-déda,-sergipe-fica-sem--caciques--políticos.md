@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Com morte de Marcelo Déda, Sergipe fica sem "caciques" políticos"
+date: 2014-09-10
+tags: marcelo,Morte,Partidos Políticos
+author: None
+---
+ Jackson Barreto (PMDB) conta com 41% das intenções de voto. Foto: reprodução do Facebook.
+Por Ulysses Gadêlha, do Jornal do Commercio, desta quinta-feira (11).
+Em Sergipe, as eleições de 2014 prometiam um novo embate entre o PT e o DEM para o governo do Estado, já que o quadro foi este nas últimas duas eleições, em 2006 e 2010. Ninguém contava, no entanto, que o líder petista Marcelo Déda morresse em outubro de 2013, sem deixar sucessor político em seu partido, e que o democrata João Alves Filho abrisse mão da disputa para continuar seu mandato na Prefeitura de Aracaju, passando a compor uma aliança em torno de outro nome.
+Apesar de imprevista, a atual conjuntura tem como principais candidatos nomes ligados às duas grandes correntes políticas das outras eleições. Segundo pesquisa do Ibope, o atual governador Jackson Barreto (PMDB) conta com 41% das intenções de voto. Ele vem para a reeleição depois de assumir o governo, com a morte do então governante Marcelo Déda.
+O cenário em Sergipe é semelhante ao de Pernambuco, em que houve um desaparecimento repentino do líder político, no caso o ex-governador Eduardo Campos (PSB), que faleceu em agosto último num acidente aéreo. Déda também não poderia disputar a reeleição, pois já havia cumprido dois mandatos. Ele apontaria o sucessor, semelhante ao que Eduardo fez no Estado, com a indicação do ex-secretário da Fazenda Paulo Câmara (PSB).
+ Eduardo Amorim está em segundo lugar na disputa. Foto: reprodução Facebook
+O segundo colocado na disputa é o senador licenciado Eduardo Amorim (PSC), com 33%. Em torno de sua candidatura, Amorim reúne figuras como o prefeito João Alves Filho, do ex-governador Albano Franco (PSDB) e do próprio irmão, o empresário Edivan Amorim (PR), que disputa uma vaga na Assembleia Legislativa sergipana.
+Na corrida ao Senado, a candidata que lidera as pesquisa é a esposa de João Alves Filho, a advogada Maria do Carmo (DEM), com 42%. Logo após, com 13%, está o presidente do PT-SE, Rogério Carvalho. Entretanto, para os especialistas, o jogo de lideranças talvez não seja o fator que definirá o resultado das eleições. O próprio passado de Jackson e Amorim poderia depor contra ambos, já que eles contam com 66% da rejeição do eleitorado.
+Segundo o professor da Universidade Federal de Sergipe (UFS) Afonso Nascimento, o protagonismo de Barreto nas pesquisas se deve à luz própria do peemedebista, que deu mais dinamismo ao governo nos últimos meses, brigando por aprovação de projetos na Assembleia e entregando obras.
+Leia também: Apoios pesam contra candidatos em Sergipe
+"Embora Jackson reivindique as realizações de Déda, o próprio Déda teve apenas 20% de aprovação, em uma pesquisa feita quando ele morreu", declarou. Pesa contra sua candidatura, também, o fato de que ele já foi afastado da prefeitura de Aracaju por improbidade administrativa.
+No caso de Eduardo Amorim, a avaliação feita pelo cientista social José Rodorval, da UFS, é que "o senador licenciado se lançou candidato num agrupamento também cheio de vícios anti-republicanos e, por isso, não conseguiu empolgar tanto o eleitor que procura alguma novidade". À seu favor, Amorim tem amplas votações em 2006, para deputado, e em 2010, quando se elegeu o senador mais votado do Estado. Contrariamente, Amorim tem sua exoneração do cargo de secretário da Saúde do Estado, em 2004, no governo de João Alves Filho.
+Para Afonso Nascimento, como os principais atores da eleição são os próprios candidatos, Jackson Barreto deverá alargar a vantagem que possui em relação a Eduardo Amorim. "Jackson tem mais tempo na TV, os programas são mais bem feitos, ele tem somado suas realizações. Também acho que ele passa mais a imagem de alguém preparado para governar, bem aliado com o governo federal”, arrematou o professor.

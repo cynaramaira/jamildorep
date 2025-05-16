@@ -1,0 +1,11 @@
+---
+layout: post
+title: "Empresa do setor de microcrédito inaugura primeira loja na capital pernambucana"
+date: 2023-08-21
+tags: jamildo, crédito, nordeste
+author: Jamildo Melo
+---
+A Crefaz Financiamentos e Investimentos, empresa do setor de microcr&eacute;dito, inaugurou sua primeira loja na capital pernambucana e uma unidade em Paulista, na Grande Recife. A inaugura&ccedil;&atilde;o faz parte da estrat&eacute;gia de expans&atilde;o da Crefaz, que ter&aacute; 30 novas unidades em outros estados como Cear&aacute;, Rio de Janeiro, Rio Grande do Norte e S&atilde;o Paulo at&eacute; o fim deste ano, totalizando uma amplia&ccedil;&atilde;o de 30% (134 unidades).
+Para a empresa, as lojas refor&ccedil;am a presen&ccedil;a da marca nas regi&otilde;es onde est&atilde;o instaladas, aproximando os clientes com a Crefaz e tamb&eacute;m com os parceiros comerciais. A primeira unidade em Recife est&aacute; localizada na Rua Duque de Caxias, 191, no bairro Santo Ant&ocirc;nio. &Eacute; a segunda no estado, onde a empresa j&aacute; conta com loja em Petrolina, na regi&atilde;o do Vale do S&atilde;o Francisco. Em Paulista, a unidade fica no Centro, na Rua Coronel Alberto Lundgren, 15.
+A Crefaz diz ter como prop&oacute;sito ampliar a oferta de cr&eacute;dito &agrave; popula&ccedil;&atilde;o n&atilde;o assistida pelos servi&ccedil;os financeiros tradicionais. Para o CEO da empresa, Carlos Eduardo Navarro Ribeiro, a chegada &agrave; capital de Pernambuco e &agrave; Grande Recife refor&ccedil;a a atua&ccedil;&atilde;o da Crefaz tanto no estado como no Nordeste brasileiro, importante regi&atilde;o para a estrat&eacute;gia de amplia&ccedil;&atilde;o no n&uacute;mero de lojas.
+&ldquo;Parte dos nossos clientes tem prefer&ecirc;ncia pelo atendimento pessoal, por isso as unidades pr&oacute;prias desempenham um papel crucial. As lojas s&atilde;o importantes &agrave; medida em que disponibilizamos outras op&ccedil;&otilde;es como nossos parceiros comerciais, site, telefone e aplicativo para o acesso aos produtos que oferecemos ao mercado&rdquo;, informa Ribeiro.

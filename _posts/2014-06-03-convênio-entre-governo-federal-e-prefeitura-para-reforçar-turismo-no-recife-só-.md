@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Convênio entre governo federal e prefeitura para reforçar turismo no Recife só existe no papel, diz oposição"
+date: 2014-06-03
+tags: entrega,Governo Federal,Oposição,papelão,Prefeitura,Recife,turismo
+author: None
+---
+ Vereadora da oposição visita Centro de Atendimento ao Turista. Foto: divulgação
+A vereadora Priscila Krause (DEM) questionou nesta terça-feira (3) na tribuna da Câmara, o descumprimento da matriz de responsabilidades por parte do governo federal e da Prefeitura do Recife para a estruturação de ações turísticas referentes à Copa do Mundo. Do convênio que previa o investimento de R$ 4,6 milhões do Ministério do Turismo para a Prefeitura, apenas R$ 600 mil foram repassados.
+"O convênio não saiu do papel, mas o Ministério do Turismo divulga no seu site que esse investimento já é realidade. É um absurdo. O fato é que nós perdemos esse dinheiro", questionou Priscila.
+Segundo a vereadora, o objetivo da cooperação era a realização de obras de requalificação e reforma de infraestrutura e acessibilidade para os sete Centros de Atendimento ao Turista (CATs) existentes, além da construção de um na Bomba do Hemetério e da aquisição de uma unidade móvel (micro-ônibus). No início da administração Geraldo Julio, a empresa GR Projetos Empreendimentos foi contratada para elaborar o projeto executivo dos novos CATs, chegando a receber R$ 67,17 mil pelos serviços (o contrato previa R$ 255 mil para esse serviço).
+Das ações previstas, apenas a aquisição do CAT móvel poderá sair do papel, mesmo assim há a possibilidade de o micro-ônibus só chegar ao Recife depois da Copa do Mundo. A Prefeitura divulgou hoje o resultado da licitação para a aquisição do veículo (ao custo de R$ 334 mil). O contrato, no entanto, prevê um prazo de até quatro meses para que a empresa vencedora entregue o CAT móvel. “É preciso que a Prefeitura explique se o micro-ônibus da Copa vai chegar depois do evento, porque existe um processo burocrático para que a compra seja efetivada, além do que a empresa tem um prazo considerável para fornecer o equipamento”, afirmou Priscila.
+Priscila visitou na manhã de hoje duas unidades de Centros de Atendimento ao Turista, a do Mercado de São José e a do Pátio de São Pedro.
+“O documento que justificou a existência do convênio deixa claro que a situação dessas estruturas é precária e está confirmado. Se o foco da Copa são os turistas, infelizmente eles serão recebidos em Centros sem estrutura. Se a Copa serviria para deixar um legado ao turismo no Recife, infelizmente esse legado não veio. E é preciso saber se houve problema para o governo federal liberar as verbas”, concluiu Priscila.

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Aline Mariano reafirma apoio a funcionário da URB e critica descaso da PCR"
+date: 2011-11-22
+tags: Aline Riscado,crítica
+author: None
+---
+
+Os funcion&aacute;rios da URB recusaram a proposta apresentada pela dire&ccedil;&atilde;o do &oacute;rg&atilde;o e decidiram levar adiante a mobiliza&ccedil;&atilde;o.&nbsp; O sindicato ir&aacute; encaminhar a negocia&ccedil;&atilde;o para o Minist&eacute;rio P&uacute;blico do Trabalho, segundo ficou decido na assembleia dos funcion&aacute;rios da URB realizada na manh&atilde; desta segunda-feira (21), no audit&oacute;rio da Igreja da Soledade. A assembleia contou com a participa&ccedil;&atilde;o dos vereadores Aline Mariano (PSDB), Osmar Ricardo (PT), Priscila Krause (DEM) e Jurandir Liberal (PT).
+Os parlamentares integram comiss&atilde;o da C&acirc;mara Municipal institu&iacute;da, a pedido de Aline Mariano, para acompanhar as negocia&ccedil;&otilde;es entre os funcion&aacute;rios e a dire&ccedil;&atilde;o da URB. Aline ressaltou, mais uma vez, o apoio da Casa de Jos&eacute; Mariano &agrave;s reivindica&ccedil;&otilde;es dos servidores do &oacute;rg&atilde;o. &ldquo;A C&acirc;mara Municipal do Recife est&aacute; &aacute; disposi&ccedil;&atilde;o, da primeira a &uacute;ltima inst&acirc;ncia, para apoiar e acompanhar a luta de voc&ecirc;s&rdquo;, refor&ccedil;ou.
+A quest&atilde;o da estabilidade financeira, que deveria ter sido incorporada aos vencimentos dos servidores, &eacute; outro ponto pol&ecirc;mico destacado por Aline. O direito foi reconhecido para alguns funcion&aacute;rios da institui&ccedil;&atilde;o, enquanto outros, na mesma situa&ccedil;&atilde;o, ficaram a ver navios. &ldquo;Agora eles falam de uma incorpora&ccedil;&atilde;o optativa. Qual a seguran&ccedil;a de esperar por esse optativo&#63; Vejo essa proposta com muita desconfian&ccedil;a&rdquo;, destacou.
+A parlamentar criticou ainda o descaso da administra&ccedil;&atilde;o municipal com o Plano de Cargos e Carreiras da categoria.&nbsp; &ldquo;Faz muito tempo que esta luta existe. H&aacute; v&aacute;rios governos. E agora, a gest&atilde;o, falar de Plano de Cargos e Carreiras faltando um ano para terminar o mandato&#63; Depois de tr&ecirc;s anos no governo&#63; &Eacute; brincadeira...&rdquo;

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Humberto Costa quer PT na oposição a Raquel Lyra e pede definição do partido"
+date: 2023-03-30
+tags: jamildo, Eleições 2024
+author: Jamildo Melo
+---
+Uma semana depois de o presidente do PT no Estado, Doriel Barros, ter sido recebido pela governadora no Campo das Princesas, o vice-presidente nacional do Partido dos Trabalhadores (PT), senador Humberto Costa, disse nesta quinta-feira querer que a legenda em Pernambuco se re&uacute;na para definir uma posi&ccedil;&atilde;o sobre o governo Raquel Lyra (PSDB). Para o parlamentar, os petistas devem assumir o campo de oposi&ccedil;&atilde;o &agrave; administra&ccedil;&atilde;o estadual.
+Em outro gesto, a governadora Raquel Lyra se reuniu, nesta quarta-feira (29), com representantes da Federa&ccedil;&atilde;o dos Trabalhadores Rurais, Agricultores e Agricultoras Familiares de Pernambuco (Fetape), e da Federa&ccedil;&atilde;o dos Trabalhadores e Trabalhadoras Assalariados Rurais de Pernambuco (Fetaepe), ligados historicamente ao PT. Durante o encontro, realizado na sede das entidades, no Recife, a chefe do Executivo recebeu um documento com propostas para o fortalecimento da agricultura familiar. Doriel Barros estava presente.
+"Tenho insistido que precisamos ter uma defini&ccedil;&atilde;o. Essa hist&oacute;ria de ser independente n&atilde;o existe. O PT nunca foi de ficar em cima do muro. Temos de nos perguntar: n&oacute;s apoiamos o governo Raquel? Eu acho que n&atilde;o. At&eacute; o momento, n&atilde;o temos qualquer identidade com esse governo que est&aacute; a&iacute;", defendeu o senador.
+O l&iacute;der petista, no entanto, faz quest&atilde;o de ressalvar que a oposi&ccedil;&atilde;o deve ser construtiva e aberta ao di&aacute;logo em todos os temas de interesse do estado. E diz confiar que Raquel Lyra caminhe para uma eventual aproxima&ccedil;&atilde;o com o governo do presidente Lula, que tem todo o interesse na constru&ccedil;&atilde;o desse arranjo pol&iacute;tico.
+"Para isso, &eacute; necess&aacute;rio que a governadora tenha posi&ccedil;&otilde;es mais claras de qual &eacute; o campo pol&iacute;tico que ela quer construir. Ultimamente, temos visto uma aproxima&ccedil;&atilde;o, com partidos de posi&ccedil;&atilde;o contr&aacute;ria &agrave; nossa, como o PL de Bolsonaro. Ent&atilde;o, neste contexto e neste cen&aacute;rio, n&atilde;o h&aacute; identidade pol&iacute;tica entre n&oacute;s", disse.

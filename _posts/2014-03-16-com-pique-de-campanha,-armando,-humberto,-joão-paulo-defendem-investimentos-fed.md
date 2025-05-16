@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Com pique de campanha, Armando, Humberto, João Paulo defendem investimentos federais na Zona da Mata"
+date: 2014-03-16
+tags: Amazonas,Armando Monteiro,campanha,Humberto Costa,investimentos,joão d,Paulo,taxas federais
+author: None
+---
+ Na imagem, os senadores Armando Monteiro e Humberto Costa e os deputados federais João Paulo e Pedro Eugênio em entrevista a Rádio Paudalho. Foto: Alexandre Albuquerque / divulgação
+Na expectativa para a vinda do ex-presidente Lula ao Estado em abril, as lideranças do PT e do PTB começam a cumprir agendas conjuntas pelo interior, em defesa do legado das gestões petistas no Brasil e em Pernambuco. No sábado (15) eles percorreram a Zona da Mata, reafirmando que continuam a fazer parte de uma aliança política e administrativa que "ajudou a mudar a face de Pernambuco".
+O pré-canditado ao governo do Estado, senador Armando Monteiro (PTB), cumpriu agenda na companhia do senador Humberto Costa (PT) e dos deputados federais petistas João Paulo e Pedro Eugênio. O grupo percorreu os municípios de Paudalho, Carpina, Nazaré da Mata, Itaquitinga, Condado e Itambé.
+Todos se mostram confiantes no fortalecimento da aliança entre PTB e PT para a defesa em Pernambuco da reeleição da presidente Dilma Rousseff.
+Em entrevista à Radio Paudalho FM, o deputado João Paulo mencionou a aliança do PT com o PTB do senador Armando Monteiro, durante o período em que ele estava à frente da prefeitura do Recife. "O PTB participou da minha primeira gestão e deu grande contribuição para a aprovação popular que obtive. Fui reeleito e continuei a contar com o PTB. Agora vamos dar continuidade a esta parceria para trabalhar pela reeleição de Dilma", afirmou João Paulo.
+O senador Humberto Costa disse que o PT está fazendo um debate aprofundado sobre a aliança com o PTB, e que o partido irá tomar uma decisão democrática. "Pelo que tenho sentido, há uma maioria que quer apoiar Armando. Já estive com a presidente Dilma e com o ex-presidente Lula e eles me disseram que este é o melhor caminho", antecipou. Ao lado dos petistas, Armando Monteiro registrou as ações do Governo Federal em Pernambuco e falou da atenção especial que Lula e Dilma dão ao Estado.
+Em sua fala, Armando mencionou a instalação da fábrica da Fiat na Mata Norte e lembrou dos investimentos do governo federal no sistema viário do Estado, a exemplo da BR-232, da BR-408 e da Transnordestina.
+Armando aproveitou o espaço para fazer críticas ao governo do Estado. Em tom de "alerta", ele mencionou que os recursos para a obra de construção da BR-104 (que beneficiará o polo têxtil de Pernambuco) foi repassada pelo governo federal ao Governo do Estado, mas encontra-se cheia de problemas. "O dinheiro foi repassado e a obra está com problema, precisamos cobrar um esclarecimento ao DER", afirmou.

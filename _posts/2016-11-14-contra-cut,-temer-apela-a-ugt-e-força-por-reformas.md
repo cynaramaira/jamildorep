@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Contra CUT, Temer apela a UGT e Força por reformas"
+date: 2016-11-14
+tags: Contran,Força-Tarefa,Michel Temer,papelão,reformas
+author: None
+---
+Estadão Conteúdo - O presidente Michel Temer mobiliza a Força e a União Geral dos Trabalhadores (UGT) para tentar rachar o movimento sindical, reduzir a oposição às reformas da Previdência e trabalhista e esvaziar ações contra o governo planejadas pela Central Única dos Trabalhadores (CUT), a maior central brasileira e ligada ao PT. Até o ministro da Fazenda, Henrique Meirelles, deverá conversar com sindicalistas aliados para barrar eventual impacto negativo das propostas entre os trabalhadores.
+O governo espera que as duas centrais, que juntas superam a CUT em número de sindicatos filiados, ajudem ao menos a "embalar" o discurso sobre a necessidade das reformas. Em troca, o Planalto deverá ceder às reivindicações dos aliados e ampliar seus espaços na gestão.
+Após ser recebido em audiência privada de 40 minutos com Temer na quarta-feira, 9, o presidente da UGT, Ricardo Patah, saiu do encontro com o compromisso de levar Meirelles a uma plenária na sede da entidade em São Paulo. A exemplo do titular da Fazenda, Patah é filiado ao PSD de Gilberto Kassab, atual ministro de Ciência, Tecnologia e Comunicações.
+"Faremos o encontro daqui a uns dez dias. Será uma reunião grande. O Michel gostou da ideia. Ele quer que o debate com a equipe econômica não se limite ao meio empresarial. A sociedade tem de participar", afirmou Patah ao Estadão.
+"Vou chamar todos os presidentes estaduais para acompanhar a fala do ministro Meirelles. Vamos nesse diálogo superar as dúvidas sobre a retirada de direitos. Nossa relação com o governo é respeitosa. Não vamos ser contra apenas por sermos contra", disse Patah. A assessoria de Meirelles informou que o encontro com os sindicalistas ainda não foi marcado.
+Patah disse também que Temer pretende enviar a reforma da Previdência ao Congresso Nacional no dia 3 de dezembro e a trabalhista no começo do próximo ano.
+O primeiro triunfo da estratégia do presidente já foi obtido com o esvaziamento do chamado Dia Nacional de Greve, promovido pela CUT na sexta-feira. A UGT e a Força optaram por não participar. Em vez disso, marcaram uma manifestação para o próximo dia 25. "Nós falamos para a CUT que não iríamos, e a data era dia 25. Até porque a data de hoje (sexta-feira, 11) ia ter 'fora, Temer', e isso para a gente é coisa do passado", afirmou o deputado Paulinho da Força (SD-SP).
+A manifestação do dia 25 vai tratar de dois temas que, na avaliação do Planalto, serão definidos pelo Supremo Tribunal Federal (STF): a terceirização e a prevalência do acordado sobre o legislado em questões trabalhistas. A expectativa da equipe econômica é de que pelo menos metade da reforma trabalhista seja resolvida na Justiça, o que eliminaria dois problemas: livraria o governo Temer do desgaste e esvaziaria a oposição.
+"Não há a possibilidade de se fazer greve geral. Iríamos ficar na rua falando de greve geral e o povo trabalhando. Para se fazer greve, você tem de ter motivo. E não temos", disse Paulinho.
+Aliados.
+Juntas, a UGT e a Força têm 2.892 entidades, contra 2.319 da CUT, que reúne mais de 30% dos sindicalizados. Incentivadas pelo Planalto, Força e UGT cogitaram até uma fusão há alguns meses, mas a ideia, por enquanto, não avançou.
+Segundo um interlocutor do governo no Congresso, a ideia é que as entidades cumpram na gestão Temer o mesmo papel que a CUT exerceu nos governos do PT: críticas pontuais combinadas com o apoio institucional e veto ao "fora, Temer".
+"Estaremos em contato com as centrais sindicais para dirimir quaisquer arestas que tiverem na proposta de reforma trabalhista que o governo pretende encaminhar. E aí estão incluídas todas elas, até mesmo a CUT, se quiser conversar", disse ao Estadão o ministro da Secretaria de Governo Geddel Vieira Lima.
+Pressão.
+Enquanto recebe o apoio dessas duas centrais na base, Temer é pressionado a aumentar o espaço na administração federal dos partidos ligados à Força e à UGT.
+Líder da Força, Paulinho quer que a Secretaria de Agricultura Familiar e Desenvolvimento Agrário, atrelada à Casa Civil, volte a ter status de ministério. "Houve um compromisso do presidente Michel Temer de transformar em ministério. Ele nos pediu para aguardar um pouco e estamos aguardando que ele nos chame", disse
+Antes mesmo de o governo atender ao pedido de Paulinho e criar secretarias ligadas à Casa Civil para tratar de questões fundiárias, o presidente do Solidariedade já havia indicado ao Planalto os nomes para ocupar diversas posições no governo. As informações são do jornal O Estado de S. Paulo.

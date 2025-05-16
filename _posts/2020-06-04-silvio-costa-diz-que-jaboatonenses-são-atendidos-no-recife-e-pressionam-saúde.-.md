@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Silvio Costa diz que jaboatonenses são atendidos no Recife e pressionam saúde. 'Graças incompetência de Anderson'"
+date: 2020-06-04
+tags: Anderson Silva,Recife,são,Silvio Costa
+author: None
+---
+Foi-se o tempo em que os políticos deram um tempo na política ficaram esperando para ver o rumo do vento, com o início da crise do coronavírus.
+Candidato de oposição em Jaboatão, o ex-deputado Silvio Costa decididamente começou a usar a pandemia para criticar o adversário local, da mesma forma que os oposicionistas estão fazendo no Recife, com o prefeito Geraldo Júlio.
+No mais recente lance, o ex-deputado Sílvio Costa disse que a comparação dos números de leitos criados pelo Recife e por Jaboatão revela a total falta de atenção e preocupação de Anderson Ferreira em salvar vidas de jaboatonenses.
+"Moradores de Jaboatão dos Guararapes têm sido atendidos em hospitais provisórios estruturados pela Prefeitura do Recife para o enfrentamento à Covid-19. O motivo? A falta de oferta de vagas pela segunda cidade mais populosa de Pernambuco. Enquanto o prefeito Geraldo Julio criou mais de 1000 leitos, o prefeito Anderson Ferreira criou dez vezes menos leitos. E a situação é ainda mais preocupante no tocante às UTIs. O Recife estruturou mais de 300 leitos desse tipo, e Jaboatão apenas 5 leitos, que foram contratados em hospitais privados. Vale ressaltar que Jaboatão dos Guararapes possui 700 mil habitantes", comparou.
+De acordo com o candidato, isso levou 166 jaboatonenses a serem atendidos em um dos sete hospitais de campanha recifenses.
+"Se, por um lado, não cuida da saúde de todos os moradores de Jaboatão, por outro, Anderson Ferreira usa a mesma pandemia para politizar ações de combate ao Covid-19. O prefeito vem se mantendo reativo a iniciativas de prevenção e contenção do avanço da doença na cidade. Por dias, manteve-se afastado do front da batalha, sem apresentar soluções. Quando apareceu, apostou na rinha política para dividir a sociedade e colocar-se contrário a medidas adotadas pelo governo do Estado e em consonância com as diretrizes do governo Jair Bolsonaro (sem partido)."
+"Anderson Ferreira foi contra as restrições determinadas pelo Governo de Pernambuco nos 15 dias de “lockdown”, pregou a reabertura dos setores econômicos sem qualquer parâmetro de cuidados, quando as autoridades públicas defendiam o fechamento para evitar aglomerações e atuou firmemente na defesa de segmentos sociais, especialmente as igrejas evangélicas, sua principal base eleitoral. Essas posturas do prefeito de Jaboatão denotam que sua preocupação não é preservar vidas. Mas, sim, focar apenas em sua reeleição."

@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Protógenes se enrola ainda mais, diz a Veja"
+date: 2009-03-21
+tags: animais,cerveja
+author: None
+---
+O delegado Prot&oacute;genes Queiroz foi indiciado na semana passada pela corregedoria da Pol&iacute;cia Federal por vazamento de informa&ccedil;&otilde;es sigilosas e viola&ccedil;&atilde;o da lei de intercepta&ccedil;&otilde;es telef&ocirc;nicas, crimes praticados durante a opera&ccedil;&atilde;o que resultou na pris&atilde;o e na condena&ccedil;&atilde;o do banqueiro Daniel Dantas. Durante um ano e meio, o delegado comandou uma ousada m&aacute;quina de espionagem clandestina contra pol&iacute;ticos, jornalistas, advogados e autoridades &#63; como demonstram documentos apreendidos em seu computador pessoal &#63;, entre as quais figuras not&oacute;rias da Rep&uacute;blica, como os ministros Mangabeira Unger e Dilma Rousseff, al&eacute;m do presidente do Supremo Tribunal Federal, ministro Gilmar Mendes.
+Cada novo documento analisado consolida a bisbilhotagem desmedida patrocinada pela equipe do delegado. Em Bras&iacute;lia, Fernando C&eacute;sar Mesquita, assessor do presidente do Congresso, senador Jos&eacute; Sarney, foi espionado durante mais de um m&ecirc;s.
+Acuado pelo indiciamento e pela CPI das Escutas, que pode convoc&aacute;-lo mais uma vez para depor, agora numa acarea&ccedil;&atilde;o com o ex-diretor da ABIN, Paulo Lacerda, o delegado Prot&oacute;genes partiu para o ataque a seu modo destrambelhado. Num site de apoio ao seu &quot;trabalho contra a corrup&ccedil;&atilde;o&quot;, ele divulgou uma carta ao - pasme - presidente americano Barack Obama. Na carta, com vers&otilde;es em ingl&ecirc;s e, sabe-se l&aacute; por que motivo, em franc&ecirc;s, o delegado afirma que o Judici&aacute;rio brasileiro est&aacute; na folha de pagamentos do banqueiro Daniel Dantas, sugere que Lula tamb&eacute;m est&aacute; a soldo do dono do banco Opportunity (antes disso, ele j&aacute; havia pedido o impeachment do presidente) e, como se n&atilde;o bastasse, solicita ao &oacute;rg&atilde;o de intelig&ecirc;ncia de uma pot&ecirc;ncia estrangeira (a CIA) que investigue os arquivos digitais de Dantas.
+Convenha-se que, a menos que suas acusa&ccedil;&otilde;es sejam levadas a s&eacute;rio, Prot&oacute;genes deveria ser afastado de suas fun&ccedil;&otilde;es na PF. No m&iacute;nimo porque nem mesmo os militares que deram o golpe em 1964 recorreram aos americanos para resolver um problema interno.
+Leia a reportagem completa em VEJA desta semana (na &iacute;ntegra exclusivo para assinantes).
+&nbsp; 

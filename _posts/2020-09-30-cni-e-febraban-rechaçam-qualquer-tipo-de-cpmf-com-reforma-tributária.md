@@ -1,0 +1,30 @@
+---
+layout: post
+title: "CNI e Febraban rechaçam qualquer tipo de CPMF com reforma tributária"
+date: 2020-09-30
+tags: Febraban,reforma tributária
+author: None
+---
+O presidente da Confederação Nacional da Indústria (CNI), Robson Braga de Andrade, afirmou que qualquer imposto disfarçado de CPMF não serve para o Brasil.
+“A CPMF é o pior imposto que existe. É perverso, cobra das camadas mais baixas da população, impacta as cadeias produtivas. Se queremos criar programas sociais, temos que procurar recursos nas despesas do governo e nas despesas públicas”, afirma o Robson Braga de Andrade, durante o debate Reforma Tributária em Debate: uma reforma tributária ampla, promovido pela CNI e pela Federação Brasileira de Bancos (Febraban) nesta quarta-feira (24).
+A posição da CNI é por uma reforma tributária ampla e urgente.
+“Conversei com alguns governadores e temos pelo menos nove estados brasileiros que não têm dinheiro para pagar salários. Ou o Brasil cresce e a gente tem um sistema adequado, para fazer as receitas crescerem, ou o Brasil vai parar. Por isso, acho inadequado, neste momento, colocar em discussão um novo imposto. O Brasil precisa ter objetivo e foco”, afirma Robson Braga de Andrade.
+O presidente da Federação Brasileira dos Bancos (Febraban), Isaac Sidney, afirmou que é imprescindível um novo modelo tributário no País, que permita as empresas competirem, mas lamenta que o debate da reforma tributária tenha sido contaminado por uma discussão sobre a criação ou não de um imposto que incida sobre transações, que possa fazer frente a desoneração da folha de pagamento.
+“É muito ruim que estejamos apequenando esse debate e tentando tratar da reforma tributária, como se estivéssemos falando da antiga ou nova CPMF. São discussões estéreis que não vão levar ao novo modelo tributário. Uma lástima perder mais uma oportunidade. Estamos cansando desse debate que não avança há 30 anos”, afirmou Isaac Sidney.
+Ele reforça que a Febraban tem interesse no debate para reduzir o custo do crédito no país.
+“É fácil demonizar os bancos, mas é importante estarmos preparados pelo debate. A cada R$ 100 reais de crédito, R$ 20 reais são impostos que o tomador de crédito paga. Não estou falando do que os bancos pagam. Estou falando do tomador. Precisamos de um crédito mais barato para estimular o crédito, para que seja uma alavanca no país. E não de uma CPMF que não agrega”, diz o presidente da Febraban.
+Economista Ana Carla Abrão Costa: não se troca ineficiência por ineficiência
+A chefe do escritório da Oliver Wyman no Brasil, economista Ana Carla Abrão Costa, calcula que “não é criando um tributo, que onera crédito e onera os mais pobres”, que se vai resolver a questão tributária e muito menos a questão da alocação de recursos públicos e de gastos públicos.
+“Não se troca ineficiência por mais ineficiência”, avalia. Segundo ela, o sistema tributário brasileiro precisa ser mais eficiente e transparente.
+“De quem estamos tirando recursos e para quem estamos transferindo recursos que são do cidadão brasileiro? No caso da reforma tributária, temos isenções de setores que não necessariamente se justificam hoje e, também, temos uma questão federativa muito complexa. Como vamos criar os fundos para compensar os estados precisam para compensar as perdas? É isso que a gente precisa enfrentar”, diz Ana Clara.
+Câmara quer aprovar reforma tributária ainda este ano
+O vice-Presidente da Câmara dos Deputados, deputado Marco Pereira (REPUBLICANOS-SP), afirmou que a Câmara fará o esforço de votar, ainda este ano, a reforma tributária. Ele explicou que o presidente da Câmara, deputado Rodrigo Maia (DEM-RJ), quer a aprovação antes fim do mandato dele, na presidência da Casa, em 31 de janeiro.
+“Com a proposta do governo que o Ministério da Economia insiste em chamar de imposto digital, mas é a CPMF, o calendário ficou um pouco tumultuado. O relatório deve ser adiado, não só do calendário eleitoral, mas também pelo projeto do governo misturando o debate. Mas há um grande empenho da mesa diretora da Câmara e do Senado, e do parlamento como todo, para aprovar a mais ampla reforma possível”, diz.
+Marcos Pereira lembra que o Congresso tem a palavra final. “Estamos falando de uma proposta de emenda constituição (PEC) que é promulgada pelo Congresso. Vamos tornar essa proposta de reforma tributária uma realidade. Tenho confiança nos meus colegas da Câmara que não vamos nos deixar contaminar por esse debate pequeno e menor que tenta empurrar para outro momento essa importantíssima e urgente reforma tributária”, garante.
+Para o membro da Comissão Mista Reforma Tributária, deputado Alexis Fonteyne (NOVO-SP), a reforma tributária será responsável por um dos maiores impactos sociais que se pode querer no Brasil. “O que me entristece muito é que o debate estava muito bom e de repente me aparece uma CPMF para poder atrapalhar tudo”, diz o deputado.
+Também presente no debate, o ex-deputado Luiz Carlos Haully, diz que não fazer a reforma tributária significa não crescer e nem prosperar. “Remendo novo em calça velha não dá certo. Nos passados, os governos já fizeram 17 reformas fatiadas e nenhuma deu certa. Só reformar a folha de pagamentos, como estão falando, é uma estratégia equivocada. Sem reforma tributária, o Brasil está condenado ao crescimento zero no ano que vem”, prevê Hauly.
+Senador Antônio Anastasia critica cipoal normativo brasileiro
+De acordo com o vice-presidente do Senado, senador Antonio Anastasia (PSDB-MG), o Brasil aparece entre os últimos nos rankings de competitividade internacionais devido aos últimos 30 anos de discussão sobre reforma tributária, sem resultados.
+“Não há cipoal normativo mais complexo do sistema tributário brasileiro. Temos que fazer a reforma tributária e a reforma administrativa, porque são irmãs siameses. Não vamos conseguir gastar bem os recursos se não modificarmos o padrão de funcionamento do estado brasileiro. É uma janela de oportunidade, pois não há Congresso mais reformista do que esse”, explica. Anastasia, no entanto, não acredita na aprovação do texto ainda este ano.
+
+

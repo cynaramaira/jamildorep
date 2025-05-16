@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Delator diz que avião usado por Eduardo Campos era de Aldo Guedes, afirma Veja"
+date: 2017-07-22
+tags: avião,cerveja,eduardo campos,Guedes,ousado,Rivaldo
+author: None
+---
+O empresário Aldo Guedes, amigo e ex-auxiliar de Eduardo Campos (PSB), foi citado, segundo a revista Veja, pelo empresário João Carlos Lyra Pessoa de Melo Filho, como o verdadeiro dono do avião usado pelo ex-governador na campanha presidencial de 2014, quando morreu em acidente envolvendo o próprio jatinho Cessna Citation 560XL. De acordo com a revista, Lyra comprou o jatinho, mas que Aldo era um sócio oculto e teria contribuído com a maior parte dos 8 milhões de dólares.
+Lyra foi preso na Operação Turbulência, que investigou a compra da aeronave, e fechou um acordo de delação premiada com o Ministério Público Federal (MPF) no âmbito da ação. A ação foi deflagrada há um ano e prendeu mais dois empresários ligados ao suposto esquema. Além de Lyra, ficaram dois meses presos Apolo Santana Vieira e Eduardo Freire. A ação foi trancada depois pelo Tribunal Regional Federal da 5ª Região (TRF5).
+De acordo com a Veja, em depoimento, Lyra afirmou que era um intermediário: recolhia propina para o suposto esquema de Eduardo Campos e a repassava a Aldo Guedes em dinheiro, contas no exterior ou serviços simulados em escritórios de advocacia. Os dois, segundo a reportagem, se falavam por celulares pré-pagos cadastrados em nome de laranjas e combinavam a data e o local da entrega, que geralmente era na garagem do prédio onde o empresário mora, no Recife.
+A revista ainda afirma que o relato do empresário é de que Eduardo Campos escolheu o modelo do avião. O acordo, segundo a Veja, era de que depois do período eleitoral seria constituída uma empresa de táxi aéreo para administrar o avião, mas, até lá, o PSB pagaria oficialmente o aluguel.
+O advogado de Aldo Guedes, Ademar Rigueira, negou ao Blog de Jamildo que Aldo Guedes seja o dono do avião. De acordo com o defensor do empresário, João Carlos Lyra chegou a propor o negócio, mas o aliado de Eduardo Campos não aceitou. "Houve a intenção, que não se concretizou. Mas, como havia o interesse de utilização na campanha de Eduardo, disse que, se transformasse em táxi aéreo, tentaria que o PSB fretasse o avião dele (de Lyra), ajudaria na indicação."
+Lyra ainda é investigado no mesmo inquérito que Aldo Guedes no Supremo Tribunal Federal (STF), que também tem como alvo o senador Fernando Bezerra Coelho (PSB-PE). Os três foram denunciados juntos por suposto recebimento de propina de empreiteiras das obras da Refinaria Abreu e Lima.
+Os três também foram citados na delação do ex-executivo da Odebrecht Márcio Faria da Silva, que foi diretor da área de engenharia industrial e integrou o Conselho de Administração do braço de óleo e gás da empreiteira. Faria afirmou que Aldo Guedes disse ser o “único representante” de Eduardo Campos.

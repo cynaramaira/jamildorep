@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Raquel Dodge diz que MPF vai redobrar ações de combate à corrupção"
+date: 2017-12-05
+tags: combate,corrupção,Doações,raquel lyra
+author: None
+---
+"No Brasil, a corrupção é um fato tão escandaloso que o sentimento de todos os brasileiros e do Ministério Público é de intolerância absoluta. É por isto que nos reunimos aqui para dizer que vamos redobrar o grande esforço já feito até o momento contra a corrupção, para aplicar a Constituição e a lei".
+A declaração foi feita pela procuradora-geral da República e presidente do Conselho Nacional do Ministério Público (CNMP), Raquel Dodge, durante o evento referente ao Dia Internacional de Combate à Corrupção, nesta segunda-feira, promovido pela Câmara de Combate à Corrupção (5ªCCR) do MPF, na Procuradoria-Geral da República (PGR).
+Dodge ressaltou a urgência em restabelecer a credibilidade das instituições públicas diante do povo brasileiro: "É o nosso dever constitucional em favor da população e do patrimônio público. E faremos isto juntos. É o que viemos anunciar".
+Durante o evento, a PGR assinou três pactos de combate à corrupção envolvendo o Conselho Nacional do Ministério Público (CNMP), o Ministério Público Federal (MPF), o Conselho Nacional de Procuradores-Gerais dos Ministérios Públicos dos Estados e da União (CNPG), a Associação Nacional do Ministério Público de Contas (AMPCON) e o Conselho Nacional de Procuradores-Gerais de Contas (CNPGC). Os Pactos (Pacto do MP Brasileiro contra a Corrupção, Pacto do MPF e da AMPCON contra a Corrupção e Pacto do MPF e CNPGC contra a Corrupção) preveem a atuação integrada de órgãos de controle e fiscalização para o combate a crimes de corrupção nas esferas pública e privada.
+Segundo Raquel Dodge, os pactos são inéditos e de grande escala. "É certamente um gesto proporcional ao tamanho do problema e ao gigantismo da tarefa. É a primeira vez que todos os procuradores-gerais se reúnem em um mesmo ato contra a corrupção e celebram um pacto de tamanha responsabilidade, já antevendo ilicitudes no ano eleitoral que se aproxima", avaliou.
+A presidente da CNPGC, Cláudia de Oliveira, reforçou que "episódios recorrentes de corrupção evidenciam a necessidade de ações conjuntas". Para ela, as ações educacionais referentes ao combate à corrupção podem transformar o quadro gravíssimo no qual o país está.
+O investimento em ações educativas também foi citado pelo presidente do CNPG, Sandro José Neis, como uma das ações mais efetivas na abertura do diálogo com a sociedade sobre o tema.
+Campanha #TodosJuntosContraCorrupção
+Durante o evento, a coordenadora da Câmara de Combate à Corrupção, subprocuradora da República Mônica Nicida, e a coordenadora da campanha #TodosJuntosContraCorrupção, promotora de Justiça Luciana Asper apresentaram os resultados dos três meses da iniciativa lançada dentro do Programa Nacional de Prevenção Primária à Corrupção, da Estratégia Nacional de Combate à Corrupção e à Lavagem de Dinheiro (Enccla).
+Para incentivar o debate sobre o combate à corrupção, a campanha reconheceu 22 das 90 propostas recebidas. Os certificados de homenagem foram entregues pelo presidente do Fórum Nacional de Combate à Corrupção e conselheiro do CNMP, Silvio Amorim.
+"Precisamos que a sociedade esteja conosco unida no combate à corrupção. E esse é o momento que podemos lançar as sementes", afirmou Amorim.
+Além das iniciativas, a 5ªCCR exibiu vídeo da Secretaria de Comunicação (Secom) do MPF sobre a atuação do órgão no combate à corrupção.
+A produção audiovisual apresentou dados das mais recentes operações do Ministério Público Federal, acompanhados de depoimentos de procuradores e promotores responsáveis pelas iniciativas, além da procuradora-geral da República.
+Apesar de reconhecer os impactos positivos de iniciativas como a campanha #TodosJuntosContraCorrupção, Mônica Nicida elencou diversos obstáculos no combate à corrupção como a restrição aos acordos de leniência celebrados pelo MPF, iniciativas para impedir a extinção do foro privilegiado e a revogação da execução 'provisória' da pena após decisão em 2ª instância.
+Sobre o último tema, a coordenadora da 5ªCCR alertou que a revisão do entendimento pelo Supremo Tribunal Federal (STF) poderá prejudicar a eficiência do Judiciário brasileiro: "Esta medida não traz só prejuízo ao processo, mas também gera insegurança jurídica", disse.

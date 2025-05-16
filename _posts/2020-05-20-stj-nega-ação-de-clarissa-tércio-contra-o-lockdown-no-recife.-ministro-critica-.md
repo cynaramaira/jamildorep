@@ -1,0 +1,24 @@
+---
+layout: post
+title: "STJ nega ação de Clarissa Tércio contra o lockdown no Recife. Ministro critica Bolsonaro"
+date: 2020-05-20
+tags: ação,Bolsonaro,Contran,crítica,lockdown,Ministro,Recife
+author: None
+---
+No site Consultor Jurídico - O habeas corpus não é cabível contra ato de caráter normativo, para discussão de lei em tese e situações gerais e abstratas, nem é sucedâneo de ação direta de inconstitucionalidade, sob pena de grave deformação do instituto e inaceitável desvio de sua função.
+Com esse entendimento, o ministro do Superior Tribunal de Justiça Rogerio Schietti Cruz indeferiu pedido de habeas corpus impetrado contra as medidas de isolamento social adotadas em Pernambuco.
+Na decisão, Schietti afirmou que, tirando o Brasil e os Estados Unidos, talvez em nenhum outro país "o líder nacional se coloque, ostensiva e irresponsavelmente", em linha de oposição às orientações científicas de seus próprios órgãos sanitários e da Organização Mundial de Saúde.
+"Em nenhum país, pelo que se sabe, ministros responsáveis pela pasta da Saúde são demitidos por não se ajustarem à opinião pessoal do governante máximo da nação e por não aceitarem, portanto, ser dirigidos por crenças e palpites que confrontam o que a generalidade dos demais países vem fazendo na tentativa de conter o avanço dessa avassaladora pandemia", acrescentou Schietti.
+Com o habeas corpus coletivo submetido ao STJ, a deputada estadual Clarissa Tércio (PSC) pretendia a concessão de salvo-conduto para que os cidadãos de Pernambuco pudessem circular livremente, a despeito do Decreto Estadual 49.017, do último dia 11, que intensificou as medidas de restrição à movimentação de pessoas para combater a epidemia do coronavírus.
+Inviabilidade jurídica
+Com respaldo em entendimento do STF, o ministro considerou que parlamentar estadual não tem legitimidade processual para representar os interesses coletivos dos supostos beneficiários do habeas corpus.
+Segundo o ministro, além de não ter viabilidade jurídica, o pedido da deputada estadual "parece ignorar o que acontece, atualmente, em nosso país". Mencionando os números de vítimas da pandemia – 17.971 mortes até terça-feira (19/5) –, ele ressaltou que Pernambuco é o segundo estado mais afetado do Nordeste, com 1.741 óbitos.
+"Na unidade federativa em que a impetrante contesta a medida adotada pelo governo local, já se contabilizam 1.741 óbitos, quantidade que situa Pernambuco em segundo lugar entre os estados do Nordeste afetados.", frisou.
+Medidas mais drásticas de prevenção, de acordo com Schietti, foram adotadas em diversos países, diante do agravamento da crise sanitária, que já produziu mais de 4,7 milhões casos de Covid-19 no mundo todo.
+Recado de confronto
+"A grande e principal diferença em relação a esses países e o nosso é que em nenhum dele, à exceção, talvez, dos Estados Unidos, cujo presidente é tão reverenciado por seu homólogo brasileiro, existe uma clara dissensão entre as políticas nacional e regionais", comentou o relator.
+Ao falar sobre a expectativa de agravamento da situação no Brasil, Schietti declarou que "boa parte dessa realidade se pode creditar ao comportamento de quem, em um momento como este, deveria deixar de lado suas opiniões pessoais, seus antagonismos políticos, suas questões familiares e suas desavenças ideológicas, em prol da construção de uma unidade nacional". Ele lamentou, porém, que o recado seja outro.
+"O recado transmitido é, todavia, de confronto, de desprezo à ciência e às instituições e pessoas que se dedicam à pesquisa, de silêncio ou até de pilhéria diante de tragédias diárias. É a reprodução de uma espécie de necropolítica, de uma violência sistêmica, que se associa à já vergonhosa violência física, direta (que nos situa em patamares ignominiosos no cenário mundial) e à violência ideológica, mais silenciosa, porém igualmente perversa, e que se expressa nas manifestações de racismo, de misoginia, de discriminação sexual e intolerância a grupos minoritários", disse.
+A soma de tudo isso, segundo Schietti, "gera um sentimento de insegurança, de desesperança, de medo – ingredientes suficientes para criar uma ambiência caótica, propícia a propostas não apenas populistas mas de retrocesso institucional, como tem sido a tônica nos últimos tempos". Com informações da assessoria de imprensa do STJ.
+Crítica direta a Bolsonaro
+"Talvez em nenhum, além desses dois países, o líder nacional se coloque, ostensiva e irresponsavelmente, em linha de oposição às orientações científicas de seus próprios órgãos sanitários e da Organização Mundial de Saúde. Em nenhum país, pelo que se sabe, ministros responsáveis pela pasta da saúde são demitidos por não se ajustarem à opinião pessoal do governante máximo da nação e por não aceitarem, portanto, ser dirigidos por crenças e palpites que confrontam o que a generalidade dos demais países vem fazendo na tentativa de conter o avanço dessa avassaladora pandemia."

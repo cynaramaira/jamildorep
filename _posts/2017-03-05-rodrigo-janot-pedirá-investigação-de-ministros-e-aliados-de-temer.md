@@ -1,0 +1,39 @@
+---
+layout: post
+title: "Rodrigo Janot pedirá investigação de ministros e aliados de Temer"
+date: 2017-03-05
+tags: investigação,Michel Temer,ministros,Rodrigo
+author: None
+---
+O procurador-geral da República, Rodrigo Janot, pedirá nos próximos dias ao Supremo Tribunal Federal (STF) a abertura de inquérito para investigar pelo menos dois ministros do governo Michel Temer, além de senadores do PMDB e do PSDB, todos citados nas delações premiadas da Odebrecht.
+Segundo a Folha de S. Paulo, o procurador-geral vai requerer, ainda, o desmembramento para instâncias inferiores de casos envolvendo dezenas de políticos sem foro no Supremo, mas que foram mencionados nos depoimentos. Entre eles, estão os petistas e ex-presidentes Dilma Rousseff e Luiz Inácio Lula da Silva, além dos ex-ministros Guido Mantega e Antonio Palocci, o marqueteiro João Santana, governadores, ex-governadores e ex-parlamentares.
+&gt;&gt; Ex-executivo da Odebrecht diz que ‘Fluminense’ era a senha para repasse ao PDT
+Da equipe de Temer, Segundo a Folha apurou, já estão na lista da Procuradoria-Geral da república (PGR) os ministros Eliseu Padilha (Casa Civil) e Moreira Franco (Secretaria-Geral da Presidência). Outros ministros podem aparecer. Por exemplo, Gilberto Kassab (Ciência e Tecnologia e Comunicações) - a Procuradoria, por enquanto, estuda esse caso.
+Da bancada do PMDB no Congresso, a PGR quer investigar o presidente do Senado, Eunício Oliveira (CE), o líder do partido e ex-presidente, Renan Calheiros (AL), e os senadores Edison Lobão (MA) e Romero Jucá (RR). Integram também a lista da procuradoria os tucanos José Serra (SP) e Aécio Neves (MG).
+Estratégia
+A estratégia de Janot é tentar entregar, na próxima semana, todos os pedidos de uma vez ao relator da Lava Jato no STF, o ministro Edson Fachin. O número de solicitações ao ministro do Supremo pode passar de 40. Os detalhes sobre os inquéritos devem ser concluídos até esta segunda-feira (6) em Brasília. O procurador-geral vai sugerir diligências, incluindo depoimentos e quebra de sigilos bancários e fiscal.
+&gt;&gt; ‘Eu era o otário do governo; eu era o bobo da corte’, diz Odebrecht
+Cada solicitação vai conter documentos e gravações referentes ao nome a ser investigado  e caberá a Fachin decidir ou pela abertura dos inquéritos e ou pela manutenção de seu sigilo. A PGR pretende preservar o segredo das informações que não podem ser reveladas na fase de investigação.
+Ao todo, cerca de 850 depoimentos de 77 executivos da Odebrecht foram analisados.
+Hipóteses
+De acordo com a Folha de S. Paulo, Janot e sua equipe estudam, ainda, a viabilidade jurídica de incluir ou não o nome do presidente Michel Temer como alvo do inquérito. Pela Constituição, o presidente da República não pode ser investigado por atos cometidos fora do período do mandato. Temer assumiu a presidência no ano passado, com o impeachment de Dilma Rousseff.
+As deleções da Odebrecht incluem o peemedebista em episódios quando ele era vice-presidente. Temer jantou com Marcelo Odebrecht em 2014, no Palácio do Jaburu. E quando ainda era deputado e candidato a vice da petista em 2010, ano em que seria participado de uma reunião com a empreiteira para discutir repasse de recursos.
+&gt;&gt; Marcelo Odebrecht confirma caixa 2 para a chapa Dilma-Temer
+A discussão interna na Procuradoria é se o cargo de vice pode ser considerado um "mandato presidencial". Nesse caso, o STF pode autorizar a investigação da participação de Temer no jantar de 2014. Outra hipótese é se os inquéritos precisam estar relacionados a fatos ocorridos desde o ano passado, após o impeachment de Dilma. A palavra final caberá a Rodrigo Janot.
+O procurador-geral já sinalizou que pretende dar a Temer o mesmo tratamento recebido por Dilma, que ficou de fora de pedidos de investigação referentes a desvios na Petrobras no período em que ela não era presidente. Além de inquéritos e pedidos de desmembramentos, o procurador-geral vai solicitar o arquivamento de casos em que entendeu não haver indícios de crime configurado. Como no relato de um delator de que a Odebrecht teve de fazer doação eleitoral oficial porque foi pressionada por um político. Não haveria ilegalidade neste contexto, segundo um investigador.
+Outro Lado
+Os ministros do governo temer e senadores tucanos e peemedebistas que serão alvos da Procuradoria-Geral da República têm negado qualquer irregularidade relatada por executivos da Odebrecht. Licenciado por razões médicas, o ministro da Casa Civil, Eliseu Padilha, é apontado na delação de Cláudio Melo Filho, ex-diretor da Odebrecht, como o responsável por orientar a distribuição de R$ 10 milhões da empresa ao PMDB.
+Parte desse dinheiro teria sido entregue no escritório de José Yunes, ex-assessor especial de Temer, que confirma ter recebido documentos a pedido de Padilha em 2014. Padilha ainda não se manifestou sobre a versão de Yunes. Porém, quando a delação de Cláudio Melo foi divulgada em dezembro, negou ter tratado de arrecadação para deputados do partido.
+&gt;&gt; Depoimento de Marcelo Odebrecht agrava situação de Padilha
+&gt;&gt; Lava Jato: Para Yunes, Padilha ‘tem que ser ouvido’
+Citado 34 vezes nesse mesmo depoimento, o ministro da Secretaria-Geral da Presidência, Moreira Franco, é apontado como arrecadador. O ministro tem negado as acusações e diz jamais ter falado de recursos para o PMDB com o delator da empreiteira.
+Segundo o mesmo delator, Romero Jucá (PMDB-RR) centralizou a distribuição de ao menos R$ 23 milhões dentro do partido. O senador é apontado como o "homem de frente" para negociar no Congresso medidas de interesse da Odebrecht. Jucá já afirmou que desconhece a delação e nega ter recebido recursos para o PMDB. Recentemente, em discurso na tribuna do Senado, criticou a imprensa e novamente se defendeu das acusações.
+&gt;&gt; Moreira Franco e Jucá fazem confronto público
+&gt;&gt; Jucá defende Moreira Franco: ‘Mencionado na Lava Jato todo mundo vai ser’
+Sobre o papel de Renan Calheiros, Melo Filho afirmou que o senador alagoano atuava no "mesmo sentido" de Jucá e foi beneficiado por recursos da empreiteira. Na sua defesa, o senador tem alegado que "jamais credenciou, autorizou ou consentiu que terceiros falassem em seu nome". Afirma também que é "zero" a chance de haver irregularidades em sua contas pessoais ou eleitorais.
+De acordo com a delação do executivo da Odebrecht, o senador Eunício Oliveira (PMDB-CE) recebeu R$ 2,1 milhões de propina em troca de aprovação de uma medida provisória. O senador nega a declaração do executivo. Em entrevista à Folha de S. Paulo, afirmou que delatores no "desespero" "inventam". O senador Edison Lobão (PMDB-MA) também nega recebimento de propina da empreiteira.
+O senador Aécio Neves (PSDB-MG) é mencionado em episódios ligados a esquema de propina na Cidade Administrativa, sede do governo mineiro, e à arrecadação de caixa dois eleitoral. Na sua defesa, o tucano diz que jamais recebeu recursos não oficiais para campanha e refuta a ligação de seu nome a propina, afirmando que as alegações são "falsas e absurdas".
+&gt;&gt; Aécio Neves pediu R$ 15 milhões, diz Odebrecht
+Já José Serra, que recentemente pediu demissão do Ministério de Relações Exteriores, é apontado como beneficiário de R$ 23 milhões de caixa dois na campanha de 2010 - parte desse valor depositada em contas na Suíça. Quando a Folha revelou o caso, o tucano disse que não cometeu nenhuma irregularidade e declarou que não se pronunciaria sobre supostos vazamentos de delações.
+&gt;&gt; José Serra recebeu R$ 23 milhões via caixa dois, revela Odebrecht
+De acordo com o depoimento do ex-presidente da Odebrecht Transport, Paulo Cesena, o ministro da Ciência e Tecnologia e Comunicações, Gilberto Kassab, teria recebido R$ 14 milhões de caixa dois entre 2013 e 2014. Kassab diz não ter conhecimento de doações fora da lei.

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Relatório da Câmara de Jaboatão critica indenização milionária e pede extinção da Fundação Yapoatan"
+date: 2007-05-16
+tags: Câmara,crítica,Fundação Renova,indenização,jaboatão,PEDESTRE,Relatório
+author: None
+---
+O vereador Geraldo Cisneiros, presidente da Comiss&atilde;o Especial criada pela C&acirc;mara dos Vereadores Jaboat&atilde;o, em abril passado, para analisar o esc&acirc;ndalo da Funda&ccedil;&atilde;o Yapoatan, anunciou que concluiu os trabalhos e corroborou as irregularidades apontadas pelo Minist&eacute;rio P&uacute;blico do Estado, divulgadas nesta ter&ccedil;a-feira.
+&ldquo;O documento foi finalizado e diz n&atilde;o a indeniza&ccedil;&atilde;o por achar que ela &eacute; descabida e pede a extin&ccedil;&atilde;o da Funda&ccedil;&atilde;o Yapoatan
+O relat&oacute;rio final sobre o assunto diz que &lsquo;&eacute; valiosa e descabida&rsquo; a indeniza&ccedil;&atilde;o de R$ 800 mil solicitada pela filha de Nilton Carneiro, Solange Maria Carneiro devido acidente sofrido em 1998. Tamb&eacute;m prop&otilde;e, com clareza, a extin&ccedil;&atilde;o da Funda&ccedil;&atilde;o Yapoatan, ligada a Prefeitura Municipal. &ldquo;Essa nada acrescenta ao munic&iacute;pio e para sua popula&ccedil;&atilde;o&rdquo;, explica Cisneiros.
+O vereador, sem partido, comandou os trabalhos da Comiss&atilde;o Especial, disse que est&aacute; enviando o documento final com a posi&ccedil;&atilde;o para o Minist&eacute;rio P&uacute;blico de Pernambuco, Tribunal de Contas de Pernambuco, Gabinete do pr&oacute;prio prefeito Nilton Carneiro e para todos os vereadores do Jaboat&atilde;o.
+A Comiss&atilde;o Especial, presidida por Cisneiros, foi formada, atrav&eacute;s de Portaria assinada pelo Presidente da C&acirc;mara, Luiz Carlos Matos, em 03 de abril &uacute;ltimo, com o objetivo de acompanhar os trabalhos dos Minist&eacute;rios P&uacute;blicos Estadual e Federal, sobre as den&uacute;ncias formalizadas contra a Secretaria de Planejamento da Prefeitura Municipal do Jaboat&atilde;o dos Guararapes e a Funda&ccedil;&atilde;o Yapoatan. Participaram dos trabalhos Edna Matias Dantas (PR); Edmar de Oliveira e Silva (PR), Jos&eacute; Airton dos Santos (PSB) e Francisco J&eacute;ferson Neves Mesquita (PAM). 

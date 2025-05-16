@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Para Humberto Costa, ‘Bolsonaro vai completar cem dias de governo sem ter feito absolutamente nada’"
+date: 2019-04-08
+tags: Fred Dias,governo,Humberto Costa,Pará,prefeito
+author: None
+---
+Antes de comemorar a queda de Vélez do ministério da Educação, o líder do PT no Senado, Humberto Costa (PE), criticou os 100 dias de Bolsonaro como presidente, que serão completados no próximo dia 10.
+“Nem os mais pessimistas poderiam imaginar que o país estaria vivendo um momento tão ruim, diante de um governo sem projetos, com forte viés autoritário, que envergonha a população perante o mundo e que pretende implementar um projeto ultraliberal que fará o Brasil perder a sua soberania”.
+“Em pouco mais de três meses, o governo não apresentou nenhuma proposta para combater o desemprego e conseguiu prejudicar milhões de brasileiros com a destruição do Mais Médicos, Minha Casa Minha Vida, Farmácia Popular e do Fies, colocou o Brasil como capacho dos Estados Unidos e ainda arrumou, com uma política externa extremamente ideologizada, conflitos com vários países de diferentes continentes”.
+“Sem preparo algum para ocupar o cargo de presidente e com a adoção de medidas absurdas que atingem apenas o povo, Bolsonaro não tem condições de fazer o país retomar o crescimento econômico. É uma gestão que vai se inviabilizando sozinha. O PT segue forte como o maior partido de oposição a esse desastre. Já identificamos as principais bandeiras que temos que trabalhar e a primeira delas é impedir a retirada de diretos do povo”, afirmou.
+“As principais bandeiras da campanha eleitoral de Bolsonaro se desmancharam rapidamente, assim como a sua popularidade, que já despencou aos piores níveis históricos de começo de gestão. O parlamentar lembra que o discurso moral e ético de combate à corrupção, “mudar tudo isso que tá aí” e de pôr um fim à política do “toma lá, dá cá” já está no fundo da lata do lixo.
+“Os mais pessimistas não poderiam imaginar. O tempo curto que vivemos mostrou todas as presepadas da família Bolsonaro, todo o limite de capacidade intelectual do presidente e o seu total despreparo para lidar com os problemas do país. É um desastre completo, dia após dia. A população já percebeu tudo isso e está apreensiva quanto ao futuro da nação”, disse Humberto.
+“O PT e a oposição continuarão na trincheira de luta por liberdade e democracia, que estão sob ameaça, e que impedirão a aprovação da reforma da Previdência no Congresso Nacional. Não deixaremos esse governo da destruição acabar com um sistema social que contempla milhões de brasileiros de baixa renda. Vamos à luta. Estamos juntos”, afirmou.

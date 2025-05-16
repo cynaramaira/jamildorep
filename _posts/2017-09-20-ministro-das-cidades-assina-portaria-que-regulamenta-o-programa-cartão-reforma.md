@@ -1,0 +1,31 @@
+---
+layout: post
+title: "Ministro das Cidades assina portaria que regulamenta o programa Cartão Reforma"
+date: 2017-09-20
+tags: Assina,Cartão Cidadão,cidades,Ministro,Portaria,programa,reformas,Regulamentação
+author: None
+---
+O ministro das Cidades, Bruno Araújo, assinou na manhã desta quarta-feira (20) a Portaria que regulamenta o Programa Cartão Reforma.
+O documento será publicado no Diário Oficial da União, possibilitando o início do edital de chamamento de propostas e seleção de municípios que foram atingidos por enchentes, que serão as primeiras famílias contempladas na lista de prioridade. Após essa etapa, os demais municípios poderão enviar as propostas.
+De acordo com o ministro Bruno Araújo, o Cartão Reforma busca atingir parte da população que precisavam de um incentivo, mas não conseguiam se enquadrar em outras políticas habitacionais.
+“Hoje a nossa promessa de levar o programa para a rua, para os cidadãos, se torna realidade. Queremos estabelecer o Cartão Reforma como o programa que dará satisfação para brasileiros que não são alcançados por outros programas, que suaram muito para construir a sua casa”, destacou.
+Para o ministro substituto da CGU, Wagner Rosário, a tecnologia do aplicativo vai trazer segurança para a fiscalização do programa.
+“Posso dizer que sinto orgulho em acompanhar o surgimento de um programa de política habitacional que terá transparência, feito de maneira 100% digital tanto para a população quanto para a fiscalização. Nós, da Controladoria Geral da União, nos surpreendemos com essa proposta, pela facilidade em acompanhar o curso dos investimentos.”
+A secretária Henriqueta Arantes ressaltou a importância do programa, como mais uma área de atenção do Ministério das Cidades para a melhoria da qualidade de vida. “Sempre lutamos contra o déficit quantitativo na área da habitação no país. Com o Programa Cartão Reforma, lutamos contra o déficit qualitativo. É mais uma área de luta da Secretaria de Habitação, para prover aos brasileiros uma moradia digna.”
+Para o diretor Álvaro Lourenço, a assinatura da portaria, que marca oficialmente o início do Programa Cartão Reforma, será um marco para a utilização da tecnologia em programas governamentais.
+“A partir desta assinatura, que contém todo o detalhamento da operação, nos é dada a legalidade para o início da operação. O programa traz alguns conceitos, alguns até inovadores, como o uso da tecnologia para fiscalização e apoio aos beneficiários.”
+O Programa Cartão Reforma possibilitará a famílias com renda mensal de até R$ 2.811 a compra de materiais de construção para obras em residências, desde que esta esteja em área regular ou passível de regularização e que o beneficiário seja dono de um único imóvel. Como contrapartida, a execução da mão de obra é de responsabilidade dos beneficiários.
+Segundo o ministro Bruno Araújo, a melhoria da moradia está diretamente ligada à qualidade de vida da população, além de movimentar a economia nas regiões.
+“Esta é uma iniciativa que promete ajudar os brasileiros a melhorar as condições de moradia das suas famílias, estimulando a produção no setor e gerando emprego e renda nos municípios assistidos.”
+As propostas serão enviadas pelas prefeituras, que ficarão a cargo de selecionarem as áreas, definidas em polígonos geográficos, que poderão receber o benefício. Uma pré-seleção já definiu os municípios que poderão participar da 1ª etapa do Programa e os seus respectivos limites financeiros baseados no déficit habitacional qualitativo. Foram priorizados municípios com maior carência de melhoria habitacional nos seguintes componentes: adensamento excessivo, ausência de banheiro exclusivo e ausência de esgotamento sanitário, apurados pelo IBGE no CENSO 2010.
+Os cadastros serão avaliados e pontuados de acordo com a situação socioeconômica da família e o grau de necessidade de melhorias das habitações. Terão prioridade famílias com menor renda familiar, com pessoas idosas ou com deficiência; e famílias cujo responsável seja mulher. Famílias interessadas em participar devem se inscrever diretamente na Prefeitura, Governo do Distrito Federal ou Governo Estadual, em sistema eletrônico.
+O beneficiário contemplado receberá o Cartão Reforma via Correios na residência cadastrada. Para utilizá-lo, basta comparecer a alguma loja do ramo credenciada no Portal do Programa. O Cartão terá validade de 12 meses.
+O valor concedido para utilização do benefício será parcelado e poderá ser utilizado no prazo de 60 dias. As parcelas ficam disponíveis após ser comprovada a correta aplicação dos recursos. Encerrando o prazo, o Cartão expira.
+Municípios pernambucanos
+Pernambuco está entre os primeiros estados a serem beneficiados pelo Cartão Reforma.
+De acordo com o ministro, o Cartão Reforma busca atingir parte da população que precisavam de moradia melhor, mas não conseguiam se enquadrar em outras políticas habitacionais.
+“Hoje a nossa promessa de levar o programa para a rua, para os cidadãos, se torna realidade. Queremos estabelecer o Cartão Reforma como o programa que dará satisfação para brasileiros que não são alcançados por outros programas, que suaram muito para construir a sua casa”, destacou o ministro, em evento que no qual foi assinada a portaria.
+Presente no Ministério das Cidades, o ministro substituto da CGU, Wagner Rosário, elogiou a segurança do programa, que será monitorado até mesmo por aplicativos de celular.
+“Posso dizer que sinto orgulho em acompanhar o surgimento de um programa de política habitacional que terá transparência, feito de maneira 100% digital tanto para a população quanto para a fiscalização. Nós, da Controladoria Geral da União, nos surpreendemos com essa proposta, pela facilidade em acompanhar o curso dos investimentos.”
+Bruno Araújo ressalta que a reforma da moradia está diretamente ligada à qualidade de vida da população, além de movimentar a economia nas regiões. “Esta é uma iniciativa que promete ajudar os brasileiros a melhorar as condições de moradia das suas famílias, estimulando a produção no setor e gerando emprego e renda nos municípios assistidos.”
+Os municípios atingidos e tem o decreto de calamidade de emergência podem acessar o site : https://www.cartaoreforma.cidades.gov.br/

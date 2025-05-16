@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Plano Real é considerado o segundo programa mais importante da economia brasileira nas últimas décadas"
+date: 2023-12-18
+tags: jamildo, Bolsa Família, plano real, inflação
+author: Jamildo Melo
+---
+O Plano Real &eacute; considerado o segundo programa ou a&ccedil;&atilde;o mais importante para a economia brasileira nas &uacute;ltimas d&eacute;cadas, perdendo apenas para o Bolsa Fam&iacute;lia. A pesquisa foi realizada pela Febraban com 3 mil pessoas nas cinco regi&otilde;es do pa&iacute;s.
+No Norte, 15% apontaram o Plano Real como o mais importante, ante 32% do Bolsa Fam&iacute;lia. No Nordeste, esses &iacute;ndices foram de 20% e 32%, respectivamente. No Centro-Oeste, o Plano Real tamb&eacute;m foi citado como o mais importante por 20% dos entrevistados, abaixo dos 27% que lembraram do Bolsa Fam&iacute;lia. Em contrapartida, no Sul e no Sudeste, o Plano Real foi considerado a medida econ&ocirc;mica mais importante.
+O levantamento tamb&eacute;m revelou que o combate &agrave; infla&ccedil;&atilde;o continua sendo uma preocupa&ccedil;&atilde;o do brasileiro. No Norte, 65% dos entrevistados disseram continuar muito preocupados com a infla&ccedil;&atilde;o. No Nordeste, 62% afirmaram o mesmo, enquanto no Centro-Oeste esse &iacute;ndice atingiu 58%.
+Nas tr&ecirc;s regi&otilde;es a popula&ccedil;&atilde;o afirmou que a infla&ccedil;&atilde;o permanece alta ou muito alta. No Norte (51%) e no Centro-Oeste (50%) essa percep&ccedil;&atilde;o &eacute; maior, ficando em 45% no Nordeste (a m&eacute;dia geral do pa&iacute;s &eacute; de 47%).
+A pesquisa tamb&eacute;m sondou como anda a confian&ccedil;a do brasileiro no real ap&oacute;s 30 anos da moeda. Atualmente, a confian&ccedil;a no real &eacute; considerada maior no pr&oacute;prio pa&iacute;s do que fora dele, junto a outros pa&iacute;ses e investidores estrangeiros. A regi&atilde;o Norte acompanha a m&eacute;dia nacional (60%) daqueles que confiam na moeda brasileira; no Nordeste, o &iacute;ndice de confian&ccedil;a &eacute; de 61% e no Centro-Oeste, 55%.
+Os resultados da pesquisa mostram que o Plano Real &eacute; uma medida econ&ocirc;mica que ainda &eacute; valorizada pelos brasileiros, mesmo nas regi&otilde;es onde o Bolsa Fam&iacute;lia &eacute; mais lembrado. O combate &agrave; infla&ccedil;&atilde;o tamb&eacute;m &eacute; uma preocupa&ccedil;&atilde;o constante da popula&ccedil;&atilde;o, que percebe que a moeda brasileira ainda n&atilde;o &eacute; totalmente consolidada.
+Na pol&iacute;tica, erro do PSDB foi fatal.
+"Com o tempo, o PSDB abandonou os ganhos do Plano Real e transformou o antipetismo no valor que o diferenciava na disputa, dando ao partido um eleitorado &agrave; direita que, depois, o trocou por Bolsonaro", escrevem Felipe Nunes e Thomas Traufmann, em Biografia do Abismo.

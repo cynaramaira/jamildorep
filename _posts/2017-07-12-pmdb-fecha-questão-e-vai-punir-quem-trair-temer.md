@@ -1,0 +1,14 @@
+---
+layout: post
+title: "PMDB fecha questão e vai punir quem trair Temer"
+date: 2017-07-12
+tags: Fechamento,Michel Temer
+author: None
+---
+Estadão Conteúdo - Vice-líder do governo na Câmara, o deputado Darcísio Perondi (PMDB-RS) anunciou nesta quarta-feira (12), que o partido fechou questão contra a denúncia do procurador-geral da República, Rodrigo Janot, e exigirá de seus deputados posicionamento favorável ao presidente Michel Temer (PMDB) nas votações na Comissão de Constituição e Justiça (CCJ) da Câmara e no plenário da Casa. "O PMDB fecha questão para derrubar essa denúncia que faz mal ao País e à política brasileira", disse Perondi, ao deixar a reunião da Executiva do partido realizada pela manhã e que reuniu 24 membros da legenda, entre deputados, senadores e ministros.
+Perondi disse que a decisão foi unânime entre os presentes à reunião e que os deputados que não acompanharem a deliberação do partido de fechar questão sofrerão penalidades. Segundo ele, os parlamentares não serão expulsos da legenda, mas, por exemplo, se, são membros de uma comissão, ou presidentes em comissão ou do partido num Estado, perderão essas posições.
+"Está na hora, sim, do PMDB exigir do seu deputado cumprimento do estatuto, das suas ideias e acompanhar o momento de transformação que o País vive liderado pelo presidente Michel", disse. Segundo ele, o partido está "unidíssimo" e essa união será mostrada amanhã na CCJ e depois no plenário da Câmara. "E, se não tivesse unido, não teria feito essas reformas dos últimos 13 meses. O presidente Michel será considerado o presidente reformista da história política do Brasil, então está muito unido", acrescentou.
+Questionado se o deputado Sergio Zveiter (PMDB-RJ), relator na CCJ, que já apresentou parecer favorável ao prosseguimento da denúncia contra Temer, será expulso do partido, Perondi disse que não. "Expulso não. Se ele não votar com o partido, sim, ele será um dos penalizados."
+Perondi negou que o fechamento de questão tenha sido uma exigência do Palácio do Planalto. Ele afirmou que foi feita uma discussão de mais de uma hora e todos os membros presentes opinaram pelo fechamento de questão.
+Requerimento
+Darcísio Perondi confirmou que o partido tem pronto um requerimento para ser apresentado à CCJ para encurtar a sessão de debates. "Ninguém vai aguentar 40 horas de debate, nem a oposição. Então, nós vamos tentar convergir hoje à tarde para não ser nem uma hora, nem quatro horas, nem 40 horas. E se a oposição não aceitar esse gesto de pacificação, que nós da base faremos com a oposição, sim, será apresentado um requerimento para suspender a discussão com 10 parlamentares falando, o que manda o regimento. Então, vai depender da disposição da oposição em convergir. Nem 4 horas, nem 40 horas", afirmou.

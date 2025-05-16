@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Temer negocia compensação ao PMDB"
+date: 2017-02-22
+tags: Michel Temer,renegociação
+author: None
+---
+Estadão Conteúdo - Contrariado com a pressão do PMDB por cargos no governo, o presidente Michel Temer está montando uma equação política para compensar o partido. Em conversas reservadas, nos últimos dias, Temer assegurou que o PMDB terá o comando de mais um ministério ou a liderança do governo na Câmara, atualmente ocupada pelo deputado André Moura (PSC-SE).
+A bancada do PMDB reivindica o Ministério da Justiça, já que o atual titular, Alexandre de Moraes - até há duas semanas filiado ao PSDB -, foi indicado por Temer para o Supremo Tribunal Federal. Nos bastidores, tanto peemedebistas da Câmara como do Senado reclamam do avanço do PSDB sobre cargos estratégicos, como a Secretaria de Governo, comandada por Antônio Imbassahy.
+A insatisfação preocupa Temer num momento em que a equipe econômica quer acelerar a tramitação da reforma da Previdência, hoje na Câmara. Além disso, há receio de que os vazamentos de delações premiadas de executivos e ex-diretores da Odebrecht à Lava Jato provoquem instabilidade política.
+Em conversas reservadas, o presidente tem dito que o PMDB não pode incentivar o racha da base aliada no Congresso. Depois da recusa do ex-ministro do STF Carlos Velloso em assumir a Justiça, Temer tem feito outras sondagens, mas ainda não decidiu quem será o sucessor de Moraes. Antes rejeitado, o deputado Osmar Serraglio (PMDB-PR) ganhou apoio na bancada e é agora o nome indicado pelo partido para a cadeira da Justiça. Rodrigo Pacheco (PMDB-MG) perdeu pontos por críticas à Lava Jato.
+"Não estamos fazendo pressão nem colocando faca no pescoço de ninguém", disse o líder do PMDB na Câmara, Baleia Rossi (SP). "O presidente Temer já sinalizou claramente que vai fortalecer o nosso partido. Tenho certeza absoluta de que ele, pela experiência que tem, saberá valorizar a nossa bancada."
+Se ficar sem o comando da Justiça, o PMDB deve ganhar a liderança do governo na Câmara, como uma espécie de "compensação". Neste caso, o mais cotado para o posto é o deputado Lelo Coimbra (PMDB-ES). André Moura, o atual líder, entrou em rota da colisão com o presidente da Câmara, Rodrigo Maia (DEM-RJ), mas, se não ficar no posto, pode ser compensado com outro cargo.
+"O PMDB não vai agir como o PT, que fazia oposição ao próprio governo", afirmou o deputado Lúcio Vieira Lima (PMDB-BA), que disputou - e perdeu - a vice-presidência da Câmara.
+O confronto entre senadores do PMDB, o Ministério Público e o Judiciário é outro foco de apreensão de Temer. Nos bastidores, auxiliares do presidente dizem que o líder do governo no Senado, Romero Jucá (RR) cometeu um "sincericídio" ao dizer que, se o foro privilegiado acabar, a medida deve valer para todos os Poderes. Ontem, Jucá disse ao Estado que não está agindo em retaliação à Lava Jato e procurou distanciar o Planalto da polêmica.

@@ -1,0 +1,30 @@
+---
+layout: post
+title: "Após 13 dias esperando por leito em UTI, idoso morre em UPA do Recife. 'Usava a mesma roupa desde que chegou', critica deputado"
+date: 2022-01-08
+tags: atendimento, Saúde
+author: JAMILDO MELO
+---
+Era 26 de dezembro quando Israel Fernandes, 74, deu entrada na UPA de Nova Descoberta, com insufici&ecirc;ncia respirat&oacute;ria, um leito de UTI era imprescind&iacute;vel para salvar sua vida. Hoje, 8 de janeiro de 2022, ainda usando a mesma roupa com que chegou &agrave; unidade, o paciente veio &agrave; &oacute;bito. Foram 13 dias sem conseguir o tratamento intensivo, at&eacute; n&atilde;o resistir &agrave; Influenza. A SES-PE divulgou nota sobre o caso, confira aqui ou ao final desta mat&eacute;ria.
+&Eacute; o que denuncia o deputado Romero Albuquerque.
+
+    
+            André Longo fala na possibilidade de novas restrições em Pernambuco
+            Hospitais registram aumento de 655% nos casos de Covid-19 e 270% de Influenza
+            MPPE diz estar à disposição dos municípios para coibir práticas negacionistas na pandemia
+            Recife pediu 160 mil doses de vacina contra gripe junto ao Ministério da Saúde para influenza
+            Sete baleados em casa no Grande Recife na primeira semana de 2022
+            Motorista de Raquel Lyra morre ao ser atingido por bala perdida no Recife
+        
+
+&ldquo;O paciente j&aacute; tinha o n&uacute;mero de inscri&ccedil;&atilde;o na Central de Regula&ccedil;&atilde;o de Leito, mas isto lhe foi negado, mesmo com determina&ccedil;&atilde;o do Minist&eacute;rio P&uacute;blico obrigando o Estado a lhe conceder o leito em 48 horas. O Governo aplicou investimentos na Sa&uacute;de, ent&atilde;o o que falta &eacute; gest&atilde;o. Se nem a demanda da capital consegue ser atendida, o que as pessoas das demais regi&otilde;es t&ecirc;m sofrido com o sistema de sa&uacute;de?&rdquo;, Romero questiona.
+Em janeiro e fevereiro de 2021, o governo aplicou R$ 908,54 milh&otilde;es em gastos l&iacute;quidos na &aacute;rea da sa&uacute;de.
+"A fam&iacute;lia de Israel compartilhou com o deputado a frustra&ccedil;&atilde;o com o descaso com a vida do idoso. O estado dele era grav&iacute;ssimo e, mesmo com pedido ao MPPE desde o dia 5, meu tio morreu sem assist&ecirc;ncia. &Eacute; um dia dif&iacute;cil para todos n&oacute;s, pela perda do nosso ente querido e por constatar o descaso com a sa&uacute;de p&uacute;blica em Pernambuco&rdquo;, disse Douglas Brito, sobrinho do paciente. "A unidade de Nova Descoberta j&aacute; foi alvo de outras den&uacute;ncias durante a pandemia. Falta de leito e lota&ccedil;&atilde;o s&atilde;o reclama&ccedil;&otilde;es constantes dos usu&aacute;rios. Esse senhor sofreu por duas semanas. Outras fam&iacute;lias passaram pelo mesmo, nesta mesma unidade. Quantos outros casos n&atilde;o s&atilde;o denunciados?&rdquo;, diz o deputado.
+Romero ainda pontua que, segundo o boletim informativo emitido pelo Governo de Pernambuco no dia 6, nos &uacute;ltimos 15 dias, 150 leitos para pacientes com S&iacute;ndrome Respirat&oacute;ria Aguda Grave foram abertos.
+&ldquo;Mas, nos &uacute;ltimos 13 dias, o senhor Israel precisou apenas de um desses leitos, e n&atilde;o conseguiu. N&oacute;s j&aacute; procuramos a Secretaria de Sa&uacute;de para solucionar outras demandas como essa, porque o nosso entendimento &eacute; que existe uma prerrogativa constitucional que obriga o Estado a garantir a cada cidad&atilde;o o direito &agrave; sa&uacute;de&rdquo;, afirmou.
+Confira, na &iacute;ntegra, a nota da SES-PE sobre a morte do idoso
+A Secretaria Estadual de Sa&uacute;de (SES-PE) informa que o paciente citado pela reportagem deu entrada na Unidade de Pronto Atendimento (UPA) de Nova Descoberta no dia 26.12.21 com quadro gripal. Com exame positivo para influenza, o idoso, que tinha comorbidades, recebeu toda a assist&ecirc;ncia da equipe multiprofissional ao longo do internamento. No dia 06.01.22, apresentou uma piora e precisou ser entubado. &Eacute; importante destacar que a UPA conta com estrutura de suporte respirat&oacute;rio para pacientes em quadros mais graves serem assistidos enquanto aguardam vaga em leito de UTI. Infelizmente, o quadro do paciente agravou e o idoso veio a &oacute;bito na manh&atilde; deste s&aacute;bado (08)
+Em rela&ccedil;&atilde;o &agrave; solicita&ccedil;&atilde;o de leito de UTI para o idoso, a SES-PE informa que a Central Estadual de Regula&ccedil;&atilde;o de Leitos monitorava o caso e buscava vaga para o paciente. &Eacute; importante frisar que, diante da acelera&ccedil;&atilde;o de casos de influenza e do atual contexto de pandemia da Covid-19, a Central est&aacute; usando o Escore Unificado para Prioriza&ccedil;&atilde;o (EUP-UTI) de acesso a leitos de terapia intensiva, protocolo balizado pelo Conselho Regional de Medicina de Pernambuco (Cremepe) e pela Sociedade de Terapia Intensiva de Pernambuco (Sotipe).
+A prioriza&ccedil;&atilde;o das transfer&ecirc;ncias &eacute; realizada a partir da an&aacute;lise t&eacute;cnica entre o m&eacute;dico solicitante e o m&eacute;dico regulador, levando em considera&ccedil;&atilde;o, primeiramente, a gravidade do caso, a estrutura dispon&iacute;vel e a qualidade do suporte cl&iacute;nico nas unidades de sa&uacute;de onde cada paciente se encontra. Ap&oacute;s a solicita&ccedil;&atilde;o do leito, a Central faz a busca ativa na rede pela vaga. Al&eacute;m disso, &eacute; preciso que o paciente esteja est&aacute;vel para que a transfer&ecirc;ncia ocorra.
+Atento ao atual cen&aacute;rio, o Governo de Pernambuco tem realizado todos os esfor&ccedil;os poss&iacute;veis para ampliar o n&uacute;mero de vagas de UTI na sua rede pr&oacute;pria, al&eacute;m de contratualizar toda a oferta dispon&iacute;vel de terapia intensiva nas redes privada e filantr&oacute;pica. J&aacute; s&atilde;o mais de 1,7 mil leitos abertos, sendo 857 vagas de UTI, para atender a demanda.
+Por fim, a SES-PE e a dire&ccedil;&atilde;o da UPA de Nova Descoberta lamentam o falecimento do paciente, solidariza-se com os familiares neste momento de dor e se colocam &agrave; disposi&ccedil;&atilde;o para mais informa&ccedil;&otilde;es.

@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Cadoca rebate Negromonte, a quem se refere de meu querid?ssimo amigo"
+date: 2006-11-07
+tags: amigos,Cadoca,esquema criminoso,referendo
+author: None
+---
+O depuado federal Carlos Eduardo Cadoca (PMDB), que inicialmente preferia não comentar as declarações do deputado João Negromente, feitas, hoje, na Assembléia Legislativa (leia no Blog de hoje), enviou nota por sua assessoria de imprensa. 
+Veja a ?ntegra da nota de Cadoca:
+\"O deputado João Negromonte deve ter lido outra entrevista e não a minha. Em nenhum momento tratei de marketing, nem de marqueteiro, muito menos fiz qualquer tipo de agressão a quem quer seja, nem abri brecha para \"supostas mágoas\", disse, há pouco, o deputado Carlos Eduardo Cadoca (PMDB-PE), ao responder os ataques do deputado João Negromonte, em discurso hoje à tarde no plenário da Assembléia Legislativa.
+\"O que disse e reafirmo - acrescenta Cadoca - \"numa análise pol?tica, &nbsp;é que os partidos precisam fazer isoladamente uma discussão interna antes de tratar da questão da aliança, que deve, de fato, ser reavaliada e rediscutida após o recente &nbsp;processo eleitoral. Estranho o açodamento do deputado no tocante a uma reunião solicitada por mim ao PMDB. Uma prática normal e necessária ao processo pol?tico-partidário.Talvez seja receio de tratar das verdadeiras razões que colaboraram para fragilizar a minha candidatura em 2004. Essas questões eu vou colocar no partido\". 
+Para o deputado, chegou o momento de ser discutida eleição de 2004, em que ele perdeu a eleição para João Paulo, no Recife. \"Chegou, sim, o momento de discutir 2004. Não foi discutido antes por opção minha. Para evitar qualquer tipo de atropelo no processo de 2006. A minha candidatura não era frágil, como disse João, baseado não se sabe em quais fundamentos. Pelo contrário. Todas as pesquisas da época apontavam uma candidatura forte e viável do meu nome\". 
+E conclui: \"Tanto é assim, que fui o candidato escolhido dentro do PMDB, numa disputa leg?tima, e, na campanha, &nbsp;liderei as pesquisas durante dois meses até o guia eleitoral. Isso não é prato feito. É candidatura forte. Perder ou ganhar, no entanto, faz parte do processo. Principalmente quando, além dos adversários naturais da campanha, tive que lidar com a omissão de alguns e com o cruzamento de braço de outros. E mais: com a ausência quase absoluta do meu querid?ssimo amigo João Negromonte. Talvez ocupado com suas bases interioranas ou lendo e relendo Jean Paul Sartre\".  

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Edilson Silva rebate críticas de deputados sobre audiência pública"
+date: 2017-03-15
+tags: deputados,edilson vieira,Pensilvania
+author: None
+---
+Após a base governista da Assembleia Legislativa de Pernambuco (Alepe) classificar como ilegítima a audiência pública promovida pela Comissão de Cidadania, Direitos Humanos, na última segunda-feira (13), sobre as relações contratuais entre Governo do Estado e as Organizações de Saúde (OSs), o presidente da comissão, o deputado Edilson Silva (PSOL), rebate as críticas dos parlamentares durante uma sessão nessa terça-feira (14).
+Edilson Silva classificou a expressão "dois pesos, duas medidas” para expor sua indignação e disse que os governistas estão realizando manobras burocráticas para tentar barrar o debate democrático de temas envolvendo o amplo interesse da sociedade - que no caso da temática debatida na audiência das OSs - é a maior prejudicada com a precariedade do serviço prestado pela rede estadual de saúde.
+» Deputados repreendem Edilson Silva por convocar reunião fora do Regimento
+» Edilson Silva cobra retomada de diálogo entre Governo e grevistas do Detran
+"Usou-se ontem de um discurso de deslegitimar uma audiência pública convocada pela comissão permanente de Cidadania. A liderança do Governo veio a tribuna com o regimento na mão e disse o que quis. Vou aproveitar o espaço, inclusive, em caráter pedagógico, para passar a interpretação do regimento que nós temos com relação a esta questão. Isso interessa à todas as comissões. E mais do que isso, a liderança do Governo que calar as comissões, atuando de forma truculenta, autoritária, mal educada, impositiva, ao querer calar os parlamentares desta Casa. Vamos continuar fazendo nosso trabalho de acordo com o regimento", ponderou.
+» Edilson Silva diz que governo Paulo Câmara quer barrar debate sobre sistema penitenciário na Comissão de Cidadania
+O deputado rebateu os argumentos utilizados pela base de aliados do governo de Paulo Câmara (PSB), no qual acusaram de ilegal a audiência pública. O psolista disse que todos os parlamentares foram comunicados sobre a audiência. “Todos os deputados foram cientificados da audiência, no dia 13, antes da sessão, pelo meu assessor da comissão", detalhou. O presidente do colegiado concluiu rebatendo as críticas que recebeu sobre a convocação da audiência que "foge" da alçada da comissão. "E a pergunta que fica é a seguinte: porquê é que a nossa comissão, sobre a minha presidência, não pode discutir? Porquê está sendo tolhido o direito da comissão de discutir estes temas?", questionou.

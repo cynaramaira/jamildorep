@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Mendonça Filho abre representação por crime de responsabilidade contra ministros da Saúde por implantação do Mais Médicos"
+date: 2014-02-28
+tags: Contran,Crime,Mais Médicos,Mendonça Filho,ministros,Responsabilidade
+author: None
+---
+Foto: Zeca Ribeiro/Câmara dos Deputados
+Líder do Democratas na Câmara Federal, o deputado pernambucano Mendonça Filho promete entrar nesta sexta-feira (28) com representações contra o ministro da Saúde, Arthur Chioro, e seu antecessor na pasta, Alexandre Padilha, por crime de responsabilidade na implantação do Programa Mais Médicos, do Governo Federal. Para o deputado federal, houve mal uso de dinheiro público quando o Ministério da Saúde repassou mais de R$ 500 milhões a OPAS para o pagamento do salário dos médicos cubanos que atuam no País; que recebem apenas 25% deste valor. As representações serão abertas tanto junto a Procuradoria Geral da República (PGR), quanto no Conselho de Ética da Presidência da República.
+Para Mendonça Filho, o programa viola as leis trabalhistas uma vez que concede tratamento desigual aos médicos cubanos que atuam no programa. O Governo Federal diz pagar R$ 10,4 mil para cada médico cubano; mas a OPAS repassaria apenas um quarto desse valor, conforme investigação do Ministério Público do Trabalho reveladas em uma reportagem do Jornal Nacional nessa quinta-feira (27). Os cubanos representam mais de 80% dos profissionais do Mais Médicos.
+"O programa é um amontoado de ilegalidades e vamos cobrar responsabilidade do atual ministro da Saúde e do anterior, que é o pai do Mais Médicos, para que esses profissionais cubanos não sejam submetidos ao um regime de semi-escravidão. O Mais Médicos é um atentado a Constituição Federal e ao Estado democrático de Direito", ataca Mendonça Filho. "O governo Dilma patrocina a violação de direitos humanos dos cubanos e as garantias fundamentais desses profissionais", diz ainda.
+Para o deputado do DEM, o Governo Federal ainda mente ao dizer que adota o mesmo modelo usado por outros países para contratar médicos cubanos. Segundo a reportagem da Rede Globo, Chile e França não usam instituições intermediárias como a OPAS para contratar médicos cubanos, e a Itália não possuem contratos com profissionais do País. Os três países foram dados como exemplo pelo governo brasileiro.
+Segundo o parlamentar, a OPAS e o Ministério da Saúde ainda deram explicações contraditórias quanto aos contratos. Uma instituição teria afirmado que a responsabilidade pelos contratos seria da outra. O DEM também promete convocar Chioro para dar explicações no Congresso.

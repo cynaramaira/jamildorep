@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Governo pode suspender aumento real do salário mínimo se gastos estourarem"
+date: 2016-02-19
+tags: aumento,gastos,governo,Salário Mínimo
+author: None
+---
+ Foto: Rafael Neddermeyer/ Fotos Públicas
+Estadão Conteúdo - O ministro da Fazenda, Nelson Barbosa, anunciou como medida extrema caso o governo não cumpra o limite de gasto público a suspensão de aumento real do salário mínimo. Ele anunciou uma proposta de imposição de um limite plurianual para a expansão das despesas em porcentual do PIB. Caso o governo não cumpra os limites, a primeira ação será um contingenciamento adicional no ano corrente. Se a ação não for suficiente, três estágios automáticos são acionados, no ano seguinte, para obrigar que as despesas cumpram os limites. "Você adota esses três estágios para trazer o gasto para o limite e, se não for suficiente, eles valerão por mais de um ano", afirmou o ministro.
+O primeiro estágio será acionado quando houver previsão do descumprimento do gasto público e prevê a suspensão de concessão de novas desonerações, aumento real de despesas de custeio, aumento real das demais despesas discricionárias, realização de concursos, contratação e criação de cargos e o aumento real de salário de servidores públicos.
+No segundo estágio, que só será acionado caso o primeiro não seja suficiente, o governo irá suspender a ampliação de subsídios, aumento nominal das despesas de custeio, aumento nominal de despesas discricionárias e o reajuste nominal de salários dos servidores públicos, mas obedecendo a constituição.
+LEIA TAMBÉM:
+&gt; Reajuste de aposentadorias acima do salário mínimo custará R$ 21,5 bi em 2016
+&gt; Aumento do salário mínimo não é levado em conta em Pernambuco para definir piso de categorias
+&gt; Dilma assina decreto que eleva salário mínimo em 11,6% para o valor de R$ 880
+O terceiro e último estágio, que assim como os outros, só será adotado caso as ações anteriores não sejam suficientes, contempla, além da suspensão do aumento real do salário mínimo, a redução de despesas de benefícios aos servidores como, por exemplo, auxílio-moradia e a redução de despesas com servidores não estáveis.
+De acordo com o ministro da Fazenda, o objetivo é levar as medidas ao Congresso até o fim de março. "Como estamos em discussão com Estados e municípios para que eles adotem medidas semelhantes, a proposta está sendo finalizada, vamos discutir com governadores e prefeitos sobre como isso pode ser adotado para todos os Estados brasileiros", disse Barbosa.
+O projeto do governo prevê que a Lei de Responsabilidade Fiscal determine a imposição, através do Plano Plurianual (PPA), do limite de expansão do gasto. Neste contexto, a Lei de Diretrizes Orçamentárias (LDO) fixará o valor nominal do limite do gasto para cada ano e elaboração e execução da Lei Orçamentária Anual (LOA) deverá observar esse limite de caso.
+O dirigente da Fazenda ressaltou que, com as medidas anunciadas, há duas formas de acionar o contingenciamento sendo uma caso o governo detecte que não vai cumprir o primário e outra com a elevação de gastos. "Vamos fazer com que uma elevação de receita não sirva para elevar o gasto", frisou o ministro.
+Bandas
+O ministro explicou ainda que a decisão de colocar uma banda de flutuação é para assegurar o cumprimento da meta fiscal caso haja frustração de receitas ou necessidade de aportar mais recursos em áreas estratégicas como saúde. Barbosa destacou que é importante sinalizar estabilidade no longo prazo. "Para a gente ter espaço no curto prazo, é preciso ter regras no longo prazo", disse, ressaltando que o governo precisa evoluir do ajuste fiscal para a reforma fiscal. "Estamos numa fase que temos que completar o ajuste fiscal e também evoluir para a reforma fiscal. Isso envolve colocar limite para o gasto público "
+Ele afirmou que a proposta das bandas fiscais para cumprimento da meta não necessariamente se repetirá nos próximos anos. Segundo ele, o sistema que será adotado, caso haja aprovação do Congresso, tem o objetivo de absorver flutuações de receitas e ressaltou que a medida que estabelece limite de gastos não elimina a meta de superávit fiscal. O ministro justificou a apresentação da flexibilização da meta logo no início do ano. "O que gera mais insegurança é fazer mudança da meta no fim do ano sem avisar", disse.

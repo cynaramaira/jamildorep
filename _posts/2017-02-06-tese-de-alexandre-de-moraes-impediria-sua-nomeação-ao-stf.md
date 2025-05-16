@@ -1,0 +1,28 @@
+---
+layout: post
+title: "Tese de Alexandre de Moraes impediria sua nomeação ao STF"
+date: 2017-02-06
+tags: Alexandre Lopes,Glauco Moraes,nomeação
+author: None
+---
+Estadão Conteúdo - Em tese de doutorado apresentada na Faculdade de Direito da USP, em julho de 2000, o hoje ministro da Justiça, Alexandre de Moraes, defendeu que, na indicação ao cargo de ministro do Supremo Tribunal Federal, fossem vedados os que exercem cargos de confiança "durante o mandato do presidente da República em exercício" para que se evitasse "demonstração de gratidão política". Por esse critério, ele próprio, um dos cotados para a sucessão do ministro Teori Zavascki, estaria impedido de ser indicado pelo presidente Michel Temer.
+O veto sugerido por Moraes está no ponto 103 da conclusão da tese. Ele diz: "É vedado (para o cargo de ministro do STF) o acesso daqueles que estiverem no exercício ou tiveram exercido cargo de confiança no Poder Executivo, mandatos eletivos, ou o cargo de procurador-geral da República, durante o mandato do presidente da República em exercício no momento da escolha, de maneira a evitar-se demonstração de gratidão política ou compromissos que comprometam a independência de nossa Corte Constitucional".
+LEIA TAMBÉM
+» Edson Fachin é o novo relator da Lava Jato no STF
+» Moro é o mais votado entre juízes federais como sugestão a Temer para o STF
+» Cotado para o STF, Ives Gandra Filho defende submissão da mulher
+O ministro não quis dar entrevista sobre sua tese de doutorado. Um sumário da mesma está no banco de dados bibliográficos da USP (dedalus.usp.br). Seu título é Jurisdição constitucional e tribunais constitucionais: garantia suprema da Constituição. Além do veto já citado, Moraes defende que os ministros do Supremo tenham mandato por tempo determinado, e não a vitaliciedade prevista na Constituição de 1988.
+Defende, também, mudança expressiva na forma da escolha dos 11 ministros: quatro pelo presidente da República ("mediante prévio parecer opinativo do Conselho Federal da OAB"), quatro eleitos pelo Congresso e três escolhidos pelo próprio STF. Pela Constituição, hoje os onze ministros são escolhidos pelo presidente da República - como Michel Temer fará ao indicar o substituto de Teori Zavascki, morto mês passado - e, depois, sabatinados pelo Senado, que tem a palavra final.
+A tese - um "tijolo" de 416 páginas, originais disponíveis na biblioteca da USP do Largo de São Francisco - foi orientada pelo jurista e professor Dalmo Dallari. "Como estudioso do direito, ele é melhor do que nos cargos executivos, inclusive o de ministro", disse Dallari ao Estado. O professor emérito lembrou do doutorando, mas não quis fazer mais comentários. Os demais integrantes da banca foram o hoje ministro do STF Ricardo Lewandowski e os professores Paulo de Barros Carvalho, Celso Fernandes Campilongo e Mônica Garcia. Aprovaram a tese, mas sem o "com louvor" que costuma brindar trabalhos mais elaborados e/ou originais.
+» Aécio apoia Moraes no STF, mas diz que indicação não é ‘questão partidária’
+» “Ministro Alexandre de Moraes tem perfil ideal para o STF”, diz Marco Aurélio
+Já naquele 2000 - quase 12 anos passados depois da Constituinte, que neste fevereiro completa três décadas -, Alexandre de Moraes era fã do hoje presidente Michel Temer. Não só o citou na bibliografia do cartapácio - Temer, Michel - Constituição e política, 1994; Elementos de Direito Constitucional, 1995 - como, mais relevante, defendeu, na tese, quase as mesmas posições do constituinte Temer, também favorável a mandatos e a uma nova forma de composição e de escolha dos ministros do Supremo Tribunal Federal, propostas (não só dele) derrotadas nas votações.
+A ideia central da tese é, em juridiquês repetitivo, "identificar a necessidade de uma atuação efetiva e eficiente da justiça constitucional, por meio de seu órgão máximo, o Tribunal Constitucional, como meio de garantir a supremacia constitucional".
+Atribuições e mudanças
+Na primeira parte, Moraes teoriza sobre o direito constitucional Na segunda, detalha, relatorialmente, como funciona a justiça constitucional em alguns países (modelos americano, alemão, austríaco e francês). Na última parte, menos árida, debulha a jurisdição constitucional brasileira, e o Supremo Tribunal Federal.
+» Juristas sugerem nomes para o STF e entregam demanda a assessor de Temer
+» José Paulo Cavalcanti Filho reclama de interpretação do regimento do STF. “É delírio”
+» Ministros do STF divergem sobre escolha de relator da Lava Jato
+"Após a análise detalhada da evolução histórica do STF e de suas competências constitucionais, concluiu-se pela necessidade de sua transformação em exclusiva (grifo no original) Corte de Constitucionalidade, dirigindo seus trabalhos para a finalidade básica de preservação de supremacia constitucional e defesa intransigente dos direitos fundamentais", escreveu o agora ministro e também autor de outras obras jurídicas.
+Nos 110 pontos em que dividiu a conclusão de sua tese, Moraes fez inúmeras sugestões de mudanças - como a do mandato e da nova forma de escolha dos ministros do STF. Uma outra diz que a Constituição "deverá exigir maiores requisitos capacitários para o exercício do cargo de ministro do Supremo Tribunal Federal, além de maiores vedações e incompatibilidades".
+Entre as condições "capacitárias", dez anos de efetivo exercício de cargos privativos de bacharel em Direito, ou a condição de jurista, com o título de doutor. Para os três a serem escolhidos pela própria Corte, dez anos de carreira no magistério ou no Ministério Público. Entre as vedações, aquela que hoje, se vigente, impediria a sua indicação para o cargo.

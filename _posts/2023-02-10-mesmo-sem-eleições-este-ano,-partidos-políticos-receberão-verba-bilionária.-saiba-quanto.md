@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Mesmo sem eleições este ano, partidos políticos receberão verba bilionária. Saiba quanto"
+date: 2023-02-10
+tags: jamildo, Partidos Políticos
+author: Jamildo Melo
+---
+O site oficial do &oacute;rg&atilde;o informa que o Tribunal Superior Eleitoral (TSE) estabeleceu em R$ 1.185.493.562,00 o limite de dota&ccedil;&atilde;o do Fundo Partid&aacute;rio para o exerc&iacute;cio de 2023. O valor est&aacute; previsto na Portaria n&ordm; 74, publicada nesta quarta-feira (8) no Di&aacute;rio Oficial da Uni&atilde;o (DOU).
+De acordo com os crit&eacute;rios estabelecidos pela Emenda Constitucional n&deg; 97/2017, para receber recursos do Fundo Partid&aacute;rio em 2023, os partidos pol&iacute;ticos deveriam obter nas Elei&ccedil;&otilde;es Gerais de 2022 pelo menos 2% dos votos v&aacute;lidos, com no m&iacute;nimo 1% da vota&ccedil;&atilde;o em nove estados ou, ainda, garantir a elei&ccedil;&atilde;o de ao menos 11 deputados federais distribu&iacute;dos em nove estados.
+Assim, dos 28 entes pol&iacute;ticos que lan&ccedil;aram candidaturas na elei&ccedil;&atilde;o do ano passado, somente 13 partidos e federa&ccedil;&otilde;es partid&aacute;rias alcan&ccedil;aram a chamada cl&aacute;usula de desempenho prevista para o pleito: as federa&ccedil;&otilde;es FE Brasil (PT/PCdoB/PV), PSDB/Cidadania e PSOL/Rede, bem como os partidos Avante, MDB, PDT, PL, Podemos, Progressistas, PSB, PSD, Republicanos e Uni&atilde;o Brasil.
+As demais 15 agremia&ccedil;&otilde;es continuar&atilde;o a existir, por&eacute;m n&atilde;o receber&atilde;o nada do Fundo a partir deste m&ecirc;s de fevereiro, quando entrou em vigor a nova legislatura nacional. Caso desejem, ainda &eacute; poss&iacute;vel realizar fus&otilde;es, incorpora&ccedil;&otilde;es ou mesmo constituir federa&ccedil;&otilde;es com outros partidos que tiveram melhor resultado nas urnas.
+O Fundo Especial de Assist&ecirc;ncia Financeira aos Partidos Pol&iacute;ticos, denominado Fundo Partid&aacute;rio, &eacute; constitu&iacute;do por dota&ccedil;&otilde;es or&ccedil;ament&aacute;rias da Uni&atilde;o, multas, penalidades, doa&ccedil;&otilde;es e outros recursos financeiros que lhes forem atribu&iacute;dos por lei.
+Ele &eacute; repassado mensalmente &agrave;s siglas, em forma de duod&eacute;cimos, para o custeio de despesas cotidianas como pagamento de sal&aacute;rios de funcion&aacute;rios, contas de &aacute;gua e luz, passagens a&eacute;reas, alugu&eacute;is, entre outras.

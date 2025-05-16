@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Funcionários públicos federais criticam proposta de redução de salários de Paulo Guedes"
+date: 2020-03-31
+tags: Paulo Guedes,proposta,redução,Salários,taxas federais
+author: None
+---
+A Associação dos Funcionários Públicos do Estado de São Paulo (AFPESP) repudia, com veemência, a proposta do Governo Federal de reduzir os salários dos servidores públicos para custear o rombo na economia causado pela pandemia do coronavírus.
+O presidente da entidade, o médico pneumologista Álvaro Gradim, considera a medida socialmente danosa, pois impactaria uma parcela considerável da população em um momento crítico, onde as pessoas precisam de recursos para alimentos, remédios e atendimento médico.
+A Associação dos Funcionários Públicos do Estado de São Paulo (AFPESP) é uma entidade sem fins lucrativos e direcionada ao bem-estar dos servidores civis estaduais, municipais e federais atuantes do território paulista. Fundada há oito décadas, é a maior instituição associativa da América Latina, com mais de 246 mil associados. Está presente em mais de 30 cidades.
+Veja o texto completo abaixo.
+“AFPESP alerta que redução salarial deixaria servidores públicos em dificuldades”
+Associação dos Funcionários Públicos do Estado de São Paulo (AFPESP) alerta que não é justa redução salarial dos servidores, muitos dos quais estão na linha de frente na luta contra o coronavírus. Entidade sugere corte dos vencimentos de senadores, deputados e ministros dos tribunais superiores, que devem dar uma demonstração de civismo e patriotismo
+O médico pneumologista Álvaro Gradim, presidente da AFPESP, que tem 246 mil associados, dentre eles servidores públicos municipais, estaduais e federais que trabalham em território paulista, salienta que a entidade é totalmente contra as propostas do governo e do Congresso Nacional de reduzir os vencimentos dos funcionários públicos da União, que ganham mais de R$ 3.135,00, como parte das providências de combate à pandemia da Covid-19. "A propósito, esse valor deveria ser o salário mínimo da categoria e não uma referência para a instituição de um corte emergencial de valores".
+"A medida é socialmente danosa, pois teria impacto imenso no poder aquisitivo de um segmento expressivo da população, num momento muito grave, no qual as pessoas precisam de recursos para alimentos, remédios e atendimento médico. Por isso, nossa sugestão é que se reduzam os proventos de deputados, senadores e ministros dos tribunais superiores, que são bastante elevados e cuja diminuição temporária não os deixaria sem poder de compra", argumenta o presidente da AFPESP.
+"É importante que essas carreiras com os maiores salários exercitem o seu patriotismo neste momento. Não se pode colocar a responsabilidade de financiar a mobilização contingencial contra a Covid-19 sobre a grande base dos que carregam o sistema público".
+"Ademais, boa parte dos trabalhadores brasileiros que não estão em home office e se encontram na linha de frente na luta contra o coronavírus é integrante da parcela do funcionalismo público federal atingida pela redação salarial proposta. "Refiro-me, por exemplo, aos enfermeiros, médicos, fisioterapeutas, farmacêuticos, policiais e todos aqueles que estão diretamente mobilizados na guerra contra a grave pandemia, expondo-se a riscos de contágio e trabalhando de maneira incansável. Não é justo que essas pessoas, em meio à verdadeira guerra que estão enfrentando, tenham seus salários diminuídos, em prejuízo significativo para suas famílias".
+"Por todas as razões aqui expostas, "a AFPESP repudia as propostas de corte salarial e adotará medidas judiciais cabíveis caso sejam levadas adiante", conclui Dr. Gradim.

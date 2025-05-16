@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Expectativa de compra para Dia dos Namorados é menor este ano, aponta pesquisa"
+date: 2015-06-09
+tags: compras online,expectativa,pesquisa
+author: None
+---
+ Foto: Bobby Fabisak/JC Imagem
+Nem mesmo com o horário de funcionamento especial para o Dia dos Namoradores (12) e o São João, o varejo conseguiu conter a queda no percentual de vendas em relação ao mesmo período do ano passado. Na tentativa de alavancar a comercialização dos produtos, as lojas passaram a abrir em todos os domingos de junho. A crise econômica é apontada como principal responsável pela desaceleração no comércio.
+Geralmente, o Dia dos Namorados é considerado um dos períodos mais produtivos para o comércio, porém, segundo a Câmara de Dirigentes Lojistas (CDL), a expectativa é que o percentual de vendas em relação ao último ano sofra uma baixa de até 1,5%, no Recife.
+Segundo o presidente da CDL Recife, Eduardo Catão a situação econômica do País e o desemprego auxiliam na queda das vendas. “Um dos maiores motivos para a queda nas vendas é o desemprego. A situação econômica atual de forte inflação, diminuição da massa salarial do trabalhador e encarecimento de crédito acabam atingindo o consumidor, principalmente, a população de baixa renda”, comenta.
+» Desaceleração do PIB em Pernambuco afeta comércio, queda é de 3,9%
+O Instituto Fecomércio de Pernambuco também realizou uma pesquisa para medir a intenção de compras e disposição de gastos pelos consumidores para o Dia dos Namorados em parceria com o Sebrae-PE. O levantamento apontou queda de 13,1% em relação a 2014.
+Apesar dos números pouco otimistas, para o economista do Fecomércio Rafael Ramos o Dia dos Namorados ainda deve ser melhor do que foi o Dia das Mães. "A data não sentirá como o Dia das Mães. Como o Dia dos Namorados é mais distante do primeiro trimestre, período de significativos ajustes na economia, os consumidores já ajustaram suas despesas às suas realidades econômicas. Dessa forma, no lugar de não comemorar, eles ajustam o valor do gasto”, explica.
+É baixa a proporção de consumidores pernambucanos que demonstraram intenção em comemorar a data, apenas 51% do universo pesquisado, parcela menor do que a observada no mesmo evento em 2014, 64,1%.
+Entre os motivos apontados pelos consumidores estão: falta de dinheiro, endividamento familiar e desemprego. Na RMR, 11,5% dos consumidores alegaram estar sem dinheiro, 11,2% encontram-se endividados e 7,6%, estão desempregados.
+Em todas essas três situações a porcentagem observada em Caruaru supera a da Região Metropolitana do Recife e Petrolina. Na capital do Agreste, 13,3% apontaram estar sem dinheiro, 16,1% estão com endividamento familiar e 13,3% se encontram desempregado.
+O gasto médio estimado pelos consumidores pernambucanos para comemorar o Dia dos Namorados 2015 é de R$ 248,00. Para a aquisição dos presentes o gasto médio pretendido está estimado em R$ 183,00 (em 2014 correspondeu a R$ 188,00).
+Entre os principais itens presenteáveis destacam-se: roupas (40,9% - com maior proporção na RMR, 44,6%); cosméticos e perfumes (26,8% - mais demandado na RMR, 35,2%); calçados (14,5% - maior parcela em Caruaru, 20,5%); carteira, bolsa e cinto (12,0% - com maior intenção de compra na RMR, 16,0%); e joias e bijuteria (11,0% - mais pretendido em Petrolina, 16,1%).
+No que se refere ao canal de compra preferido, os consumidores apontam o comércio tradicional como o principal local por eles demandados para realizar as compras (58,3% das indicações), com maior proporção em Petrolina (65,1%) e menor na RMR (53,1%). Para os que demonstraram preferência de comprar em shopping centers (46,0% dos consumidores), a parcela é mais elevada na RMR (57,7%), principalmente pelo fato de essa área aglomerar os principais estabelecimentos dessa natureza no estado.

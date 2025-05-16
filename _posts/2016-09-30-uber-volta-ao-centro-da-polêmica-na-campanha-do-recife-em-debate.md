@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Uber volta ao centro da polêmica na campanha do Recife em debate"
+date: 2016-09-30
+tags: campanha,Debate,Recife,uber
+author: None
+---
+Cinco meses após chegar ao Recife, o Uber está no centro da discussão eleitoral e cada um dos candidatos já deu a sua opinião sobre a regulamentação do serviço prestado pelo aplicativo. O tema foi a polêmica do debate realizado pela TV Globo com quatro dos oito nomes que disputam a prefeitura e ajudou a separar ainda mais Geraldo Julio (PSB), que tenta a reeleição, de Daniel Coelho (PSDB), um dos seus principais adversários.
+LEIA TAMBÉM
+» Prefeito e ex-prefeito viram alvo dos adversários em debate no Recife
+No segundo bloco, que tinha tema livre, o atual prefeito perguntou ao tucano como pretende regulamentar o Uber, uma das suas propostas. Enquanto o socialista vem alegando que não cabe ao gestor municipal esse processo, e sim ao Congresso Nacional por se tratar de uma lei federal, o tucano, que hoje é deputado federal, afirma que isso pode ser feito no âmbito da prefeitura.
+Daniel Coelho citou o exemplo de São Paulo para afirmar que estabeleceria normas para os motoristas de serviços como o Uber. O tucano ainda ressaltou que a lei municipal é a apontada pela decisão judicial que suspendeu uma liminar que proibia a fiscalização e e a apreensão dos carros que circulam pelo aplicativo, divulgada nessa quinta-feira (29). "É baseada numa lei assinada por Geraldo Julio que criou dificuldades para a circulação do Uber", reclamou. "Eu estou dizendo a verdade para as pessoas, eu não quero ganhar o voto fácil dos taxistas, não", ironizou ainda o tucano.
+» Qual é a sua opinião sobre o Uber? Veja se o seu candidato no Recife concorda com você
+Foi na réplica que começou a polêmica. O prefeito leu o projeto de lei da Câmara Federal de número 5446/2016, proposto por Daniel Coelho como deputado. Geraldo Julio afirmou que na proposta Daniel Coelho considera as penas para o transporte irregular leves, pedindo o aumento delas. "Agora durante a eleição quer ser defensor de Uber", afirmou o adversário. "Tenho impressão que ele ficou preocupado com a contradição do deputado com o candidato", ironizou também em outro momento do debate.
+Daniel Coelho afirmou  na tréplica que o projeto de lei diz respeito ao transporte escolar, o que considera uma "alternativa para a mobilidade da cidade" e criticou a proibição da circulação desses veículos nos corredores exclusivos para ônibus. O tucano ainda reafirmou que, se eleito, pretende regulamentar o Uber.
+Mas, afinal, o que diz o tal projeto de lei? A proposta quer alterar três artigos do Código de Trânsito Brasileiro. Hoje o inciso oito do artigo 29 diz que "os veículos prestadores de serviços de utilidade pública, quando em atendimento na via, gozam de livre parada e estacionamento no local da prestação de serviço, desde que devidamente sinalizados, devendo estar identificados na forma estabelecida pelo Contran". No projeto de lei de Daniel Coelho, ele acrescenta os veículos de transporte escolar.
+O segundo artigo citado é o 230, que estabelece regras para os veículos. Atualmente quem transporta passageiros em compartimento de carga, por exemplo, comete uma infração grave. A proposta do tucano quer torná-la gravíssima, com o pagamento de cinco vezes a multa, o que equivale a R$ 957,70, além de outras penalidades: a suspensão do direito de dirigir e a apreensão do veículo.
+O artigo 231 foi o real motivo da reclamação, por falar no seu inciso oito que é infração média transitar "efetuando transporte remunerado de pessoas ou bens, quando não for licenciado para esse fim". O PL de Daniel Coelho aumenta a infração para gravíssima, com todas as punições previstas também para quem infringir o artigo 230. Essa é, porém, a realidade do Uber atualmente no Recife, sem regulamentação.
+» Leia a íntegra do projeto de lei:
+ 
+ Veja o que diz o PL 5446/2016  from Portal NE10
+Protesto do Uber
+Motoristas do Uber estiveram duas vezes essa semana nas proximidades do prédio onde Geraldo Julio mora, no bairro da Torre, na Zona Oeste do Recife, para protestar pela regulamentação do aplicativo e contra a fiscalização que tem sido feita pela Companhia de Trânsito e Transporte Urbano (CTTU). Horas após a segunda manifestação, nesta quinta-feira (29), o Tribunal de Justiça de Pernambuco (TJPE) divulgou que estavam suspensas as liminares concedidas a sete motoristas proibindo a apreensão dos carros deles pela gestão municipal. Agora também contra a decisão judicial, eles prometem um novo protesto para o sábado (1º).

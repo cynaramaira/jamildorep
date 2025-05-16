@@ -1,0 +1,15 @@
+---
+layout: post
+title: ""Operação Padrão da PM vai continuar até o governo decidir dialogar", diz presidente da ACS-PE"
+date: 2016-12-29
+tags: governo,operação,Presidente,skate
+author: None
+---
+Em entrevista ao Blog de Jamildo, na manhã desta quinta-feira (29), o presidente da Associação de Cabos e Soldados de Pernambuco (ACS-PE), Alberisson Carlos, disse que a Operação Padrão da Polícia Militar vai continuar por tempo indeterminado até que o Governo Paulo Câmara (PSB) decida dialogar e levar "alguma perspectiva à tropa".
+Chamado de "intransigente" pelo Comando da PM na última semana, Alberisson rebateu e disse que a todo momento está buscando dialogar. "A intransigência é por parte do Comando da PM que não quer em nenhumm momento ouvir as propostas da categoria", disse.
+&gt;&gt; Comando da PM diz que ‘intransigência’ de Alberisson Carlos impede acordo
+Alberisson afirmou que os comandantes estão querendo usar de hierarquia sobre a Associação de Cabos e Soldados, mas que não podem fazer isto. "A associação não é subordinada ao governo, nem ao Estado. Ela é privada e sustentada pela contribuição dos sócios e tem presidente eleito de escolha democrática, não podem querer usar de hierarquia", explicou.
+De acordo com o presidente, as negociações estão paradas. "A gente quer esclarecer que hoje as negociações estão paradas. Não tem nada assegurado por parte do Estado e o Governo, através dos comandantes tem dito que não vai negociar. Enquanto isso continuar, a Operação Padrão também continua", ressaltou.
+A insatisfação da tropa com o governo aumentou justamente quando o governo estadual decidiu retirar as associações da mesa de negociação permanente dos militares, negociando diretamente com os comandantes gerais. Associações como a Aspra-PE (Associação de Praças de Pernambuco), alegam que como os comandantes ocupam cargos de confiança, não representam os interesses da categoria. "A tropa não aceita que seus legítimos representantes não participem das negociações, a gente sempre quis negociar e levamos propostas, mas não estão abrindo o diálogo", disse Alberisson Carlos.
+Para o presidente da ACS-PE, a população está insatisfeita com a forma que o Estado está tratando as negociação. "O povo não quer o exército na rua, querem a Polícia Militar, essa Operação Padrão está mostrando a fragilidade do sistema de segurança pública de Pernambuco", disse.
+Por fim, Alberisson disse que não quer greve geral da categoria, mas isso pode ocorrer, pois a tropa está "bastante insatisfeita". "Não queremos greve, nossa operação tem mostrado que o caminho é o da legalidade. Em nenhum momento as associações falaram de radicalização, mas a forma que o governo está conduzindo gera revolta e pode chegar a um ponto de alguém querer dar o grito de greve, mas não são as associações que defendem isso", concluiu.

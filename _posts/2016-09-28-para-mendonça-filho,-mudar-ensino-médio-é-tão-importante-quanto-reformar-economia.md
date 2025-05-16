@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Para Mendonça Filho, mudar ensino médio é tão importante quanto reformar economia"
+date: 2016-09-28
+tags: Economia,Ensino Médio,Mendonça Filho,Pará,Tostao
+author: None
+---
+Em entrevista concedida ao Blog do Josias de Souza, o ministro da Educação, Mendonça Filho (DEM), defendeu que mudar o ensino é tão importante quanto reformar economia no Brasil. Desde a última quinta-feira (22), a reforma do ensino médio tem gerado polêmica. “Temos que colocar a educação no mesmo patamar de prioridade das reformas econômicas”, disse o responsável pela novidade em entrevista ao UOL.
+Confira a íntegra da conversa:
+
+Guindado ao comando da pasta da Educação há quatro meses e meio, Mendonça migrou do debate acadêmico à prática. Convenceu Temer a baixar a reforma do ensino médio por MP (medida provisória). Diferentemente de um projeto de lei, a MP vigora a partir de sua publicação no Diário Oficial. E os congressistas têm a obrigação de apreciá-la em até 120 dias.
+De acordo com o Blog, o ritmo de toque de caixa gerou muitas críticas e o ministro disse ter ficado “pasmo”. “Medida provisória para atender urgência e relevância no campo econômico é sempre justificável. No campo social da educação, que vive um drama terrível, algumas pessoas ficam meio que arrepiadas. Não tem que ter arrepio. É uma medida legislativa com base na Constituição, que estabelece urgência e relevância.”
+Há 20 dias, vieram à luz os dados do último Ideb (Índice de Desenvolvimento de Educação Básica). Exibiram, uma vez mais, o flagelo do ensino médio. Apenas dois Estados, Pernambuco e Amazonas, lograram cumprir as metas. Segundo o ministro, foi o resultado do Ideb, o mais completo instrumento de aferição da má qualidade da educação brasileira, que o levou a agir. “A gente teve o segundo Ideb consecutivo desde 2011 em que não atingimos as metas fixadas para a educação de nível médio no Brasil”, disse Mendonça. “A gente tem um flagelo de 1,7 milhão de jovens que nem trabalham nem estudam. Muitas vezes são dragados e atraídos pela criminalidade, pelas drogas, nas grandes e médias cidades do Brasil. É um drama humano.”
+O ministro dá de ombos para os que o criticam por ter convencido Temer a adotar a via da medida provisória. “A gente tem que agir com urgência e velocidade, para atender esses jovens brasileiros”, disse Mendonça (veja no vídeo abaixo). “A reforma é para atender os jovens do Brasil, não é para atender as corporações ou quem quer que seja. Todas devem colaborar, porque o objetivo central é atender a juventude brasileira, que não se vê identificada com o formato atual da educação de nível médio e que quer protagonizar e definir o seu próprio futuro.”
+
+Na tarde dessa terça-feira (27), Mendonça Filho gravou um pronunciamento para reforçar a importância dos professores para a educação do Brasil e rebater acusações divulgadas nas Mídias Sociais. Um site divulgou informações atribuindo a “burocratas do MEC” a afirmação que os professores têm “regalias”. “Essa é mais uma das inúmeras mentiras que já foram divulgadas, desde que assumimos a gestão do MEC, em maio”, afirmou o ministro.

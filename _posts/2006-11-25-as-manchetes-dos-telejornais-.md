@@ -1,0 +1,11 @@
+---
+layout: post
+title: "As manchetes dos telejornais "
+date: 2006-11-25
+tags: 
+author: None
+---
+Da Folha Online
+&nbsp;
+
+ black; FONT-FAMILY: Verdana\">Jornal Nacional (Rede Globo)O presidente Lula abre o primeiro encontro do PT depois da reeleição e afirma que o partido precisa voltar a ser exemplo para o Pa?s.As reações da troca de comando no Controle Aéreo Brasileiro. Os controladores de vôo dizem que a mudança não resolve a crise nos aeroportos.No Chile, a queda de um avião mata seis pessoas.Pol?cia estoura uma rinha de galos em Manaus.Futebol: um time do Nordeste conquista a última vaga para a Série A do Brasileirão. Um campeão brasileiro é rebaixado para a Série C.O segredo do vôlei masculino que arrasou os americanos no Mundial do Japão.O Natal dos sonhos para um menino pobre da Baixada Fluminense.Jornal da Band (Rede Bandeirantes)Lula diz que PT precisa voltar a ser exemplo e manda recado para companheiros.Não há brasileiros entre as v?timas do acidente aéreo no Chile. Quatro turistas portugueses, o piloto e uma guia chilenos morreram na queda do bimotor.Ministro da Defesa diz que o afastamento do chefe dos controladores de vôo é para diminuir a tensão entre os controladores e trazer segurança para a população.SOS Rio de Janeiro: carioca vai às compras de Natal com medo da nova onda de assaltos.A hora da decisão: começa amanhã a Fuvest, o maior e mais concorrido vestibular do pa?s.Mundial de Vôlei masculino: Brasil massacra Estados Unidos na segunda fase do torneio.Fim de semana de decisões no futebol: o América, de Natal, vai para a 1ª Divisão do Campeonato Brasileiro, o Guarani vai para a 3ª e a Portuguesa se salva no fim do jogo.Na Série A, São Caetano, Ponte, Palmeiras e Flu lutam contra o rebaixamento. O São Paulo recebe a faixa de campeão.Os dias ensolarados ficaram para trás na maior parte do Brasil. O domingo deve ser de chuva em quase todas as regiões.Jornal da Record (Rede Record)Crise da aviação derruba o comando do controle aéreo brasileiro.Bandidos roubam lancha no Rio, provocam acidente e ainda pedem resgate de R$ 15 mil.O presidente Lula faz apelo aos companheiros de partido.Americanos enlouquecem com a liquidação que reduz os preços quase pela metade.O perigo da beleza a qualquer preço: remédio proibido é vendido pela internet, nas ruas e até em cl?nicas. 

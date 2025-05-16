@@ -1,0 +1,16 @@
+---
+layout: post
+title: "A polícia do bem"
+date: 2009-09-02
+tags: Polícia
+author: None
+---
+
+
+Por Jo&atilde;o Valadares no PEbodycount
+S&atilde;o tr&ecirc;s soldados. Fa&ccedil;o quest&atilde;o de escrever o nome dos tr&ecirc;s. F&aacute;bio Santos e Silva, Jos&eacute; Ronaldo do Nascimento e Jorge Wendel Lins de Souza. Encontrei os tr&ecirc;s, na manh&atilde; de domingo,&nbsp; na V-9, em Olinda.&nbsp; Um exemplo. A hist&oacute;ria &eacute; a seguinte. O JC publicou uma mat&eacute;ria chamada &Agrave; Flor da Pele. &Eacute; um relato triste de tr&ecirc;s irm&atilde;os albinos nascidos numa fam&iacute;lia negra. Vivem trancados em casa porque n&atilde;o t&ecirc;m protetor solar. Tamb&eacute;m n&atilde;o t&ecirc;m &oacute;culos.
+Ontem, estava na casa da m&atilde;e deles, Rosemere, 27 anos. &quot;Ai meu deus. Jo&atilde;o, o que &eacute; isso&#63; Tem pol&iacute;cia l&aacute; fora. Meu deus. O que foi&#63; N&atilde;o gosto disso. N&atilde;o gosto.&quot; As crian&ccedil;as tamb&eacute;m ficaram assustadas. J&aacute; viram o tio ser assassinado. Faz um m&ecirc;s. Depois de acalm&aacute;-la, fomos at&eacute; a porta. Com o jornal na m&atilde;o, o soldado F&aacute;bio Santos e Silva se apresentou. &quot;Vim conhecer voc&ecirc;s. A gente &eacute; respons&aacute;vel pelo policiamento aqui na &aacute;rea&quot;. Foi o cart&atilde;o de visita.
+Foram convidados a entrar. Os soldados disseram que estavam abastecendo a viatura e viram a foto&nbsp;da fam&iacute;lia na capa do jornal, assinada por Alexandre Severo. Acharam interessante e resolveram comprar. Descobriram que era uma fam&iacute;lia da V-9. Sa&iacute;ram do posto e foram procurar a casa. Encontraram pouco tempo depois. &quot;Ficamos sensibilizados com a comovente hist&oacute;ria. Estamos aqui para conversar um pouco e ajud&aacute;-los. Conhecemos muitos comerciantes e donos de farm&aacute;cia. Vamos entrar em contato com todos eles para ajudar a fam&iacute;lia.&quot;
+Os tr&ecirc;s n&atilde;o estavam ali a mando de ningu&eacute;m. N&atilde;o era uma cena produzida pela assessoria de imprensa oficial para apresentar o programa Pol&iacute;cia Amiga. Eram apenas policiais, soldados, fazendo trabalho de pol&iacute;cia.&nbsp;S&oacute; isso. Aproxima&ccedil;&atilde;o solid&aacute;ria com a comunidade. Afeto n&atilde;o faz mal a ningu&eacute;m. Essa &eacute; a pol&iacute;cia do bem.
+Mas o menino mais novo, Kauan, 5 anos, n&atilde;o perdeu tempo. Deu um cruzado no soldado.&nbsp;&quot;Pol&iacute;cia &eacute; malvada. A pol&iacute;cia mata. Mata muito&quot;. O soldado F&aacute;bio, com o menino no bra&ccedil;o,&nbsp;mostrou um lado da pol&iacute;cia que a periferia n&atilde;o conhece. Uma pol&iacute;cia feita por gente de bem. &quot;Kauan, a pol&iacute;cia &eacute; do bem. Estamos aqui para proteg&ecirc;-los. &Eacute; isso que a gente faz.&quot; O menino continuou o di&aacute;logo com o policial. Um tempo depois, estava perguntando sobre o fardamento do policial, sobre o colete &agrave; prova de bala. &Eacute; isso.&nbsp;Minutos depois, os tr&ecirc;s foram embora. &quot;Vamos voltar com ajuda.&quot;
+* a foto &eacute; de Rodrigo Lobo/JC Imagem 

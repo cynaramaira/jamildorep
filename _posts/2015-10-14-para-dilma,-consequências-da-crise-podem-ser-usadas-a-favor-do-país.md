@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Para Dilma, consequências da crise podem ser usadas a favor do País"
+date: 2015-10-14
+tags: crise sanitária,Dilma,Pará
+author: None
+---
+ Foto: Roberto Stuckert Filho/ PR
+Estadão Conteúdo - A presidente Dilma Rousseff afirmou nesta quarta-feira, 14, que o atual momento de dificuldade que o País atravessa é "muito doloroso" para o Brasil desperdiçar. "É hora de nos unirmos para buscar e fazer mudanças, iniciativas e obras que vão de fato construir a ponte que nos levará a um novo estágio de desenvolvimento", disse, durante a cerimônia de inauguração do Laboratório de Biotecnologia Agrícola do Centro de Tecnologia Canavieira (CTC), em Piracicaba, no interior paulista. A presidente disse ter certeza que haverá uma travessia para um novo ciclo de crescimento sustentável, com estabilidade da economia e controle da inflação, além da formação de um "grande mercado interno" por meio da inclusão social.
+LEIA TAMBÉM:
+&gt; No interior de São Paulo, Dilma justifica pedaladas e promete que fará o Brasil voltar a crescer
+&gt; Nessa terça-feira, Dilma começou a fazer história como líder política desse País, diz Lula
+&gt; Para Lula, Bolsa Família e Minha Casa justificam pedaladas de Dilma em 2014
+A presidente afirmou que, atualmente, o Brasil é mais robusto e resiliente que em qualquer outro momento. "Agora, para enfrentar a crise, não precisamos voltar para trás. Para enfrentar a crise, temos que seguir adiante", disse. Neste momento, ela ressaltou como é possível usar a favor do País consequências recentes da crise. "Se o câmbio se desvalorizou, é hora de aproveitarmos o aumento das exportações", destacou. Ela afirmou que a balança comercial brasileira saiu de déficit de US$ 4 bilhões para superávit de US$ 12 bilhões, valor que deve crescer até o fim do ano, em sua avaliação. Outro reflexo da valorização do dólar ante o real, ressaltou Dilma, é um processo de substituição das importações no País.
+Ressaltando a importância do desenvolvimento de pesquisas sobre etanol no CTC, Dilma disse que uma nova matriz de combustíveis é uma das bases da meta de redução de poluentes que o País assumirá internacionalmente em dezembro, em Paris, na conferência global do clima, a COP 21. Em seu discurso na Organização das Nações Unidas (ONU) em setembro, a presidente anunciou o compromisso brasileiro de cortar em 43% até 2030 a emissão de gases de efeito estufa com base nas emissões de 2005. "Temos todas as condições para cumprir e até superar esta meta, que é audaciosa, mas factível", afirmou.
+O governador de São Paulo, Geraldo Alckmin, e os ministros de Minas e Energia, Eduardo Braga, e da Agricultura, Kátia Abreu, também participaram do evento desta quarta-feira, em Piracicaba (SP). Mais cedo, a presidente esteve na cerimônia de entrega de residências do programa habitacional "Minha Casa, Minha Vida", em São Carlos, também no interior paulista. Ainda hoje, ela vai a São Bernardo do Campo (SP), onde discursa no I Congresso Nacional do Movimento dos Pequenos Agricultores.

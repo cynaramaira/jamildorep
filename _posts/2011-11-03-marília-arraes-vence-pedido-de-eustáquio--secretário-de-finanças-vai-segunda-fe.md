@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Marília Arraes vence pedido de Eustáquio: secretário de Finanças vai segunda-feira à Câmara"
+date: 2011-11-03
+tags: Câmara,feira,Finanças,Marília Arraes,segunda onda
+author: None
+---
+S&oacute; para contextualizar: A vereadora Aline Mariano (PSDB) apresentou o pedido de explica&ccedil;&atilde;o do contrato com o Banco do Brasil. O l&iacute;der do governo na C&acirc;mara, Luis Eust&aacute;quio (PT), foi contra. Mas a l&iacute;der do bloco PSB/PSD, Mar&iacute;lia Arraes (PSB), fez coro com Aline Mariano. O futuro da base governista come&ccedil;a a ficar com um desenho mais claro.
+Leia o que publicou o site da C&acirc;mara do Recife:
+
+J&aacute; est&aacute; marcado: o secret&aacute;rio municipal de Finan&ccedil;as, Petr&ocirc;nio Magalh&atilde;es, estar&aacute; segunda-feira, 7, &agrave;s 11h, na Sala das Comiss&otilde;es da C&acirc;mara Municipal do Recife, para prestar esclarecimentos sobre a renegocia&ccedil;&atilde;o do contrato da Prefeitura do Recife com o Banco do Brasil, que &eacute; respons&aacute;vel por administrar a folha de pagamentos municipal. A data foi agendada durante a reuni&atilde;o extraordin&aacute;ria da Comiss&atilde;o de Finan&ccedil;as e Or&ccedil;amento, na manh&atilde; desta quinta-feira, 3, que tinha como pauta exclusiva o convite ao assessor do prefeito Jo&atilde;o da Costa, para vir &agrave; Casa de Jos&eacute; Mariano.
+
+Participaram da reuni&atilde;o o presidente da Comiss&atilde;o, Carlos Gueiros (PTB), Alexandre Lacerda (PRTB), Luiz Eust&aacute;quio (PT) e Marcos de Bria (PTdoB). O convite foi tema de reuni&atilde;o da comiss&atilde;o porque gerou pol&ecirc;mica na reuni&atilde;o ordin&aacute;ria de ter&ccedil;a-feira, quando a vereadora Aline Mariano (PSDB) tentou aprovar um requerimento convocando o secret&aacute;rio para prestar esclarecimentos sobre o contrato. A pol&ecirc;mica envolveu o l&iacute;der do governo vereador Luiz Eust&aacute;quio, que rejeitou o requerimento e alguns partidos da base aliada, que concordaram com a convoca&ccedil;&atilde;o. Para encerrar a pol&ecirc;mica, Carlos Gueiros pediu vista do requerimento deixando que a Comiss&atilde;o de Finan&ccedil;as deliberasse sobre o assunto.
+
+&ldquo;Resolvemos n&atilde;o convocar e sim convidar o secret&aacute;rio. A diferen&ccedil;a &eacute; que a convoca&ccedil;&atilde;o obrigaria ele a vir. Com o convite ele vem se quiser. Mas, queremos que o secret&aacute;rio entenda o convite como uma gentileza de nossa parte&rdquo;, disse o presidente Carlos Gueiros. O convite foi feito durante a reuni&atilde;o, por telefone. O secret&aacute;rio aceitou de imediato. &ldquo;Agora, vamos chamar a vereadora Aline Mariano para que ela fa&ccedil;a os questionamentos ao secret&aacute;rio. E ele vai dizer quais as raz&otilde;es de solicitar a renova&ccedil;&atilde;o do contrato antes do t&eacute;rmino vigente&rdquo;, acrescentou Gueiros. Depois que o secret&aacute;rio se justificar, a Comiss&atilde;o vai analisar as resposta e dizer se ficou satisfeita com os argumentos apresentados.

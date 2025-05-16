@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Múcio Magalhães diz na Câmara do Recife que livros da PCR não são fantasmas"
+date: 2011-05-31
+tags: Câmara,livros,Naomi Campbell,Recife,são,Vera Magalhães
+author: None
+---
+DISCURSO DO VEREADOR M&Uacute;CIO MAGALH&Atilde;ES SOBRE O LIVRO RECIFE NO DIA-A-DIA DOS SEUS POETAS
+Vou tratar das quest&otilde;es levantadas aqui na C&acirc;mara sobre a compra e distribui&ccedil;&atilde;o, pela Secretaria Municipal de Educa&ccedil;&atilde;o da publica&ccedil;&atilde;o &ldquo;Recife no dia-a-dia dos Seus Poetas&rdquo;.
+Antes de tudo quero dizer que o maior acompanhamento pela sociedade civil dos atos do Poder P&uacute;blico &eacute; fundamental, algo que s&oacute; p&ocirc;de acontecer no Brasil a partir da luta pelas liberdades pol&iacute;ticas e democr&aacute;ticas. Acho inclusive que estas liberdades t&ecirc;m que ser ampliadas, com maior participa&ccedil;&atilde;o popular na gest&atilde;o do que &eacute; p&uacute;blico. Mas para que isso ocorra &eacute; fundamental que o que j&aacute; conquistamos seja exercido com responsabilidade.
+Den&uacute;ncias contra gestores n&atilde;o podem ser feitas apenas no &ldquo;achismo&rdquo;, sem fundamento que comprove a den&uacute;ncia, julgando e condenando as pessoas atrav&eacute;s de afirma&ccedil;&otilde;es caluniosas, sem nenhuma comprova&ccedil;&atilde;o de fato.
+Atitudes desta natureza terminam por desgastar um importante instrumento da democracia que &eacute; o papel fiscalizador que o Poder Legislativo tem.
+A primeira falsa afirma&ccedil;&atilde;o levantada sobre esse tema foi: &ldquo;O livro &eacute; fantasma, n&atilde;o h&aacute; sinais de sua distribui&ccedil;&atilde;o na rede municipal de ensino.&rdquo;
+A c&oacute;pia dos documentos que tenho aqui comigo (protocolos de entrega e recebimento) comprovam que os exemplares foram distribu&iacute;dos a toda a rede de ensino, envolvendo alunos, estagi&aacute;rios e professores da Educa&ccedil;&atilde;o Infantil e do Ensino Fundamental, da Educa&ccedil;&atilde;o de Jovens e Adultos (EJA) e do Programa Nacional de Inclus&atilde;o de Jovens (PROJOVEM).
+Uma pesquisa mais cuidadosa dos denunciantes teria comprovado a distribui&ccedil;&atilde;o dos exemplares e evitado maiores desgastes para todos.
+Ap&oacute;s os denunciantes constatarem que de fato houve uma distribui&ccedil;&atilde;o dos exemplares do &ldquo;Recife no dia-a-dia dos Seus Poetas&rdquo;, passou-se a levantar outra quest&atilde;o, que apenas uma agenda com o mesmo nome, dessas que qualquer um compra em papelarias foi distribu&iacute;da.
+Ora, querer comparar o que foi distribu&iacute;do na rede com uma simples agenda de papelaria &eacute; realmente querer &ldquo;for&ccedil;ar a barra&rdquo;. O livro &ldquo;Recife no dia-a-dia dos Seus Poetas&rdquo; &eacute; um material rico em conte&uacute;do, com dezenas de poesias de consagrados poetas recifenses e com biografias desses autores. &Eacute; tamb&eacute;m ricamente ilustrado com fotos da cidade. Todo esse conte&uacute;do com direitos autorais reconhecidos.
+Se fosse apenas uma agenda, a publica&ccedil;&atilde;o n&atilde;o teria registro no ISBN.
+O ISBN, sigla em ingl&ecirc;s para International Standard Book Number, foi criado em 1967 e oficializado como norma internacional em 1972. &Eacute; um sistema que identifica numericamente os livros segundo o t&iacute;tulo, o autor, o pa&iacute;s e a editora, individualizando-os inclusive por edi&ccedil;&atilde;o.
+A Ag&ecirc;ncia Internacional do ISBN, que controla o sistema, delegou a Funda&ccedil;&atilde;o Biblioteca Nacional como representante da Ag&ecirc;ncia no Brasil desde 1978, ficando ela respons&aacute;vel pela atribui&ccedil;&atilde;o dos n&uacute;meros de identifica&ccedil;&atilde;o dos livros editados no pa&iacute;s.
+Pois bem, o livro &ldquo;Recife no dia-a-dia dos Seus Poetas&rdquo; tem registro no ISBN, como comprova este documento que tenho em minhas m&atilde;os, sob o n&uacute;mero 978-85-7752-368-9, sendo que o prefixo 978 do seu registro identifica o produto livro, isso dito pela respons&aacute;vel pelo ISBN no Brasil.
+E mais, a publica&ccedil;&atilde;o foi objeto de intenso trabalho pedag&oacute;gico em toda a Rede Municipal de Ensino durante todo o ano de 2008, sobre os poetas e suas poesias ali publicadas e sobre literatura e poesia em geral.
+Dito isso, acho que as principais quest&otilde;es levantadas sobre o livro &ldquo;Recife no dia-a-dia dos Seus Poetas&rdquo; est&atilde;o devidamente esclarecidas para a sociedade. O que n&atilde;o impede que qualquer outra d&uacute;vida possa ser respondida atrav&eacute;s do requerimento de pedido de informa&ccedil;&atilde;o para a Prefeitura ou atrav&eacute;s dos &oacute;rg&atilde;os de controle externo do Poder P&uacute;blico. E isso n&atilde;o pode ser confundido com comprova&ccedil;&atilde;o de pr&aacute;tica de ilegalidade ou imoralidade do agente p&uacute;blico. A busca de informa&ccedil;&otilde;es e o controle externo s&atilde;o ganhos da democracia justamente para evitar as pr&aacute;ticas das ditaduras, que ao arrepio do Estado Democr&aacute;tico de Direito, condenam e punem sem provas e sem julgamento.
+
+&nbsp; 

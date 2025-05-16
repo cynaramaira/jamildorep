@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Aliado de Armando, Hélio dos Terrenos vence em Belo Jardim"
+date: 2017-07-02
+tags: Aldo Rebelo,Armando Monteiro,Francisco Hélio,Jardim Atlântico
+author: None
+---
+Nove meses após ser derrotado pelo então prefeito João Mendonça (PSB), Hélio dos Terrenos, do PTB do senador Armando Monteiro Neto, conseguiu vencer a eleição suplementar em Belo Jardim, no Agreste pernambucano, neste domingo (2). Vice do A vitória do socialista cuja cassação provocou a realização do novo pleito, Luiz Carlos, também do PSB, ficou em segundo. A vitória petebista contribui com planos de Armando para as eleições de 2018, quando pretende disputar o Governo do Estado novamente contra Paulo Câmara (PSB) e, para isso, precisa de aliados nos municípios. O parlamentar também conseguiu levar a eleição suplementar de Ipojuca, em abril.
+O petebista ficou com 46,05%, o que equivale a 18.984 votos. Em outubro, ele conseguiu 14.015, contra 16.077 de João Mendonça. Luiz Carlos estava com 33,47%, ou seja, 13.600. Gilvandro Estrela (PV), o prefeito interino e presidente da Câmara dos Vereadores, recebeu 20,48%, 8.442.
+
+Em entrevista ao Blog de Jamildo antes da eleição, Hélio dos Terrenos colocou como proposta a criação de um grupo de apoio no WhatsApp para que os moradores possam pedir ajuda aos guardas municipais em caso de situação de violência, um dos maiores problemas do município . De acordo com a Secretaria de Defesa Social (SDS), foram registrados 27 homicídios de janeiro a maio deste ano, enquanto em todo o ano passado houve 39.
+ENTREVISTA
+ » Aliado de Armando, candidato em Belo Jardim quer atrair empresas para o município
+Além disso, com Armando como intermediador, quer chegar aos ministros Bruno Araújo (Cidades) e Mendonça Filho (Educação) para pedir recursos para o município e, através de infraestrutura, tentar atrair empresas. "Belo Jardim está afundada, parou no tempo. Não tem nenhum desenvolvimento", disse o então candidato. Depois que o PSDB e o DEM, partidos dos dois ministros, foram expulsos da aliança com o PSB por terem candidatos contra Geraldo Julio (PSB) no Recife no ano passado, o senador e os dois ministros têm se reunido e não escondem os planos para 2018.
+Nova eleição
+Belo Jardim teve duas campanhas conturbadas. Tanto em 2016 quanto este ano houve registros de assassinatos - no último dia 22, um homem foi morto a facadas em uma caminhada do prefeito interino, Gilvandro Estrela (PV) - que ficou em terceiro. Por causa do clima tenso, o Tribunal Regional Eleitoral (TRE-PE) solicitou um reforço na operação ao Governo do Estado e à Polícia Federal, contando com cerca de 200 policiais ao todo.
+O dia de votação foi considerado tranquilo pelo tribunal e apenas uma pessoa foi detida com material de propaganda irregular. O homem foi flagrado pela Polícia Civil distribuindo camisas padronizadas da propaganda de Luiz Carlos no distrito de Serra dos Ventos. Ele foi levado à delegacia local para ser autuado e o material de campanha foi apreendido.
+A nova eleição foi marcada em maio, quando João Mendonça foi cassado por decisão unânime do pleno do Tribunal Superior Eleitoral (TSE). O socialista foi condenado por improbidade administrativa com dano ao erário e enriquecimento ilícito e concorreu sub judice, ou seja, com o processo contra ele ainda tramitando na Justiça Eleitoral. O então prefeito assumiu o segundo mandato por uma decisão liminar o presidente da Corte, Gilmar Mendes, e ficou no cargo por quase cinco meses, incluindo as férias que tirou em fevereiro.

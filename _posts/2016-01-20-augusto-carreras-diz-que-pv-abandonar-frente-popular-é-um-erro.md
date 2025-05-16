@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Augusto Carreras diz que PV abandonar Frente Popular é um erro"
+date: 2016-01-20
+tags: Augusto Aras,Felipe Carreras,Frente Popular
+author: None
+---
+O vereador do Recife Augusto Carreras, do PV, com diplomacia, protestou contra o lançamento de uma candidatura própria do partido, abandonando a Frente Popular e a aliança com Geraldo Julio, do PSB.
+“Na condição de vereador mais votado pelo PV no Recife, torno pública minha posição contrária à decisão da Executiva Municipal do partido, que aprovou, na manhã desta quarta-feira (20), indicativo de candidatura própria à Prefeitura do Recife. Registrei essa posição durante a reunião da Executiva”, disse.
+Nesta quarta-feira, o PV anunciou que terá candidatura própria. O nome escolhido foi Carlos Augusto, presidente do partido.
+Carreras, na contraofensiva, alegou motivos históricos para não concordar com a nova postura do comando do partido.
+“O Partido Verde faz parte, desde 2010 - durante a montagem do segundo governo Eduardo Campos -, de uma ampla aliança que tem conduzido o Estado e o Recife no caminho do desenvolvimento, com inclusão social e respeito ao Meio Ambiente. Na ocasião, colaboramos com a criação da Secretaria Estadual de Meio Ambiente e Sustentabilidade a assumimos a Agência Estadual de Meio Ambiente”, afirma.
+“Esta aliança seguiu nas eleições seguintes. Em 2012, o PV integrou a Frente Popular do Recife que elegeu o prefeito Geraldo Julio. Em 2014, o mesmo aconteceu com o governador Paulo Câmara, quando o PV indicou o suplente de senador da chapa majoritária, com o nosso presidente estadual Carlos Augusto Costa”, acrescenta.
+O vereador Augusto Carreras disse ainda entender que esta é uma aliança que está longe de se exaurir e que ainda tem muito a render.
+“As gestões, tanto do prefeito Geraldo Julio como do governador Paulo Câmara, se mostram exitosas, especialmente no que se refere a enfrentar com coragem e competência a grave crise econômica abate nosso país e atinge diretamente a vida das pessoas. Há três anos somos coerentes com essa avaliação na Câmara Municipal do Recife, onde os dois vereadores do Partido Verde fazem parte da bancada de governo e acompanham de perto as ações do Executivo Municipal. Não há, portanto, em minha visão, qualquer motivo que justifique a dissolução de uma aliança que vem se mostrando duradoura e produtiva, tendo em vista apenas pretensões alheias à visão de conjunto da Frente Popular”, afirmou.

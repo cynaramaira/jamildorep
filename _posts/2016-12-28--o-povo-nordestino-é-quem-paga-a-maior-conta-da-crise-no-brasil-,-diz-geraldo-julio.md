@@ -1,0 +1,15 @@
+---
+layout: post
+title: ""O povo nordestino é quem paga a maior conta da crise no Brasil", diz Geraldo Julio"
+date: 2016-12-28
+tags: brasil,Copagaz,crise sanitária,Geraldo Julio,Maioria
+author: None
+---
+Em entrevista à Rádio Jornal, na manhã desta quarta-feira (28), o prefeito do Recife, Geraldo Julio (PSB), disse que o povo nordestino é quem paga a maior conta da crise econômica do Brasil.
+Geraldo afirmou que parte dos estados ricos do País não fizeram "dever de casa" e agora pagam por isso. "A gente está vendo hoje os estados do Nordeste sendo os menos endividados do País e fazendo o dever de casa para numa crise tão grande, por que é uma hecatombe o que aconteceu na economia brasileira, não é uma crise trivial, buscar o equilíbrio das contas. E os estados ricos recebendo um socorro de quase 50 bilhões de reais, por que parte dos estados ricos não fez lá trás o dever de casa com suas contas", disse.
+Para o prefeito, são os estados do Nordeste que acabam sofrendo com essa situação. "O Nordeste mais uma vez mostrando que está pagando um preço muito alto. O povo nordestino, que concentra grande parte da pobreza brasileira, está pagando a conta mais alta da crise com desemprego, com a falta de crédito, com problema até na área de alimentação, porque a miséria realmente é muito grande, e com migração de pessoas para grandes centros urbanos, mas fazendo a luta", disse.
+ASSISTA A ENTREVISTA NA ÍNTEGRA:
+
+Ele criticou a concentração de recursos pela União. Para o gestor municipal, os municípios precisam de maior independência financeira em momento de crise. "Vimos ontem o resultado das contas públicas déficit de R$ 39 bilhões da União, já os estados e municípios geraram superávit de R$ 800 milhões. Então está claro, por esse número, onde está o déficit das contas públicas brasileiras. Precisa resolver essa coisa de concentração de recurso da União e ela precisa resolver a questão das contas dela e não de todo o setor público por que tem muita gente fazendo grande esforço para gerar superávit e não é de hoje", ressaltou.
+Geraldo admitiu que o momento é "de muita dificuldade" e reclama sobre a demora para a chegada dos recursos da repatriação. "Com relação aos recursos da repatriação, eles deveriam chegar em novembro, não só a parte do imposto, mas as das multas deveria ter sido repartido entre estados e municípios, um compartilhamento de receitas", disse.
+Para o prefeito a situação é de desespero por parte dos prefeitos. "O aperto que os municípios estão sofrendo nos últimos 25 anos, com a concentração de recursos em Brasília, é muito grande por que aumentam as atribuições. Você ganha responsabilidades na saúde e na educação, pois em momento de crise a gente tem migração de pessoas da rede privada de ensino para a rede pública e brasileiros perdendo o plano de saúde, porque perderam o emprego e migraram para o SUS. Isso pressiona ainda mais os serviços públicos e os recursos estão cada vez menores para os municípios. O Brasil precisa discutir isso, os municípios precisam de mais autonomia financeira para a gente começar a combater a desigualdade com mais eficiência nesse País", concluiu.

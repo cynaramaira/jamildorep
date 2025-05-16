@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Assassinato de Marielle Franco completa 4 anos sem respostas"
+date: 2022-03-14
+tags: violência, Rio de Janeiro
+author: JAMILDO MELO
+---
+Veja a nota oficial da Juntas 
+A data de 14 de mar&ccedil;o passou a significar mais um dia de luta e resist&ecirc;ncia para todas e todos que lutam pela garantia dos direitos humanos, especialmente pelos direitos das popula&ccedil;&otilde;es mais vulnerabilizadas. Em 14 de mar&ccedil;o de 2018, foi assassinada a vereadora Marielle Franco e o motorista dela, Anderson Gomes, na regi&atilde;o central da cidade do Rio de Janeiro.
+Essa data, que completa 4 anos neste 14 de mar&ccedil;o de 2022, traz muitos sentimentos pelas perguntas que ainda n&atilde;o foram respondidas e que, quando respondidas, podem ajudar a solucionar esse crime que matou Marielle e Anderson e que tamb&eacute;m atinge todas as pessoas que lutam pelos direitos humanos, que denunciam as viola&ccedil;&otilde;es dos direitos das popula&ccedil;&otilde;es perif&eacute;ricas e as diversas outras viola&ccedil;&otilde;es de direitos realizadas pelo estado.
+Precisamos, como sociedade, exigir uma resposta firme das autoridades que acompanham as investiga&ccedil;&otilde;es. Esse crime n&atilde;o pode passar sem que os culpados sejam devidamente punidos e sem que as respostas sejam dadas &agrave; sociedade. Marielle era uma parlamentar em pleno exerc&iacute;cio do mandato, uma mulher democraticamente eleita. A aus&ecirc;ncia de respostas, neste caso, tem um impacto na vida de outras defensoras e defensores dos direitos humanos no Brasil, um pa&iacute;s j&aacute; t&atilde;o marcado por viola&ccedil;&otilde;es de direitos.
+As Juntas, eleitas no mesmo ano do assassinato de Marielle, s&atilde;o um dos v&aacute;rios exemplos de mandatos-semente eleitos em 2018 &ndash; uma reverbera&ccedil;&atilde;o da indigna&ccedil;&atilde;o da sociedade com o brutal crime e do clamor por mais representatividade na pol&iacute;tica.
+Em seu primeiro ano na Assembleia Legislativa, a mandata coletiva das Juntas (PSOL), marcou o dia 14 de mar&ccedil;o como o Dia Estadual das Defensoras e Defensores dos Direitos Humanos. Uma forma de homenagear Marielle, que deixou um imenso legado pelo relevante trabalho realizado tanto institucionalmente, na coordena&ccedil;&atilde;o da Comiss&atilde;o de Defesa dos Direitos Humanos e Cidadania da Assembleia Legislativa do Rio de Janeiro (Alerj), como na milit&acirc;ncia popular na defesa da popula&ccedil;&atilde;o perif&eacute;rica, das mulheres e da popula&ccedil;&atilde;o LGBTQIA+.
+Toda a trajet&oacute;ria de vida e luta de Marielle nos inspira a seguir na luta pela defesa dos direitos humanos.

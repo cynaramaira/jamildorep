@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Para Mozart Sales, Eduardo Campos cometeu "equívoco eleitoral" ao criticar Mais Médicos"
+date: 2014-05-07
+tags: Colégio Salesiano,eduardo campos,Mais Médicos,Mozart Neves,Pará
+author: None
+---
+ Alexandre Padilha, ex- Ministro da Saúde, e Mozart Sales. Foto: reprodução da internet.
+As críticas do ex-governador Eduardo Campos (PSB) ao Programa Mais Médicos, do governo federal, foram classificadas pelo idealizador do programa, Mozart Sales, como um sinal de "desconhecimento" e "equívoco eleitoral". Segundo Mozart, o Mais Médicos, considerado uma das vitrines eleitoras da gestão de Dilma Rousseff (PT), é um programa já vitorioso pelo que representa para o País.
+“Basta analisar os números registrados em pouco mais de oito meses desde a implantação do programa, algo que, acredito, tenha  faltado ao ex-governador”, pontuou Mozart Sales, explicando que o Mais Médicos, atualmente, atende mais de 45 milhões de brasileiros, com cerca de 14 mil novos profissionais colocados nos postos de saúde em aproximadamente 3,5 mil municípios brasileiros. Sobretudo nas áreas rurais e periferias das grandes cidades, onde a atenção básica à saúde ainda era muito deficitária.
+Citando um exemplo, Mozart lembrou que a Austrália tentou um programa de provimento e levou dez anos para colocar quatro mil médicos. "Se posicionar contra o Mais Médicos é desconhecer a opinião da população do interior de Pernambuco, por exemplo, que somente nesta primeira fase do programa foi beneficiada com 645 novos médicos, atuando hoje em 143 cidades do Estado", reagiu, acrescentando que, em muitos casos, pela primeira vez há um médico residindo na cidade onde trabalha.
+Para Mozart Sales, os ataques de Eduardo Campos não passam de um grande "equívoco eleitoral". Segundo ele, ao criticar o programa, diante de uma plateia conservadora, formada basicamente por professores e médicos da Universidade de São Paulo, o presidenciável socialista estaria tentando fazer “média”, uma vez que as únicas críticas ao Mais Médicos têm vindo exatamente de um segmento dos profissionais que discordam dos programas de provimento, inclusive do Provab – que coloca médicos brasileiros residentes para trabalhar nas unidades de saúde pública.
+“Felizmente não é assim que pensa a população. As pesquisas que realizamos até agora mostram índices entre 76% e 84% de satisfação dos usuários da saúde pública com o Mais Médicos. O ex-governador Eduardo Campos deveria olhar para esses dados com mais atenção”, concluiu Mozart Sales.

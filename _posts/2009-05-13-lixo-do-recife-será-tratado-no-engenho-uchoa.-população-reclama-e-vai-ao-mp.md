@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Lixo do Recife será tratado no Engenho Uchoa. População reclama e vai ao MP"
+date: 2009-05-13
+tags: lixo,população,Recife,Serasa
+author: None
+---
+
+A C&acirc;mara do Recife recebeu nesta quarta-feira (13) a diretoria da Concession&aacute;ria Recife Energia, que vai cuidar da destina&ccedil;&atilde;o e tratamento do lixo produzido na capital pelos pr&oacute;ximos vinte anos. O grupo atendeu o convite de v&aacute;rios vereadores que participaram na semana passada de uma audi&ecirc;ncia p&uacute;blica sobre a situa&ccedil;&atilde;o do lixo no Recife, e que acharam necess&aacute;rio se aprofundar mais no assunto, entre eles o presidente da Comiss&atilde;o de Meio Ambiente da C&acirc;mara, Daniel Coelho (PV).
+&ldquo;Os res&iacute;duos s&oacute;lidos urbanos possuem elevado valor energ&eacute;tico e, antes de serem um mal para as pr&oacute;ximas gera&ccedil;&otilde;es, v&atilde;o poder contribuir para a diminui&ccedil;&atilde;o da escassez de energia por meio de sua transforma&ccedil;&atilde;o&rdquo;, considerou o diretor-presidente da Concession&aacute;ria Recife Energia, Ronaldo Gaspar.
+No centro de triagem a ser constru&iacute;do no Engenho Uch&ocirc;a, o lixo recicl&aacute;vel ser&aacute; separado, e o restante seguir&aacute; para a unidade de cogera&ccedil;&atilde;o de energia, no Cabo de Santo Agostinho, o que vai permitir o desafogamento do Lix&atilde;o da Muribeca, onde hoje s&atilde;o depositados os res&iacute;duos s&oacute;lidos da capital.
+Depois de ouvir toda a explana&ccedil;&atilde;o do diretor-presidente da Concession&aacute;ria, o vereador Carlos Gueiros (PTB) questionou o grupo sobre a mudan&ccedil;a de endere&ccedil;o para a implanta&ccedil;&atilde;o do centro de triagem, que em princ&iacute;pio seria na regi&atilde;o do Curado. A mudan&ccedil;a para o Engenho Uch&ocirc;a foi solicitada com o argumento de que o custo com transporte seria muito elevado. &ldquo;Do ponto de vista ambiental, o Engenho, repleto de mananciais, &eacute; completamente inapropriado. Al&eacute;m disso, a &aacute;rea j&aacute; est&aacute; urbanamente definida&rdquo;, contestou Gueiros. Contrariados, os moradores da localidade acabaram entrando com um processo no Minist&eacute;rio P&uacute;blico de Pernambuco, que continua em tramita&ccedil;&atilde;o.
+O vereador Daniel Coelho tamb&eacute;m se pronunciou sobre a quest&atilde;o, e perguntou se haveria algum preju&iacute;zo ambiental ao Engenho Uch&ocirc;a caso o centro de triagem seja instalado por l&aacute;. Apesar de o estudo de impactos ambientais ainda estar em andamento, Ronaldo Gaspar garantiu que os mananciais da &aacute;rea n&atilde;o ser&atilde;o afetados em decorr&ecirc;ncia da atividade. &ldquo;E quanto ao cheiro&#63;&rdquo;, perguntou Coelho. &ldquo;Conseguiremos descarregar sete caminh&otilde;es ao mesmo tempo. Isso vai impedir transtornos como fila de caminh&otilde;es e, consequentemente, mal cheiro intenso&rdquo;, respondeu.
+Jurandir Liberal (PT), Josenildo Sinesio (PT) e Vicente Andr&eacute; Gomes (PCdoB) tamb&eacute;m fizeram perguntas e esclareceram, cada um, as suas d&uacute;vidas.
+&nbsp; 

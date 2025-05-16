@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Aline Mariano diz que Silvio Costa criticou Daniel Coelho para atender a interesses"
+date: 2012-07-13
+tags: Aline Riscado,Daniel Coelho,Silvio Costa
+author: None
+---
+A vereadora Aline Mariano (PSDB) respondeu &agrave; afirma&ccedil;&atilde;o feita pelo deputado federal S&iacute;lvio Costa (PTB) - aliado do candidato socialista &agrave; Prefeitura do Recife Geraldo J&uacute;lio - de que o prefeitur&aacute;vel dos tucanos, Daniel Coelho, estaria disputado o pleito para ter o nome lembrado. &quot;A candidatura de Daniel representa a inova&ccedil;&atilde;o de verdade na atual  conjuntura pol&iacute;tica do Recife. Ser lembrado &eacute; coisa que Daniel j&aacute; &eacute;!&quot;, asseverou a parlamentar em nota enviada &agrave; imprensa.
+&quot;O nome de Daniel foi escolhido sem conchaves nem troca de favores. S&iacute;lvio Costa &eacute; inteligente e n&atilde;o jogaria pedras numa &aacute;rvore sem frutos.  Certamente, o deputado est&aacute; atendendo os interesses de algu&eacute;m para fazer  cr&iacute;ticas &agrave; nossa postula&ccedil;&atilde;o&quot;.
+Para analista pol&iacute;tico, Daniel Coelho est&aacute; fora do segundo turno. S&iacute;lvio Costa fala em busca de recall
+Veja a resposta completa:
+O deputado S&iacute;lvio Costa foi infeliz quando falou, em entrevista &agrave; R&aacute;dio CBN, que o nosso candidato, Daniel Coelho, est&aacute; em busca de recall nessas elei&ccedil;&otilde;es. A candidatura de Daniel representa a inova&ccedil;&atilde;o de verdade na atual conjuntura pol&iacute;tica do Recife. Ser lembrado &eacute; coisa que Daniel j&aacute; &eacute;! O Recifense conhece bem quem foi eleito vereador da cidade por duas vezes consecutivas e agora exerce o mandato de deputado estadual com uma vota&ccedil;&atilde;o expressiva. O nome de Daniel foi escolhido sem conchaves nem troca de favores. Estamos atendendo o desejo de uma grande parcela da popula&ccedil;&atilde;o que n&atilde;o aceita mais os desmandos das correntes pol&iacute;ticas que fazem parte do mesmo projeto. Esse projeto deu errado e agora todos est&atilde;o se apresentando de forma separada. Nosso padrinho &eacute; o povo do Recife que anda confiando e acreditando cada vez mais nas nossas propostas. Estamos crescendo e vamos crescer muito mais nas pesquisas. S&iacute;lvio Costa &eacute; inteligente e n&atilde;o jogaria pedras numa &aacute;rvore sem frutos. Certamente, o deputado est&aacute; atendendo os interesses de algu&eacute;m para fazer cr&iacute;ticas &agrave; nossa postula&ccedil;&atilde;o.

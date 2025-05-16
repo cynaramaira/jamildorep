@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Executiva do PT deve divulgar à tarde posição sobre economia e previdência"
+date: 2016-01-26
+tags: Economia,Oposição
+author: None
+---
+ Foto: Divulgação
+Da ABr
+Reunidos há mais de duas horas, em Brasília, dirigentes do PT começaram a discutir há pouco o documento final da Executiva Nacional. No texto, que será divulgado ao final do encontro, o partido firmará posição sobre temas como a atual situação econômica do país, reforma previdenciária e estratégias para as eleições municipais, que ocorrem em outubro. Segundo assessores que acompanham as discussões a portas fechadas, os petistas optaram por não fazer o intervalo para o almoço para tentar acelerar as discussões. A expectativa é que a resolução seja divulgada por volta das 15h30.
+As mudanças nas regras para a aposentadoria podem ser um dos assuntos que vão estender o encontro para além do previsto. O tema tem dividido posições dentro da legenda. O governo defende uma revisão da idade mínima e a estipulação de um tempo de transição para as novas regras, conforme o texto sancionado em novembro do ano passado. Nem todo o partido está de acordo com a proposta e a expectativa é que sejam apresentados pontos de sugestão ao novo texto.
+Em novembro, a presidenta Dilma Rousseff sancionou a chamada regra 85/95 progressiva, que leva em consideração a soma da idade e o tempo de contribuição do segurado, para calcular o benefício sem aplicação do fator previdenciário. A condição para que a regra defendida pelo Congresso passe a valer foi o limite de tempo. A partir de 31 de dezembro de 2018, a fórmula terá acréscimo de um ponto a cada dois anos até 2026, quando a soma para as mulheres passará a ser de 90 pontos e para os homens, de 100 pontos. O tempo mínimo de contribuição permanece de 30 anos para as mulheres e de 35 anos para os homens.
+A posição do PT sobre temas como este será anunciada pelo próprio presidente do partido, Rui Falcão, no final do encontro. O líder do governo na Câmara, José Guimarães (PT-CE), também marcou uma entrevista coletiva para as 16h para explicar os pontos da nota de conjuntura. Guimarães pode ainda antecipar informações sobre a sucessão da liderança do partido na Casa, hoje ocupada pelo deputado Sibá Machado (PT-AC). Este ano, todas as legendas na Câmara terão novos líderes nas articulações dentro da Casa.
+Na última reunião da Executiva, ocorrida em dezembro, na capital paulista, o comando do partido decidiu suspender por 60 dias o senador Delcídio do Amaral (PT-MS), preso pela Polícia Federal por “atrapalhar” as investigações da Operação Lava Jato.

@@ -1,0 +1,12 @@
+---
+layout: post
+title: "CPI do Apagão Aéreo propõe auditoria internacional no sistema de controle de tráfego aéreo brasileiro"
+date: 2007-07-09
+tags: acidente aéreo,apagão,Auditoria,brasileiros,Internacional,sistema prisional,tráfego
+author: None
+---
+Visando a esclarecer as d&uacute;vidas em rela&ccedil;&atilde;o &agrave; exist&ecirc;ncia ou n&atilde;o de defici&ecirc;ncias t&eacute;cnicas e de equipamento surgidas dos depoimentos colhidos de autoridades da Aeron&aacute;utica, defensoras do sistema, e controladores de v&ocirc;o, a CPI do Apag&atilde;o A&eacute;reo dever&aacute; solicitar uma auditoria internacional no sistema de controle do tr&aacute;fego a&eacute;reo brasileiro.
+De acordo com o relator da comiss&atilde;o, Dem&oacute;stenes Torres (DEM-GO), j&aacute; foi encaminhado pedido ao presidente da Rep&uacute;blica, Luiz In&aacute;cio Lula da Silva, ao comandante da Aeron&aacute;utica, tenente-brigadeiro-do-ar, Juniti Saito, e ao ministro da Defesa, Waldir Pires solicitando auditoria urgente no sistema de controle do espa&ccedil;o a&eacute;reo brasileiro pela Organiza&ccedil;&atilde;o Internacional de Avia&ccedil;&atilde;o Civil (OAIC), reconhecida pelo Minist&eacute;rio da Defesa para se pronunciar sobre o tema.
+- A realiza&ccedil;&atilde;o de auditoria &eacute; razo&aacute;vel porque a maioria dos t&eacute;cnicos ouvidos na CPI s&atilde;o ligados &agrave; Aeron&aacute;utica, que tem o monop&oacute;lio do sistema. Por isso, parece haver uma tend&ecirc;ncia a dizer que o sistema &eacute; bom. Do outro lado, os controladores de v&ocirc;o e a OAIC v&ecirc;m dizendo que o sistema n&atilde;o presta. &Eacute; uma esp&eacute;cie de Fla-Flu do qual temos que fugir - disse Dem&oacute;stenes, ap&oacute;s a reuni&atilde;o de apresenta&ccedil;&atilde;o do relat&oacute;rio. 
+Em seu segundo relat&oacute;rio parcial, apresentado na quarta-feira (4), Dem&oacute;stenes informa a exist&ecirc;ncia de v&aacute;rios Relat&oacute;rios de Investiga&ccedil;&atilde;o do Controle do Espa&ccedil;o A&eacute;reo (Ricea) evidenciando que o sistema brasileiro de controle de v&ocirc;o n&atilde;o &eacute; t&atilde;o seguro e eficiente como asseguram as autoridades. 
+Entre as situa&ccedil;&otilde;es de risco apontadas nos Riceas est&atilde;o o cruzamento de aeronaves a dist&acirc;ncia menor do que a permitida; decolagem de aeronave sem transponder oucom transponder desligado; interfer&ecirc;ncias de freq&uuml;&ecirc;ncia de r&aacute;dio FM e de telefone celular; e multiplica&ccedil;&atilde;o de alvos ou de pistas na tela de radar.  

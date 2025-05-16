@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Após chamar empresa de 'temerária', gestão João Campos recua e contrata agência de publicidade para controle de eventos no Carnaval"
+date: 2024-02-01
+tags: jamildo, licitações públicas
+author: Jamildo Melo
+---
+A Funda&ccedil;&atilde;o de Cultura Cidade do Recife (FCCR) concluiu na &uacute;ltima ter&ccedil;a-feira (30) a licita&ccedil;&atilde;o para contrata&ccedil;&atilde;o de m&atilde;o de obra que atuar&aacute; em eventos festivos, a exemplo do Carnaval 2024, com intuito de fazer o controle de eventos e a preserva&ccedil;&atilde;o do patrim&ocirc;nio p&uacute;blico da cidade durante os dias de festa.
+S&atilde;o 14,3 mil di&aacute;rias de supervisores e colaboradores diurnos e noturnos para 12 meses.
+A licita&ccedil;&atilde;o estava inconclusa desde novembro do ano passado e era um impasse da gest&atilde;o municipal para a organiza&ccedil;&atilde;o da festa.
+A decis&atilde;o final, com a homologa&ccedil;&atilde;o da empresa Duporto Ag&ecirc;ncia de Publicidade Ltda. veio ap&oacute;s uma mudan&ccedil;a de entendimento, j&aacute; que em 12 de dezembro a FCCR tinha desclassificado a empresa por consider&aacute;-la inapta, ressaltando inclusive os riscos da licitante ser a escolhida para fazer o Carnaval do Recife.
+No despacho da Ger&ecirc;ncia de Eventos da Funda&ccedil;&atilde;o, em dezembro, a gest&atilde;o municipal desclassificou a empresa agora vencedora por ser &ldquo;temer&aacute;ria a contrata&ccedil;&atilde;o de uma empresa que n&atilde;o conseguiu apresentar uma simples planilha de composi&ccedil;&atilde;o de custo, imagina cumprir todas as exig&ecirc;ncias contratuais citadas&rdquo;.
+O documento tamb&eacute;m cita que a &ldquo;an&aacute;lise da capacidade t&eacute;cnica da empresa apresenta diversas falhas insan&aacute;veis&rdquo; e que &ldquo;embora a empresa tenha apresentado atestado do S&atilde;o Jo&atilde;o de Caruaru, fica d&uacute;vida quanto &agrave; capacidade para operar o Carnaval do Recife do tamanho que ele &eacute;&rdquo;.
+Ap&oacute;s esse parecer, a empresa Duporto Ag&ecirc;ncia de Publicidade recorreu em 29 de dezembro e o presidente da Funda&ccedil;&atilde;o, Marcelo Canuto, reverteu a decis&atilde;o quase um m&ecirc;s depois, em 24 de janeiro.
+O recurso administrativo assinado pelo dirigente m&aacute;ximo da autarquia municipal recolocou a ag&ecirc;ncia de publicidade na licita&ccedil;&atilde;o, solicitando alguns esclarecimentos a respeito da proposta de pre&ccedil;os.
+Em 30 de janeiro, a homologa&ccedil;&atilde;o do processo foi assinada e publicada no dia seguinte no Di&aacute;rio Oficial do Munic&iacute;pio, em edi&ccedil;&atilde;o extra. O valor da contrata&ccedil;&atilde;o ficou em R$ 3,45 milh&otilde;es.
+A empresa foi criada em 2017 e tem sede em Ipojuca. Na sua lista de contratos, segundo o Tome Conta, do TCE, existem presta&ccedil;&atilde;o de servi&ccedil;os para o R&eacute;veillon de Jaboat&atilde;o dos Guararapes e fornecimento de buf&ecirc; para a Assembleia Legislativa do Estado (Alepe), j&aacute; na gest&atilde;o &Aacute;lvaro Porto.
+A licita&ccedil;&atilde;o em quest&atilde;o foi alvo de questionamentos do Tribunal de Contas do Estado de Pernambuco (TCE-PE), conforme informado pelo Blog.
+Os problemas listados inclu&iacute;am &ldquo;publica&ccedil;&atilde;o intempestiva do edital&rdquo;, &ldquo;aus&ecirc;ncia de publica&ccedil;&atilde;o do termo de refer&ecirc;ncia no sistema Sagres do TCE-PE&rdquo;, &ldquo;aus&ecirc;ncia de necess&aacute;rio estudo t&eacute;cnico preliminar&rdquo;, &ldquo;aus&ecirc;ncia de indica&ccedil;&atilde;o de &iacute;ndices cont&aacute;beis para comprova&ccedil;&atilde;o da qualifica&ccedil;&atilde;o econ&ocirc;mico-financeira&rdquo; e &ldquo;aus&ecirc;ncia de indica&ccedil;&atilde;o e segrega&ccedil;&atilde;o das atribui&ccedil;&otilde;es do gestor e do fiscal da ARP/contrato&rdquo;.
+A respeito de n&atilde;o existir estudo t&eacute;cnico, a Corte de contas chegou a citar, por exemplo, que a Guarda Municipal do Recife desde 1893 tendo como fun&ccedil;&atilde;o justamente a preserva&ccedil;&atilde;o do patrim&ocirc;nio p&uacute;blico da cidade.
+De acordo com o termo de refer&ecirc;ncia da disputa, a Prefeitura do Recife busca contratar &ldquo;servi&ccedil;o essencial &agrave; administra&ccedil;&atilde;o em raz&atilde;o da necessidade de preserva&ccedil;&atilde;o dos bens p&uacute;blicos e privados alocados nos eventos de carnaval, ciclo junino, ciclo natalino, entre outros&rdquo;.
+"O TCE s&oacute; fiscaliza o governo do Estado", resmungou nesta quinta um aliado tucano.

@@ -1,0 +1,29 @@
+---
+layout: post
+title: "STJ abre inquérito e vai apurar se Lava Jato investigou ministros ilegalmente. Associação de procuradores critica"
+date: 2021-02-20
+tags: crítica,Lava Jato,ministros
+author: None
+---
+O presidente do Superior Tribunal de Justiça — STJ, Humberto Martins, instaurou, nesta sexta-feira (19), um inquérito, de ofício, para investigar intimidação e tentativas de violação da independência de ministros da Corte.
+O inquérito é motivado pelo conteúdo revelado nas conversas hackeadas entre procuradores da Operação Lava Jato no aplicativo Telegram.
+A abertura do inquérito acontece depois de a CNN Brasil revelar que um novo pacote de mensagens apreendidas no âmbito da Operação Spoofing mostrava a intenção da força-tarefa de Curitiba de investigar ministros do tribunal.
+ Foto: Reprodução
+No ofício, o ministro diz que a Corte vai investigar “suposta tentativa de intimidação e investigação ilegal” de ministros do tribunal, “bem como de violação da independência jurisdicional dos magistrados – hipóteses levantadas após a divulgação de mensagens trocadas entre procuradores ligados à Operação Lava Jato e apreendidas no âmbito da Operação Spoofing”. O inquérito será conduzido por Martins e tramitará em sigilo.
+No dia 5, o presidente do STJ já havia solicitado à Procuradoria-Geral da República (PGR) a apuração na esfera criminal, e ao Conselho Nacional do Ministério Público (CNMP) a apuração no nível administrativo, da conduta dos procuradores.
+Procuradores reagem
+Após a decisão do presidente do STJ, a Associação Nacional dos Procuradores da República (ANPR) reagiu. A entidade apontou que a abertura do inquérito feita de ofício por Humberto Martins ocorre "em total desrespeito à Constituição e às leis brasileiras".
+"A iniciativa afronta a titularidade de apuração do Ministério Público e solapa, também, a própria garantia de imparcialidade do Poder Judiciário. Para tanto, vigora no país e nas demais democracias modernas o sistema acusatório, conquista civilizatória que separa os atores do sistema judicial que possuem as missões de investigar-acusar e julgar", afirma trecho da nota da ANPR.
+A associação dos procuradores da República também disse que a apuração seria se competência do procurador-geral da República, Augusto Aras.
+"Se a intenção é apurar a atuação de procuradores da República, a investigação desrespeita, ainda, frontalmente, a Lei Complementar 75/1993 e usurpa função do procurador-geral da República. Segundo o disposto no artigo 18 da referida lei, é prerrogativa do PGR conduzir a apuração de práticas de infração penal por parte de membros do Ministério Público da União", alega.
+Por fim, a ANPR ainda classifica as mensagens obtidas por meio de hackers como provas ilícitas por causa da origem delas.
+"Também importa destacar que os elementos de prova utilizados como base para a abertura da investigação em tela se constituem em provas manifestamente ilícitas, obtidas por meios criminosos, por meio de hackers já identificados e processados, as quais se encontram desprovidas, ainda, de perícia que ateste a sua integridade-autenticidade e da indispensável cadeia de custódia", defende a Associação Nacional dos Procuradores da República.
+Veja a íntegra da nota
+"A Associação Nacional dos Procuradores da República (ANPR) recebeu com incredulidade a notícia de abertura, no dia de hoje, pelo presidente do Superior Tribunal de Justiça (STJ), ministro Humberto Martins, de inquérito, em total desrespeito à Constituição e às leis brasileiras, para apurar fatos criminosos que supostamente teriam sido praticados em detrimento de ministros daquela Corte.
+A iniciativa afronta a titularidade de apuração do Ministério Público e solapa, também, a própria garantia de imparcialidade do Poder Judiciário. Para tanto, vigora no país e nas demais democracias modernas o sistema acusatório, conquista civilizatória que separa os atores do sistema judicial que possuem as missões de investigar-acusar e julgar.
+Se a intenção é apurar a atuação de procuradores da República, a investigação desrespeita, ainda, frontalmente, a Lei Complementar 75/1993 e usurpa função do procurador-geral da República. Segundo o disposto no artigo 18 da referida lei, é prerrogativa do PGR conduzir a apuração de práticas de infração penal por parte de membros do Ministério Público da União.
+Nesse sentido, a própria autoridade que instaurou a apuração no âmbito do STJ reconhece que já encaminhou ao procurador-geral da República e ao Conselho Nacional do Ministério Público representação para a investigação das referidas irregularidades.
+Também importa destacar que os elementos de prova utilizados como base para a abertura da investigação em tela se constituem em provas manifestamente ilícitas, obtidas por meios criminosos, por meio de hackers já identificados e processados, as quais se encontram desprovidas, ainda, de perícia que ateste a sua integridade-autenticidade e da indispensável cadeia de custódia.
+Ao adotar o referido procedimento de investigação, acaba-se por buscar legitimar um sistema jurídico de exceção no ordenamento jurídico brasileiro.
+Os limites para a atuação do Poder Judiciário são essenciais para a harmonia entre os Poderes e a estabilidade das instituições. Desrespeitar esses limites significa contribuir para o enfraquecimento do Estado Democrático de Direito, dos órgãos de controle e da própria Justiça brasileira.
+O Ministério Público, conforme disposição constitucional, é instituição permanente e essencial à função jurisdicional do Estado. Vulnerar as garantias dos seus membros aniquila a Constituição e, por consequência, deixa sem proteção a própria sociedade brasileira."

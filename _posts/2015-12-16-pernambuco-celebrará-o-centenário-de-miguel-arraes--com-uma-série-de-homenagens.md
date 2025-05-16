@@ -1,0 +1,16 @@
+---
+layout: post
+title: "Pernambuco celebrará o centenário de Miguel Arraes  com uma série de homenagens em 2016"
+date: 2015-12-16
+tags: homenagens,Miguel Arraes,pernambuco,série
+author: None
+---
+ Foto: Wagner Ramos/SEI
+O ano de 2016 será dedicado às comemorações do centenário de nascimento de Miguel Arraes de Alencar. Para começar definir os detalhes dessas homenagens, o governador Paulo Câmara reuniu-se, nesta terça-feira (15), dia em que o ex-governador completaria 99 anos, com familiares do ex-chefe do Executivo estadual. O encontro aconteceu no Palácio do Campo das Princesas.
+Paulo ressaltou que Miguel Arraes foi uma das mais influentes lideranças políticas do País, e que o seu importante legado deve ser compartilhado com os mais jovens. "Ele foi uma pessoa que contribuiu muito para a redemocratização do nosso País. Um exemplo de homem público e de gestor comprometido com o social", pontuou o governador, completando: "Arraes fez programa sociais fundamentais para a melhor distribuição de renda no nosso Estado. As novas gerações precisam conhecer a história desse homem". 
+Estiveram presentes à reunião a viúva do ex-governador, dona Magdalena Arraes, os filhos Ana e Pedro, o neto Antônio Campos, a viúva do ex-governador Eduardo Campos, Renata Campos, e os bisnetos Elisa, Luis Felipe e Miguel. 
+Na oportunidade, Paulo Câmara afirmou ainda que Miguel Arraes faz falta para o Brasil, em um momento de crise política e ética. "Diante do momento que nós estamos vivendo, com tanta paralisia e tanta coisa errada, doutor Arraes é uma das vozes que fazem falta ao Brasil. Por tudo que ele representa e, acima de tudo, pelos valores que ele pregava. Valores que são fundamentais para o desenvolvimento do País que a gente quer", afirmou o chefe do Executivo estadual. 
+Miguel Arraes foi governador de Pernambuco por três mandatos (1963-1964; 1987-1990; 1995-1999); deputado federal por mais três vezes e prefeito do Recife, além de secretário de Estado. Em 1964, teve o seu mandato de governador interrompido pelo Golpe Militar. Ele morreu aos 88 anos, em 2005, no exercício de seu último mandato político. 
+COMISSÃO - A programação será definida em conjunto pela comissão organizadora do centenário, formada por membros do Governo do Estado, da Assembleia Legislativa de Pernambuco (Alepe), do Instituto Miguel Arraes e do Partido Socialista Brasileiro (PSB). Pelo Executivo estadual, ficarão responsáveis pela organização os secretários Antônio Figueira (Casa Civil) e Milton Coelho (Administração). O prefeito do Recife, Geraldo Julio, se comprometeu a fazer um levantamento das contribuições de Arraes à frente do Executivo municipal. 
+Antônio Campos disse que o centenário também terá ações em Brasília. "Gostaríamos de promover uma programação voltada para a atualidade dos pensamentos de Miguel Arraes", adiantou. 
+Ao destacar a importância do legado do pai, a ministra Ana Arraes, salientou a necessidade de resgatar recortes do período em que o pai esteve na Argélia. "Além da sua atuação no Brasil, é importante resgatar os detalhes da história de Arraes na Argélia. Ele contribuiu com as suas experiências no continente africano, na questão da água e das tecnologias de infraestrutura", afirmou.

@@ -1,0 +1,24 @@
+---
+layout: post
+title: "Defesa Civil: Governo afirma que ofício trata de ajustes técnicos para garantir priorização da área"
+date: 2023-04-27
+tags: jamildo, raquel lyra
+author: Jamildo Melo
+---
+Mais cedo, um of&iacute;cio interno do novo governo informava, no Blog, que o chefe da Casa Militar do governo Raquel Lyra (PSDB) alertou 5 secret&aacute;rios estaduais da gest&atilde;o tucana que uma demora burocr&aacute;tica poder&aacute; ter graves resultados, no tocante &agrave; Defesa Civil, no per&iacute;odo de fortes chuvas que se aproxima. 
+O governo do Estado respondeu, nos termos abaixo:
+O Governo do Estado informa que o of&iacute;cio encaminhado na &uacute;ltima segunda-feira (24), &agrave;s secretarias de Defesa Social, Casa Civil, de Administra&ccedil;&atilde;o, da Fazenda e de Planejamento, Gest&atilde;o e Desenvolvimento Regional resume-se a expediente administrativo ordin&aacute;rio da Casa Militar com objetivo da efetiva&ccedil;&atilde;o de ajustes t&eacute;cnicos pr&oacute;prios dos processos de reforma administrativa.
+Como amplamente divulgado, a nova gest&atilde;o prop&ocirc;s e aprovou mudan&ccedil;as na estrutura governamental com o objetivo de refor&ccedil;ar &aacute;reas estrat&eacute;gicas, dentre elas a Defesa Civil, agora vinculada &agrave; Secretaria de Defesa Social. Tendo sido a lei das altera&ccedil;&otilde;es or&ccedil;ament&aacute;rias decorrente da reforma sancionada e publicada no Di&aacute;rio Oficial na &uacute;ltima ter&ccedil;a (25) &ndash; Lei 18.142, o teor do of&iacute;cio do dia anterior no sentido de garantir a otimiza&ccedil;&atilde;o das transfer&ecirc;ncias or&ccedil;ament&aacute;rias e financeiras atende fielmente ao interesse p&uacute;blico, sendo exatamente a comprova&ccedil;&atilde;o da aten&ccedil;&atilde;o da Casa Militar e deste Governo para com o enfrentamento a poss&iacute;veis efeitos de eventos clim&aacute;ticos.
+O Governo de Pernambuco trabalha desde janeiro para garantir o fortalecimento da Defesa Civil, incluindo refor&ccedil;o or&ccedil;ament&aacute;rio, reuni&otilde;es de planejamento integradas com os munic&iacute;pios, realiza&ccedil;&atilde;o de a&ccedil;&atilde;o de preven&ccedil;&atilde;o nas &aacute;reas de risco e abertura de processos licitat&oacute;rios, como os publicados no Di&aacute;rio Oficial de hoje no &acirc;mbito da SDS para registros de atas de pre&ccedil;os referentes a aquisi&ccedil;&atilde;o, se necess&aacute;rio, de itens como kits de higiene pessoal e de limpeza, por exemplo.
+Com a san&ccedil;&atilde;o da Lei, todo o processo or&ccedil;ament&aacute;rio de transfer&ecirc;ncia de rubricas foi possibilitado e j&aacute; est&aacute; em execu&ccedil;&atilde;o".
+
+  
+  Of&iacute;cio da Casa Militar - Reprodu&ccedil;&atilde;o
+
+Entenda a pol&ecirc;mica do of&iacute;cio da Casa Militar
+No of&iacute;cio, o coronel Hercilio da Fonseca Mamede, secret&aacute;rio-chefe da Casa Militar, alertou os colegas de Governo que a reforma administrativa, feita pela governadora Raquel Lyra (PSDB) em janeiro, retirou a Defesa Civil da Casa Militar, repassando as fun&ccedil;&otilde;es para a Secretaria de Defesa Social.
+O atual secret&aacute;rio-chefe da Casa Militar alertou os colegas secret&aacute;rios que, apesar da lei ter retirado a defesa civil da Casa Militar, at&eacute; agora, nenhuma provid&ecirc;ncia foi tomada para retirar a verba or&ccedil;ament&aacute;ria da defesa civil da Casa Militar e repassar a mesma verba para a Secretaria de Defesa Social.
+A urg&ecirc;ncia do alerta, feito em 24 de abril, se deu pela proximidade do per&iacute;odo de fortes chuvas no Estado.
+"Considerando ainda a proximidade da quadra chuvosa no Estado, onde ocorre maior precipita&ccedil;&atilde;o h&iacute;drica e uma maior probabilidade de desastres, como enchentes e deslizamentos de barreiras, sendo a Defesa Civil o &Oacute;rg&atilde;o competente para atuar nesse cen&aacute;rio, tendo uma maior movimenta&ccedil;&atilde;o financeira, tendo em vista as aquisi&ccedil;&otilde;es e distribui&ccedil;&atilde;o de mantimentos e materiais para minimizar as consequ&ecirc;ncias dos desastres", alerta o coronel.
+Assim, segundo a fonte, a defesa civil est&aacute; sem verba nenhuma em 2023, no governo Raquel Lyra, enquanto n&atilde;o for resolvida essa "pend&ecirc;ncia burocr&aacute;tica".
+"Valho-me do presente instrumento para solicitar de V.S&ordf;, gest&atilde;o junto &agrave;s Secretarias sobreditas, a fim de otimizar os processos de transfer&ecirc;ncias or&ccedil;ament&aacute;rias e financeira, a fim de n&atilde;o haver solu&ccedil;&atilde;o de continuidade nas a&ccedil;&otilde;es de prote&ccedil;&atilde;o e defesa civil, que ainda est&atilde;o sobre a responsabilidade desta Casa Militar para a SDS, no intuito de atender aos ditames legais no tocante a compet&ecirc;ncia, governan&ccedil;a e responsabiliza&ccedil;&atilde;o de todos os atos praticados pela Defesa Civil Estadual", pede a Casa Militar. 

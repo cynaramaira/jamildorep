@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Deputados do PL vão a José Múcio para tentar liberar 'patriotas' presos em Brasília"
+date: 2023-02-13
+tags: jamildo, atos antidemocráticos
+author: Jamildo Melo
+---
+O deputado federal coronel Meira (PL), juntamente com outros parlamentares do PL, se reunir&atilde;o nesta segunda-feira (13), &agrave;s 17h, com o ministro da Defesa, Jos&eacute; M&uacute;cio Monteiro, para pedir ajuda para liberar os 'patriotas' presos no ataque &agrave; sede dos tr&ecirc;s Poderes.
+O encontro deve contar com a presen&ccedil;a dos deputados federais General Gir&atilde;o (PL/RN), Bia Kicis (PL/DF), Deputado Vermelho (PL/PR), Delegado Caveira (PL/PA), Delegado Ramagem (PL/RJ), Silvia Wai&atilde;pi (PL/AP) e Domingos Savio (PL/MG).
+Al&eacute;m das discuss&atilde;o sobre as pessoas que est&atilde;o presas, segundo eles "de forma injusta", depois dos atos do dia 08 de janeiro, em Bras&iacute;lia, os parlamentares querem discutir a situa&ccedil;&atilde;o dos CAC's (Colecionadores, Atiradores Desportivos e Ca&ccedil;adores).
+"Eles j&aacute; est&atilde;o passando diversas dificuldades, em todo Brasil, depois do decreto publicado pelo presidente Lula (PT), no primeiro dia do ano".
+"Conseguimos marcar uma reuni&atilde;o com meu amigo e ministro da Defesa, Jos&eacute; M&uacute;cio Monteiro, que, gentilmente, abriu espa&ccedil;o em sua agenda para que possamos discutir e resolver a quest&atilde;o das mais de 600 pessoas que foram presas no &uacute;ltimo dia 08 de janeiro (muitas delas, de forma aleat&oacute;ria). Sabemos que esse &eacute; um tema pol&iacute;tico e que devemos ter sensibilidade para resolver essa quest&atilde;o humanit&aacute;ria, haja visto as condi&ccedil;&otilde;es prec&aacute;rias em que se encontram essas pessoas", afirma.
+"...debateremos sobre a quest&atilde;o dos CAC's, que ap&oacute;s o decreto do Presidente Lula - limitou o acesso a armas e muni&ccedil;&otilde;es no pa&iacute;s e tamb&eacute;m suspendeu a concess&atilde;o de novos certificados de registro (CR) aos ca&ccedil;adores, atiradores e colecionadores, o que vem prejudicando, e, praticamente inviabilizando, a atividade dos clubes de tiro. Desta forma, apresentaremos os problemas gerados pelas precoces decis&otilde;es do governo federal e as poss&iacute;veis solu&ccedil;&otilde;es para que o ministro Jos&eacute; M&uacute;cio possa analisar junto ao Governo e &agrave; Justi&ccedil;a do Brasil, solu&ccedil;&otilde;es para a pacifica&ccedil;&atilde;o do Pa&iacute;s", disse Meira.

@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Irmã de secretário da Juventude assume cargo comissionado na Prefeitura do Recife"
+date: 2010-10-14
+tags: Birmania,Prefeitura,Recife
+author: None
+---
+O prefeito do Recife, Jo&atilde;o da Costa, nomeou no in&iacute;cio deste m&ecirc;s a irm&atilde; do secret&aacute;rio especial de Pol&iacute;ticas para a Juventude, Eduardo Granja, para um cargo comissionado no Instituto de Assist&ecirc;ncia Social e Cidadania (Iasc). A nomea&ccedil;&atilde;o de Edna Mirtes dos Santos Granja como diretora de Prote&ccedil;&atilde;o Social de Alta Complexidade, publicada no Di&aacute;rio Oficial do &uacute;ltimo dia 6 de outubro, contraria a Lei N&ordm; 17.363/2007, que pro&iacute;be o exerc&iacute;cio em cargo comissionado de parentes at&eacute; terceiro grau de funcion&aacute;rios do alto escal&atilde;o.
+
+Edna foi nomeada pela portaria n&ordm; 2936 assinada por Jo&atilde;o da Costa e publicada no Di&aacute;rio Oficial do dia 6 de outubro. A medida foi uma das &uacute;ltimas tomadas pelo prefeito antes de se licenciar para fazer um transplante de rim em S&atilde;o Paulo. O novo cargo de Edna recebe o s&iacute;mbolo DS1, que indica o mais alto n&iacute;vel de cargos comissionados.
+
+A funcion&aacute;ria n&atilde;o &eacute; novana PCR. Em 14 de outubro de 2009, foi nomeada gerente de Servi&ccedil;os do Albergue Terap&ecirc;utico do Centro de Aten&ccedil;&atilde;o Psicossocial &Aacute;lcool e Drogas Eul&acirc;mpio Cordeiro, do Distrito Sanit&aacute;rio 4, da Secretaria de Sa&uacute;de. A portaria n&ordm; 2527, tamb&eacute;m assinada por Jo&atilde;o da Costa, foi publicada no Di&aacute;rio Oficial de 14 de outubro de 2009.
+
+A nomea&ccedil;&atilde;o contraria a Lei N&ordm;. 17.363 /2007, criada pelo ex-prefeito Jo&atilde;o Paulo. De acordo com o artigo 1&ordm;, &quot;fica vedado, no &acirc;mbito da Administra&ccedil;&atilde;o P&uacute;blica municipal, direta e indireta, o exerc&iacute;cio de cargo em comiss&atilde;o ou de fun&ccedil;&atilde;o gratificada, por c&ocirc;njuge, companheiro ou parente, em linha reta e colateral, at&eacute; o terceiro grau, inclusive, ou por afinidade, nos termos do C&oacute;digo Civil, do Prefeito, Vice-Prefeito, secret&aacute;rios, presidente de autarquia, funda&ccedil;&atilde;o institu&iacute;da ou mantida pelo Poder P&uacute;blico, empresa p&uacute;blica ou sociedade de economia mista e outros cargos remunerados com os s&iacute;mbolos DS0 e DS1&quot;.
+
+A Prefeitura do Recife se pronunciou atrav&eacute;s de nota. Disse ter tomado conhecimento da den&uacute;ncia atrav&eacute;s do Blog de Jamildo, se comprometeu a investigar o caso, mas garantiu que Edna foi convidada para a fun&ccedil;&atilde;o&nbsp; &quot;por seu curr&iacute;culo e sua capacidade profissional&quot;.
+
+&quot;A Prefeitura do Recife esclarece que &eacute; contra a pr&aacute;tica de nepotismo. Por isso, ao tomar conhecimento pela imprensa sobre uma eventual incompatibilidade de Edna Mirtes dos Santos Granja exercer o cargo em quest&atilde;o, a PCR ir&aacute; diligenciar os documentos a fim de averiguar se o caso se aplica &agrave; Lei N&ordm;. 17.363 /2007. Edna Mirtes foi convidada para a fun&ccedil;&atilde;o de diretora de Prote&ccedil;&atilde;o Social de Alta Complexidade pelo seu curr&iacute;culo e sua capacidade profissional. Ela tem mestrado em psicologia social e foi professora assistente na Universidade Federal de Pernambuco. Estava trabalhando na PCR, na coordena&ccedil;&atilde;o do albergue terap&ecirc;utico da Secretaria de Sa&uacute;de do Recife&quot;, diz a nota. 

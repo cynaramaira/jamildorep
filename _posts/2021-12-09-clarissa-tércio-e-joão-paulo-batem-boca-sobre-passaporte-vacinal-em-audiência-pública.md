@@ -1,0 +1,40 @@
+---
+layout: post
+title: "Clarissa Tércio e João Paulo batem boca sobre passaporte vacinal em audiência pública"
+date: 2021-12-09
+tags: alepe, clarissa tércio, vacinas
+author: JAMILDO MELO
+---
+A fala de abertura da deputada Clarissa T&eacute;rcio na audi&ecirc;ncia p&uacute;blica sobre a obrigatoriedade da vacina e a implanta&ccedil;&atilde;o do passaporte sanit&aacute;rio, realizada, na manh&atilde; de hoje, na Alepe, foi rebatida pelo deputado Jo&atilde;o Paulo.
+No encontro que teve como pauta central As implica&ccedil;&otilde;es da obrigatoriedade da vacina contra a covid-19 e da implanta&ccedil;&atilde;o do passaporte sanit&aacute;rio, especialistas foram ouvidos sobre a tem&aacute;tica.
+
+    
+            Clarissa Tércio e conservadores locais reclamam de passaporte da vacina em audiência na Alepe
+        
+
+A deputada abriu o debate com uma ora&ccedil;&atilde;o e defendeu a liberdade dos cidad&atilde;os para decidir sobre tomar ou n&atilde;o a vacina contra a Covid-19, criticando a exig&ecirc;ncia do comprovante de vacina&ccedil;&atilde;o para ter acesso aos &oacute;rg&atilde;os p&uacute;blicos, no Estado e a lei complementar que obriga os servidores e empregados p&uacute;blicos estaduais a tomarem a vacina.
+&ldquo;N&atilde;o podemos aceitar que o trabalhador seja coagido psicol&oacute;gica e fisicamente a tomar a vacina contra a sua pr&oacute;pria vontade, ferindo o direito &agrave; dignidade da pessoa humana, previsto na Constitui&ccedil;&atilde;o Federal&rdquo;, disse.
+Rebatendo a fala de Clarissa T&eacute;rcio, o deputado Jo&atilde;o Paulo criticou a realiza&ccedil;&atilde;o da audi&ecirc;ncia p&uacute;blica que, segundo ele, &eacute; um tema totalmente contr&aacute;rio ao que toda a ci&ecirc;ncia est&aacute; mostrando. Tamb&eacute;m discordou da deputada e dos especialistas que participaram do debate.
+&ldquo;Ainda bem que Vossa Excel&ecirc;ncia influencia pela religi&atilde;o e n&atilde;o por conta da ci&ecirc;ncia. A senhora, na condi&ccedil;&atilde;o de deputada, presta um desservi&ccedil;o &agrave; sa&uacute;de p&uacute;blica. Ficarei at&eacute; o final para ouvir quem s&atilde;o os negacionistas que est&atilde;o defendendo a posi&ccedil;&atilde;o contr&aacute;ria&rdquo;, disse.
+Em resposta ao que considerou como ofensas, a parlamentar lamentou "a falta de educa&ccedil;&atilde;o do parlamentar" com os especialistas convidados.
+&ldquo;Ainda bem que n&oacute;s n&atilde;o vivemos do que o Excelent&iacute;ssimo acha, por isso, convidamos para esta audi&ecirc;ncia especialistas, doutores e pessoas que passaram por processos bem dif&iacute;ceis, para falar do que vivenciaram e entendem e n&atilde;o do que acham&rdquo;, retrucou.
+Na opini&atilde;o da deputada, n&atilde;o resta d&uacute;vida de que a obrigatoriedade determinada pelo Governo do Estado invade a esfera de compet&ecirc;ncia da Uni&atilde;o, ao legislar sobre a mat&eacute;ria do Trabalho, criando restri&ccedil;&otilde;es ao livre exerc&iacute;cio da profiss&atilde;o.
+Prosseguindo com o debate, o primeiro especialista a falar na audi&ecirc;ncia p&uacute;blica foi o professor Paolo Zanotto, doutor em virologia pela Universidade de Oxford.
+Ele rebateu "os ataques" do deputado Jo&atilde;o Paulo.
+&ldquo;O que eu acabei de ouvir aqui &eacute; o que temos ouvido constantemente, cientistas sendo desqualificados por pessoas que o que sabem sobre ci&ecirc;ncia &eacute; o que aprendeu no ensino m&eacute;dio&rdquo;,, gabou-se.
+A m&eacute;dica Maria Em&iacute;lia Gadelha, especialista em otorrinolaringologia, mostrou a situa&ccedil;&atilde;o experimental das vacinas utilizadas em todo o mundo e rebateu as afirma&ccedil;&otilde;es sobre a capacidade de imuniza&ccedil;&atilde;o oferecida por elas.
+&ldquo;Tem muita gente fazendo essa rela&ccedil;&atilde;o com os exemplos do capacete e do cinto de seguran&ccedil;a, um total desconhecimento sobre o assunto, acreditando tamb&eacute;m que a redu&ccedil;&atilde;o dos casos se deu por conta das vacinas&rdquo;, afirmou.
+Visivelmente emocionada, a advogada Arlene Graf, m&atilde;e de Bruno Graf, relembrou o epis&oacute;dio que vitimou o seu filho. "Resolvemos entrar na luta por outras vidas que podem ser vitimadas por danos relacionados &agrave; vacina. Bruno morreu tr&ecirc;s dias ap&oacute;s tomar a primeira dose da vacina contra covid-19 da AstraZeneca. A rela&ccedil;&atilde;o foi confirmada pelo boletim epidemiol&oacute;gico da Diretoria de Vigil&acirc;ncia Epidemiol&oacute;gica (DIVE), vinculada &agrave; Superintend&ecirc;ncia de Vigil&acirc;ncia em Sa&uacute;de de Santa Catarina", afirmou.
+Ao encerrar a audi&ecirc;ncia p&uacute;blica, a deputada Clarissa T&eacute;rcio anunciou o acolhimento das sugest&otilde;es para a divulga&ccedil;&atilde;o de uma carta &agrave; popula&ccedil;&atilde;o e o encaminhamento dos questionamentos aos &oacute;rg&atilde;os competentes.
+&ldquo;Reafirmo meu posicionamento contra a obrigatoriedade da vacina e do passaporte sanit&aacute;rio, e encerro com um vers&iacute;culo que diz: &lsquo;e conhecereis a verdade e a verdade vos libertar&aacute;&rsquo;&rdquo;, exclamou, citando a passagem b&iacute;blica.
+Tamb&eacute;m participaram da audi&ecirc;ncia p&uacute;blica Giovanna Lara, especialista em Biologia Molecular; o neurocirurgi&atilde;o Jos&eacute; Augusto Nasser, coordenador de Pesquisa em Neuroci&ecirc;ncias no Instituto Nacional de Traumatologia e Ortopedia do Rio de Janeiro (RJ); Hermes Rodrigues Nery, especialista em Bio&eacute;tica e coordenador nacional do Movimento Legisla&ccedil;&atilde;o e Vida; Nelson Pires Modesto, m&eacute;dico cl&iacute;nico; Ant&ocirc;nio Marco Duarte de Albuquerque, m&eacute;dico neurocirurgi&atilde;o, membro titular da Sociedade Brasileira de Neurocirurgia; Jo&atilde;o Padilha, advogado, l&iacute;der do grupo Conservadores Floripa, em Santa Catarina; Djalma Marques, PHD em medicina e cirurgia; e Rubens Amaral, m&eacute;dico nefrologista, especialista em Fisiologia do exerc&iacute;cio na sa&uacute;de.
+A audi&ecirc;ncia p&uacute;blica foi realizada de forma virtual, com transmiss&atilde;o ao vivo pelo canal da TV Alepe Master, no Youtube, com picos de mais de 7.070 mil pessoas assistindo simultaneamente, batendo o recorde no n&uacute;mero de visualiza&ccedil;&otilde;es do canal.
+&nbsp;
+
+  
+  Cais do Sert&atilde;o, no Recife. - Francisco Andrade
+&nbsp;
+Cobertura
+Em cumprimento ao decreto do Governo do Estado, que entrou em vigor na &uacute;ltima segunda-feira (6), o Centro Cultural Cais do Sert&atilde;o passar&aacute; a exigir a apresenta&ccedil;&atilde;o do passaporte vacinal com documento com foto na bilheteria. O decreto come&ccedil;a a valer a partir desta quinta-feira (9). Al&eacute;m do esquema vacinal completo, o visitante, morador ou turista dever&aacute;, tamb&eacute;m, usar a m&aacute;scara de prote&ccedil;&atilde;o, cumprir o distanciamento social e higienizar as m&atilde;os.
+&ldquo;O Cais do Sert&atilde;o &eacute; um dos equipamentos tur&iacute;sticos e culturais de maior prest&iacute;gio na gest&atilde;o do Turismo estadual. Para continuar a promover uma experi&ecirc;ncia inesquec&iacute;vel e imersiva aos territ&oacute;rios do museu, e seguindo todos os protocolos sanit&aacute;rios, garantindo a seguran&ccedil;a do visitante e turistas, o Cais cumpre o decreto do Governo do Estado, que determina a apresenta&ccedil;&atilde;o do cart&atilde;o de vacinas para acesso a pr&eacute;dios p&uacute;blicos&rdquo;, salienta o secret&aacute;rio de Turismo e Lazer, Rodrigo Novaes.
+O Cais segue aberto para visita&ccedil;&atilde;o ainda em hor&aacute;rio reduzido: quinta e sextas-feiras, das 10h &agrave;s 16h, e s&aacute;bados e domingos, das 11h &agrave;s 17h. Os ingressos custam R$ 10 (inteira) e R$ 5 (meia-entrada). O equipamento cultural &eacute; gerido pelo Governo do Estado de Pernambuco, sob a tutela da Secretaria de Turismo e Lazer e da Empetur.

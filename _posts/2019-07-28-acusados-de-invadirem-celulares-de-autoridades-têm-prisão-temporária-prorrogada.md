@@ -1,0 +1,12 @@
+---
+layout: post
+title: "Acusados de invadirem celulares de autoridades têm prisão temporária prorrogada"
+date: 2019-07-28
+tags: prisão
+author: None
+---
+Agência Brasil- O juiz Vallisney de Souza Oliveira, da 10ª Vara Federal de Brasília, decidiu prorrogar até a próxima sexta-feira (2) a prisão temporária dos quatro suspeitos de invadirem mais de mil celulares, incluindo o de autoridades. Os três homens e a mulher acusados pelo crime foram presos em operação da Polícia Federal na última terça-feira (23).
+No documento em que publica a decisão, o magistrado alega que, se fossem soltos agora, os investigados poderiam, em conjunto ou isoladamente, tentar eliminar provas.
+Entre os aparelhos hackeados, estariam o do presidente Jair Bolsonaro, do presidente da Câmara dos Deputados, Rodrigo Maia (DEM-RJ), do presidente do Senado, Davi Alcolumbre (DEM-AP), do presidente do Superior Tribunal de Justiça (STJ), João Otávio de Noronha, da procuradora-geral da República, Raquel Dodge, além da líder do governo no Congresso, deputada Joice Hasselmann (PSL-SP), e os ministros da Economia, Paulo Guedes, e da Justiça, Sérgio Moro. Há ainda a possibilidade de ministros do Supremo Tribunal Federal também terem sido alvos da invasão. A Polícia Federal não confirma nenhum hackeamento porque a investigação corre em sigilo.
+Em depoimento obtido pela TV Globo, Walter Delgatti Neto, suspeito de ser o hacker que invadiu os telefones, teria informado à PF que chegou aos arquivos do Telegram do procurador da operação Lava Jato, Deltan Dallagnol, por meio de agendas telefônicas de outras autoridades. Segundo as informações divulgadas pela emissora, o acusado também teria confirmado que repassou os materiais obtidos ao jornalista Glenn Greenwald. Além disso, teria dito que o contato com o fundador do site The Intercept Brasil foi intermediado pela ex-deputada Manuela D'Ávila (PCdoB-RS) e que não recebeu dinheiro pelo material, nem editou os conteúdos a que teve acesso.
+Em nota publicada nas redes sociais, Manuela D'Ávila afirmou que teve o celular invadido e que uma pessoa não identificada “queria divulgar o material por ele coletado para o bem do país”. Mesmo diante da invasão, a política confirmou o repasse do contato de Glenn Greenwald. Ressaltou, no entanto, que “desconhece a identidade” de quem teria invadido seu celular.

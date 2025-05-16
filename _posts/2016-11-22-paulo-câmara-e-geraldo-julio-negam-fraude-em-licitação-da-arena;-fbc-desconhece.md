@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Paulo Câmara e Geraldo Julio negam fraude em licitação da Arena; FBC desconhece inquérito"
+date: 2016-11-22
+tags: Arena Pernambuco,arquivamento de inquérito,Fraude,Geraldo Julio,licitação,Paulo Câmara
+author: None
+---
+Em nota conjunta, o governador de Pernambuco, Paulo Câmara, o prefeito do Recife, Geraldo Julio, e o deputado federal Tadeu Alencar, todos do PSB, como ex-integrantes do Comitê Gestor de Parcerias Público-Privadas do Estado de Pernambuco (CGPE), afirmam que a licitação para a construção da Arena de Pernambuco observou todos os requisitos, prazos e exigências da Lei de Concessões e da Lei das Parcerias Público-Privadas, "não decorrendo desse fato qualquer irregularidade, fraude ou frustração do caráter competitivo da disputa".
+LEIA MAIS:
+&gt;&gt; Paulo Câmara é investigado no STF por irregularidades na Arena, diz IstoÉ
+&gt;&gt; Fair Play: Edilson aponta papel de Geraldo e Paulo no Comitê Gestor das PPPs, investigado pela PF
+Os políticos foram citados em reportagem da Revista IstoÉ, desta terça-feira (22), como  investigados em um inquérito no Supremo Tribunal Federal (STF) sob suspeita de participação "no superfaturamento e irregularidades da Arena, construída pela empreiteira Odebrecht". Segundo a revista, em ‘despacho sigiloso’ o procurador-geral da República, Rodrigo Janot, solicita ao ministro do STF Teori Zavascki que mantenha no Supremo um inquérito único sobre Paulo, Geraldo, Tadeu Alencar e ainda o senador Fernando Bezerra Coelho (PSB-PE).
+Também em nota, a defesa de Fernando Bezerra, representada pelo advogado André Callegari, afirma que não teve conhecimento do referido despacho do procurador-geral da República - tampouco do Inquérito 4292. "A defesa de Fernando Bezerra observa que não recebeu qualquer tipo de convocação ou intimação. E lembra que, conforme, atestam os tribunais de Contas da União e do Estado, todas as operações referentes à licitação da Arena Pernambuco foram julgadas regulares pelos referidos tribunais."
+&gt;&gt; Moro autoriza provas da Lava Jato em investigação sobre Arena Pernambuco
+&gt;&gt; Operação Fair Play busca documentos na sede do Comitê de Gestão Público-Privada de Pernambuco
+Os quatro políticos, incluindo o governador Paulo Câmara, fizeram parte do comitê e, nele, formataram a licitação que teve a Odebrecht como vencedora. “A construção da obra não teria ocorrido sem a colaboração dos agentes políticos que, primeiramente, autorizaram a construtora Odebrecht a realizar estudos preliminares e e elaborar o projeto básico da obra, sem a realização de qualquer procedimento de licitação”, diz relatório da PF transcrito por Janot publicado pela IstoÉ.
+Em sua resposta, os políticos destacam que "o contrato de concessão foi aprovado pelo Tribunal de Contas da União (TCU) e pelo Tribunal de Contas do Estado de Pernambuco (TCE-PE), na decisão de número 0101011/2011, tendo sido igualmente analisado, sem objeções, pelo Ministério Público Federal, Ministério Público Estadual e BNDES".
+Confira na íntegra a nota de esclarecimento de Paulo Câmara, Geraldo Julio e Tadeu Alencar:
+1 – A licitação para a construção da Arena, ocorrida em 2009, observou todos os requisitos, prazos e exigências da Lei de Concessões e da Lei das Parcerias Público-Privadas, que preveem a possibilidade de o autor do projeto participar da licitação, não decorrendo desse fato qualquer irregularidade, fraude ou frustração do caráter competitivo da disputa;
+2- A Arena Pernambuco foi entregue em junho de 2013 e custou R$ 479.000.000,00 (base maio de 2009), tendo apenas 75% da sua construção sido financiada pelo BNDES e sendo a mais barata entre as arenas construídas no Brasil, levando em conta a capacidade instalada. O restante do valor do contrato deveria ser pago durante a exploração do Estádio (contraprestação para a operação da Arena);
+3 – Não houve superfaturamento. O percentual do terreno da Cidade da Copa foi validado pela Fundação Getúlio Vargas, não tendo sido questionado pelo Tribunal de Contas da União e do Estado. O terreno não foi entregue à Concessionária, continuando no patrimônio do Estado de Pernambuco;
+4 – Considerando que as receitas estimadas não se confirmaram, o contrato de concessão foi rescindido, tendo os parâmetros utilizados na rescisão sido aprovados pelo Tribunal de Contas do Estado, por meio de formalização de Termo de Ajuste de Gestão (TAG);
+5 – Importante destacar que o contrato de concessão foi aprovado pelo Tribunal de Contas da União (TCU) e pelo Tribunal de Contas do Estado de Pernambuco (TCE-PE), na decisão de número 0101011/2011, tendo sido igualmente analisado, sem objeções, pelo Ministério Público Federal, Ministério Público Estadual e BNDES;
+6 - A análise encomendada pelo Governo do Estado de Pernambuco à Fundação Getúlio Vargas está disponível no Portal da Transparência no  www.transparencia.pe.gov.br .
+Como têm feito todas as vezes que é provocado, o Governo do Estado de Pernambuco e os ex-integrantes do CGPE, nquanto ocupantes de funções públicas, estarão à disposição para prestar todas as informações necessárias sobre a construção da Arena Pernambuco.

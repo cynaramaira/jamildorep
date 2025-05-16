@@ -1,0 +1,22 @@
+---
+layout: post
+title: "Caciques da direita local vão à Brasília para evento de exaltação de armas 'pela Liberdade'"
+date: 2021-07-10
+tags: eleições 2022
+author: Jamildo
+---
+O deputado estadual Alberto Feitosa (PSC) viajou nesta semana que passou &agrave; Bras&iacute;lia para participar do II Encontro Nacional Pela Liberdade ProArmas, que aconteceu nesta sexta-feira (09) em frente &agrave; Catedral de Bras&iacute;lia-DF.
+O maior encontro armamentista do pa&iacute;s reuniu milhares de apoiadores de todos os estados, em "prol da liberdade do direito de defender a vida".
+Com o slogan &ldquo;N&atilde;o &eacute; sobre Armas &eacute; sobre Liberdade&rdquo; o movimento defende que n&atilde;o &eacute; o ato do cidad&atilde;o comum ter arma, &eacute; sobre ter liberdade de escolha.
+&ldquo;Vamos &agrave;s ruas cumprir o nosso dever c&iacute;vico de lutar pelo direito de todos os brasileiros, com representantes dos 27 estados, num ato pac&iacute;fico, ordeiro e liderado pelo presidente do movimento Proarmas, Marco Pollon, para mostrar ao Brasil um bom princ&iacute;pio de liberdade, que &eacute; dar ao homem a capacidade de se defender e defender os seus familiares&rdquo; afirma Feitosa.
+A concentra&ccedil;&atilde;o aconteceu na frente da catedral de Bras&iacute;lia e os apoiadores marcharam at&eacute; o Pal&aacute;cio do Planalto, reunindo participantes, o representante do movimento em Pernambuco, &Ecirc;nio C&eacute;sar, o presidente do movimento Proarmas, Marcos Pollon, como clubes de atiradores.
+Em abril de 2021, o presidente, Jair Bolsonaro, assinou quatro decretos para facilitar o acesso dos brasileiros a armas de fogo. A flexibiliza&ccedil;&atilde;o para adquirir os armamentos &eacute; uma de suas bandeiras.
+
+  
+  Meira disse ter sido cumprimentado por diversos participantes do evento, de igual maneira que se encontrou com v&aacute;rios agentes pol&iacute;ticos e socias, tais como os Deputados Federais Carla Zambelli e Eduardo Bolsonaro (ambos do PSL/SP), correligion&aacute;rios de Pernambuco, como Rodrigo Figueiredo, Fabiano Louren&ccedil;o e Netinho Lapenda (presidente do PTB de S&atilde;o Louren&ccedil;o da Mata), Charles Brasil (Movimento Brasil Democr&aacute;tico) e Mayra Pinheiro (Secret&aacute;ria de Gest&atilde;o do Trabalho do Minist&eacute;rio da Sa&uacute;de) mais conhecida como Capit&atilde; Cloroquina. - ptb/divulga&ccedil;&atilde;o
+
+Coronel Meira marca presen&ccedil;a no evento pr&oacute;-armas, em Bras&iacute;lia
+O segundo evento pr&oacute;-armas contou com a participa&ccedil;&atilde;o de v&aacute;rios grupos conservadores, partidos e lideran&ccedil;as pol&iacute;ticas, movimentos de direita, parlamentares, personalidades e apoiadores de todo Brasil, dentre eles, Roberto Jefferson (presidente do PTB Nacional) e o Coronel Meira (presidente do PTB/PE).
+O ato que ocorreu no Dia Mundial pelo Desarmamento foi organizado pela Associa&ccedil;&atilde;o Nacional Movimento Pr&oacute; Armas (Ampa) teria como objetivo uma nova regulamenta&ccedil;&atilde;o e facilita&ccedil;&atilde;o do uso de armas de fogo por cidad&atilde;os civis.
+"Todo cidad&atilde;o de bem tem o direito de se defender e defender a sua fam&iacute;lia. A autoriza&ccedil;&atilde;o das armas de fogo est&atilde;o ali para que, na falta do Estado, o pai de fam&iacute;lia possa realizar a prote&ccedil;&atilde;o de sua propriedade, de sua vida ou da vida de terceiros. Todos t&ecirc;m esse direito; na casa que tem arma legal, o bandido n&atilde;o vai! Por isso estamos aqui para buscar uma flexibiliza&ccedil;&atilde;o na aquisi&ccedil;&atilde;o das armas de fogo", afirmou Coronel Meira.
+Meira disse ter sido cumprimentado por diversos participantes do evento, de igual maneira que se encontrou com v&aacute;rios agentes pol&iacute;ticos e socias, tais como os Deputados Federais Carla Zambelli e Eduardo Bolsonaro (ambos do PSL/SP), correligion&aacute;rios de Pernambuco, como Rodrigo Figueiredo, Fabiano Louren&ccedil;o e Netinho Lapenda (presidente do PTB de S&atilde;o Louren&ccedil;o da Mata), Charles Brasil (Movimento Brasil Democr&aacute;tico) e Mayra Pinheiro (Secret&aacute;ria de Gest&atilde;o do Trabalho do Minist&eacute;rio da Sa&uacute;de) mais conhecida como Capit&atilde; Cloroquina.

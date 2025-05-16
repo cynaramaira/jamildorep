@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Compesa vai montar nova adutora na Região Metropolitana do Recife. Saiba onde"
+date: 2023-09-11
+tags: jamildo, Compesa
+author: Jamildo Melo
+---
+A Companhia Pernambucana de Saneamento (Compesa) est&aacute; em processo de implementa&ccedil;&atilde;o de uma nova adutora para o reservat&oacute;rio de Tabatinga, situado no bairro hom&ocirc;nimo em Camaragibe, na Regi&atilde;o Metropolitana do Recife. At&eacute; o momento, cerca de tr&ecirc;s dos mais de cinco quil&ocirc;metros de tubula&ccedil;&otilde;es j&aacute; foram instalados.
+A obra tem previs&atilde;o de conclus&atilde;o para o primeiro semestre do pr&oacute;ximo ano e promete beneficiar aproximadamente 50 mil pessoas com uma distribui&ccedil;&atilde;o de &aacute;gua mais regular. O investimento para essa melhoria &eacute; de R$ 4 milh&otilde;es.
+Com a conclus&atilde;o da Adutora de Tabatinga, os residentes da &aacute;rea urbana de Aldeia de Baixo e dos bairros de Tabatinga, Inabi, Jardim Primavera, Vale das Pedreiras, Vila da F&aacute;brica e parte do Borralho ter&atilde;o um fornecimento de &aacute;gua mais confi&aacute;vel. &ldquo;A adutora atual &eacute; antiga e frequentemente apresenta vazamentos.
+Segundo a estatal, com a constru&ccedil;&atilde;o dessa nova estrutura, haver&aacute; menos problemas na rede de distribui&ccedil;&atilde;o de &aacute;gua, resultando em um abastecimento melhorado e a possibilidade de redu&ccedil;&atilde;o do calend&aacute;rio de abastecimento&rdquo;, explica Nyadja Menezes, diretora Regional Metropolitana da Compesa.
+Al&eacute;m desta adutora, crucial para melhorar o fornecimento de &aacute;gua nos bairros de Camaragibe, est&aacute; prevista uma segunda fase desta obra. Esta etapa consiste na melhoria da gest&atilde;o e controle de perdas nas unidades do sistema, atrav&eacute;s da setoriza&ccedil;&atilde;o das redes de distribui&ccedil;&atilde;o nos bairros.
+Segundo Rafael Ramos, gerente de Obras da Compesa, a setoriza&ccedil;&atilde;o (divis&atilde;o dos bairros em setores de distribui&ccedil;&atilde;o) tem como objetivo equilibrar as press&otilde;es na rede, diminuindo a incid&ecirc;ncia de vazamentos e tornando o abastecimento mais cont&iacute;nuo e confi&aacute;vel. Isso ser&aacute; alcan&ccedil;ado atrav&eacute;s da instala&ccedil;&atilde;o de equipamentos de medi&ccedil;&atilde;o e controle, como medidores de vaz&atilde;o e v&aacute;lvulas redutoras de press&atilde;o.

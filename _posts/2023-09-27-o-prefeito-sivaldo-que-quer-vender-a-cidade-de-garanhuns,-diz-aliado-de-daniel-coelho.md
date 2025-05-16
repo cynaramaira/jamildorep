@@ -1,0 +1,29 @@
+---
+layout: post
+title: "O prefeito Sivaldo que quer vender a cidade de Garanhuns, diz aliado de Daniel Coelho"
+date: 2023-09-27
+tags: jamildo, Festival de Inverno de Garanhuns
+author: Jamildo Melo
+---
+Continua a pol&ecirc;mica entre as autoridades no Festival de Inverno de Garanhuns. Nesta quarta, Matheus Martins, secret&aacute;rio de Turismo de Garanhuns, rebateu as cr&iacute;ticas que o secret&aacute;rio de Turismo de Pernambuco, Daniel Coelho, fez &agrave; iniciativa do munic&iacute;pio, ao retomar de vez o evento, ap&oacute;s ter sido alijada do processo de produ&ccedil;&atilde;o com a chegada de Raquel Lyra ao governo do Estado. O prefeito Sivaldo Albino pertence ao PSB, partido que faz oposi&ccedil;&atilde;o ao PSDB de Raquel, e vice-versa.
+Nesta mesma quarta, O ativista Rodrigo Ambr&oacute;sio, aliado de Daniel Coelho, rebateu as cr&iacute;ticas e bateu duramente na gest&atilde;o da cidade.
+A pol&ecirc;mica teve in&iacute;cio ap&oacute;s a especula&ccedil;&atilde;o de que o apoio da Fundarpe ao festival poderia ser transferido para Gravat&aacute;, e n&atilde;o mais Garanhuns, conforme relato do blog de Jamildo, nesta ter&ccedil;a-feira ainda.
+
+      Leia Também
+      
+	    				
+                                              		             
+                                                                                            Festival de Inverno de Garanhuns poderá ser transferido para Gravatá em 2024
+                                      
+	          
+
+"Uma das joias da coroa de Garanhuns, o Festival de Inverno, sempre foi uma celebra&ccedil;&atilde;o da cultura, da arte e da diversidade. No entanto, sob a administra&ccedil;&atilde;o de Sivaldo Albino, parece que at&eacute; mesmo o esp&iacute;rito do FIG est&aacute; &agrave; venda, por propostas feitas pelo pr&oacute;prio prefeito, que incluem o fechamento do espa&ccedil;o a&eacute;reo, a cria&ccedil;&atilde;o de uma pol&iacute;cia privada e a censura daqueles que n&atilde;o t&ecirc;m sua b&ecirc;n&ccedil;&atilde;o", afirmou Rodrigo Ambrosio, l&iacute;der do Livres.
+"A introdu&ccedil;&atilde;o de medidas como a necessidade de autoriza&ccedil;&atilde;o especial para poder mencionar o festival na cidade parece ser uma tentativa de monopolizar e lucrar com um evento que pertence a todos os cidad&atilde;os. Isso levanta uma preocupante quest&atilde;o: quem manda na cidade agora, o povo ou os patrocinadores?"
+"Logo no in&iacute;cio de sua proposta, a prefeitura quer considerar todo o territ&oacute;rio da cidade, do ch&atilde;o aos c&eacute;us, como parte do evento. O fechamento do espa&ccedil;o a&eacute;reo da cidade inteira durante o FIG &eacute; mais uma evid&ecirc;ncia da aparente determina&ccedil;&atilde;o de Sivaldo Albino em transformar Garanhuns em uma cidade fechada e controlada, onde quem manda &eacute; o dinheiro".
+"Dentre tantos esc&acirc;ndalos inconstitucionais, o projeto da prefeitura inclui a cria&ccedil;&atilde;o de uma for&ccedil;a policial privada, podendo ser formada por capangas e empresas de vigil&acirc;ncia, capaz de supervisionar o com&eacute;rcio em uma virada sombria na gest&atilde;o de Garanhuns. Sua loja vai fazer uma promo&ccedil;&atilde;o na cidade de uma marca que n&atilde;o &eacute; patrocinadora do FIG? Cuidado! A prefeitura promete te multar em R$ 9.400,00 e apreender toda a sua mercadoria."
+"A determina&ccedil;&atilde;o de Sivaldo imp&otilde;e um controle rigoroso at&eacute; mesmo sobre o som na cidade de Garanhuns. A proposta aponta para a necessidade de autoriza&ccedil;&atilde;o para qualquer tipo de atividade sonora durante o Festival de Inverno, um evento que historicamente celebra a m&uacute;sica, a arte e a cultura em todas as suas formas. Mas essa restri&ccedil;&atilde;o n&atilde;o se limita apenas ao FIG. O som em casas e nas ruas da cidade tamb&eacute;m est&atilde;o na mira das autoridades locais, que podem multar o cidad&atilde;o em R$ 6.500,00".
+"A tentativa do prefeito de Garanhuns de vender a cidade inteira em seu projeto de privatizar o Festival de Inverno de Garanhuns (FIG) &eacute; motivo de profunda preocupa&ccedil;&atilde;o".
+"O FIG sempre foi um evento p&uacute;blico e cultural, um momento de celebra&ccedil;&atilde;o que une pessoas de todas as classes sociais em torno da m&uacute;sica e da arte. Sim! A capta&ccedil;&atilde;o de recursos privados para bancar o projeto &eacute; muito bem-vinda, mas a ideia de transform&aacute;-lo em uma micareta paga para encher os bolsos de empres&aacute;rios que apoiam, onde apenas alguns t&ecirc;m acesso privilegiado ao palco, enquanto outros s&atilde;o relegados a um segundo plano, &eacute; simplesmente inaceit&aacute;vel.
+"Tudo o que &eacute; financiado com dinheiro p&uacute;blico deve permanecer como um evento p&uacute;blico e gratuito, aberto a todos os cidad&atilde;os pernambucanos. N&atilde;o se pode permitir que um pequeno grupo de produtores de eventos, com interesses obscuros, transforme este festival em algo que privilegie apenas os mais ricos e poderosos, querendo mandar em toda a cidade e prometendo at&eacute; mesmo cord&atilde;o de isolamento na festa".
+"Em vez de ser um farol de cultura e criatividade, Garanhuns corre o risco de se tornar uma cidade do sil&ecirc;ncio, onde a m&uacute;sica &eacute; silenciada e a express&atilde;o art&iacute;stica &eacute; sufocada pelo dinheiro. &Eacute; fundamental que os cidad&atilde;os de Garanhuns e todos aqueles que valorizam a liberdade e a cultura se unam para resistir a essas restri&ccedil;&otilde;es excessivas. Uma cidade que perde sua voz perde sua alma, e Garanhuns merece continuar sendo a cidade vibrante e musical que todos conhecemos e amamos".
+&nbsp;

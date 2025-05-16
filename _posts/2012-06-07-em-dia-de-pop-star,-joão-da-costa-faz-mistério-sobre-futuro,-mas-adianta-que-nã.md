@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Em dia de pop star, João da Costa faz mistério sobre futuro, mas adianta que não submeterá apoio a um ato de força"
+date: 2012-06-07
+tags: Força-Tarefa,gal costa,joão d,Naomi Campbell,Star
+author: None
+---
+Foto: Clem&iacute;lson Campos/JC Imagem
+Por Gabriela L&oacute;pez
+&quot;N&atilde;o vou submeter meu apoio a um ato de for&ccedil;a. Nestes trinta anos no PT, fui acostumado a ser convencido na hora de dar um apoio pol&iacute;tico. E n&atilde;o fui at&eacute; agora&quot;. Foi com estas palavras que o prefeito Jo&atilde;o da Costa desembarcou no Aeroporto Internacional do Recife, na tarde desta quinta-feira (7), ap&oacute;s participar, em S&atilde;o Paulo, da reuni&atilde;o da Executiva Nacional do PT que imp&ocirc;s a candidatura do senador Humberto Costa em detrimento do prefeito, que luta para tentar a reelei&ccedil;&atilde;o.
+Ap&oacute;s repetir v&aacute;rias das falas dos &uacute;ltimos dias, ele comentou que tinha dez dias para analisar os pr&oacute;ximos passos. Nesta sexta (9), ele se reunir&aacute; com aliados e dever&aacute; convocar uma coletiva de imprensa no s&aacute;bado (10). Al&eacute;m disso, sem citar nomes, o prefeito deu sua opini&atilde;o sobre a interven&ccedil;&atilde;o do ex-presidente Lula no processo municipal. &quot;O partido tem estrat&eacute;gias nacionais, mas na medida em que a pr&oacute;pria dire&ccedil;&atilde;o nacional convocou um processo de consulta aos filiados, depois anulou e, em seguida, imp&ocirc;s um candidato, &eacute; natural que a base do partido fique indignada&quot;, disse e, logo em seguida, agradeceu o apoio dos filiados.
+Segundo informa&ccedil;&otilde;es de bastidores, Lula quer apoio do PSB, do governador Eduardo Campos &agrave; candidatura do ex-ministro da Educa&ccedil;&atilde;o, Fernando Haddad em S&atilde;o Paulo. Por isso, Lula teria sido um dos respons&aacute;veis pelo lan&ccedil;amento de Humberto a pedido de Campos, que v&ecirc; o senador como uma amea&ccedil;a &agrave;s elei&ccedil;&otilde;es de 2014, quando Campos tentar&aacute; eleger um sucessor.
+A milit&acirc;ncia do prefeito compareceu em peso ao Aeroporto. O gestor foi ovacionado por cerca de 300 pessoas no Aeroporto. Muitas vestiam roupas vermelhas, exibiam faixas e todos soltavam gritos de guerra que provocavam de Humberto Costa ao ex-presidente Lula. &quot;&Ocirc;, Lula, decep&ccedil;&atilde;o. voc&ecirc; n&atilde;o manda no Recife, n&atilde;o&quot; e &quot;&Acirc;o, &acirc;o, &acirc;o, abaixo a interven&ccedil;&atilde;o&quot;, s&atilde;o alguns exemplos.
+
+Do seu lado, a imprensa teve dificuldade para falar com o prefeito, j&aacute; que ele driblou uma sala de imprensa improvisada pela sua pr&oacute;pria equipe em um port&atilde;o secund&aacute;rio e seguiu direto pelo port&atilde;o principal de desembarque. O gestor caiu no meio dos militantes e houve empurra-empurra.

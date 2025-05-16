@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Com crise, secretário defende que negociação com servidores vai além de reajuste salarial"
+date: 2016-11-18
+tags: Alemanha,comitê de crise,reajuste salarial,renegociação,servidores públicos
+author: None
+---
+O cenário é de crise. Com a queda nas receitas, o Governo de Pernambuco sequer garantiu o calendário de pagamento do 13º salário dos servidores. Mesmo assim, a promessa da gestão é de negociar com os profissionais que protestam, se não por reajuste salarial, pelo menos por condições dignas de trabalho, reivindicação que acaba também exigindo investimento dos cofres estaduais. Para tentar explicar como seriam colocados em prática acordos feitos com as categorias, o repórter Cássio Oliveira entrevistou por e-mail o secretário de Administração, Milton Coelho.
+Blog de Jamildo - O secretário defendeu o diálogo e disse que vai negociar com categorias que deflagarem greve no Estado. Entretanto, se o Estado passa por um momento de dificuldade, como negociar? Qual seria a fonte dos recursos? Em resumo: existe alguma verba para se negociar?
+Milton Coelho - Quanto mais difícil e tensa a situação, mais devemos dialogar e é assim que o governo tem procedido. Apenas em 2016 já realizamos 130 reuniões com sindicatos e associações representantes de servidores públicos do estado, ressaltando que há muito a ser negociado, não apenas aumento de salários.
+Blog de Jamildo - A secretaria já tem algum plano sobre as reclamações a respeito nas melhorias das condições de trabalho - no caso dos peritos, por exemplo?
+Milton Coelho - O governo tem investido bastante na melhoria das condições de trabalho, que envole infraestrutura, equipamentos, tecnologia, etc. Com o advento da crise, o governo teve que se adequar aos limites impostos pelas restrições financeiras, mas a modernização do ambiente de trabalho é permanente e vai progredir à medida que o País for superando as dificuldades econômicas que atravessa tanto no setor público quanto privado.
+Blog de Jamildo - Como o senhor vê as paralisações e as greves?
+Milton Coelho - Acho legítimo os trabalhadores dos setores público e privado se mobilizarem para defender seus direitos, inclusive salários dignos. A forma de fazer é muitas vezes questionável, mas o amadurecimento da democracia e o aumento do nível de consciência é que vai aprimorar os mecanismos dessa luta.
+Blog de Jamildo - A bancada de oposição na Assembleia Legislativa de Pernambuco (Alepe) articula a retomada das negociações entre o Sindicato dos Servidores Públicos Civis do Estado de Pernambuco (Sindserpe) e a Secretaria de Administração do Estado em relação aos funcionários de fundações, autarquias e secretarias. Como o governo vai tratar esta questão?
+Milton Coelho - Vamos tratar bem.
+Blog de Jamildo - Os governistas Lucas Ramos (PSB) e Aluísio Lessa (PSB) ficaram com a responsabilidade de marcar um encontro entre o senhor e os representantes dos servidores. Há abertura para o diálogo?
+Milton Coelho - Como disse antes, nosso principal instrumento de trabalho é o diálogo. Os deputados Aluísio Lessa e Lucas Ramos mantiveram contato, assim como o presidente (da Alepe) Guilherme Uchoa, e vamos agendar mais uma reunião com o Sindserpe. Neste ano já foram 15.
+Vou dizer com transparência que, nesse momento em que o Brasil se encontra mergulhado na mais profunda crise econômica da história e a maioria dos estados não consegue sequer pagar salários aos funcionários, Pernambuco vem conseguindo pagar salários em dia, mantendo direitos e benefícios dos seus servidores. E este, agora, é nosso objetivo principal. Direi ainda que no momento em que a conjuntura permitir trataremos de reajustes salariais.

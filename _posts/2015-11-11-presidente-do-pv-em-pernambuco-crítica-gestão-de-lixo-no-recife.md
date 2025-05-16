@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Presidente do PV em Pernambuco crítica gestão de lixo no Recife"
+date: 2015-11-11
+tags: crítica,lixo,pernambuco,Presidente,Recife
+author: None
+---
+
+Por Carlos Augusto Costa, presidente do Partido Verde em Pernambuco
+Seu Isaías, tem pouco mais de 50 anos (não sabe precisar), é casado e com dois filhos grandes. Há mais de 20 anos ele está na atividade de “catador de material reciclado” pelas ruas da cidade. Começa desde manhã cedo e segue sua dura rotina até à noite. Sua renda é incerta e o trabalho dificultado por não encontrar o lixo separado nas calçadas. “É tudo misturado”, reclama, com razão, seu Isaías.
+Essa é uma das histórias que encontramos nas ruas e morros da nossa cidade. Fruto de uma série de 18 caminhadas que o Partido Verde, com o Projeto Recife Bom Para Viver, vem realizando pelo Recife. O final, teremos caminhado quase 150 km e percorrido quase todos os bairro da cidade. Queremos verificar in loco as necessidades dos lugares, os bons exemplos e, o mais importante, conversar com as pessoas que fazem da nossa cidade uma cidade especial.
+O Seu Isaías é uma dessas pessoas. Um homem simples, que não conhece a palavra “Produtividade”. Para nós, a produtividade dos catadores nas ruas e dos serviços de limpeza urbana na cidade seriam significativamente aumentados se encontrassem o “lixo seco” separado do “lixo molhado”.
+Simples de dizer, mas difícil de fazer. No Recife são recolhidas mais de 3 mil toneladas de lixo por dia e menos de 1% desse lixo é reciclado. Experiências em outras cidades chegam a 25%. Vale salientar, entretanto, que estudiosos do assunto dizem que cerca de 80% do lixo poderia ser reciclado de alguma forma. Se formos falar em dinheiro, gastamos por ano cerca de R$ 200 milhões com a coleta de lixo no Recife.
+É muito dinheiro jogado, literalmente, no lixo. Hoje, a coleta, mesmo com esse pequeno percentual, emprega mais de seis mil pessoas na RMR. Imagine se fossem 20% ao invés de 1% de material reciclado. Seriam mais empregos e mais renda para quem mais precisa.
+No Canal do Arruda vemos o retrato duro e perverso dessa realidade. Lixo espalhado por todos os lugares. Será mesmo que não há mecanismos e ferramentas gerenciais para se limpar e manter limpo um trecho de 4 Km de extensão? Será que não é possível mobilizar as pessoas em torno do local para que protejam o lugar onde vivem? Será que não há soluções, simples e de baixo custo para impedir que o lixo de plásticos se acumulem?
+Duas outras histórias são da dupla de coletores manuais Alexssandro e Eduardo. Dois caras legais que prestam relevantes serviços à sociedade. Talvez eles preferissem trabalhar em outro serviço. Afinal, empurrar um carrinho com diversos sacos de lixos recicláveis e não recicláveis não é para qualquer um.
+Eles são trabalhadores terceirizados da Emlurb. Como todo trabalhador que faz o operacional e está em contato com a base da cadeia do lixo, eles têm sugestões para tentar resolver os problemas. “Tem que dar condições (para população fazer a separação e descarte do lixo) e, se não fizer, multar”. E como isso seria feito? “Com mais coletores nos pontos críticos”. Parece simples e, provavelmente, é.
+Precisamos urgentemente, investir na educação ambiental,  participação popular e simplificar as mensagens sobre coleta de lixo no Recife, mostrando que podemos fazer mais com muito menos e ainda por cima ajudar a gerar mais emprego e renda.
+Há diversos projetos socioambientais desenvolvidos em vários países e mesmo em outras cidades brasileiras que conseguiram resolver problemas similares. Fácil não é, mas com certeza é possível. Se outras cidades conseguiram, por que não o Recife?

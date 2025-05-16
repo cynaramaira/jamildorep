@@ -1,0 +1,19 @@
+---
+layout: post
+title: "MPF pediu à Justiça Federal suspensão de ação contra IRH, Sassepe e Casa de Farinha. Não havia verba federal e MPF não poderia atuar"
+date: 2019-11-12
+tags: ação,casa,Contran,Jorge Federal,Justiça Federal,maria farinha,Naomi Campbell,sassepe,SUSPENSÃO
+author: None
+---
+Na sexta-feira passada, o MPF em Pernambuco pediu à Justiça Federal a condenação de 9 pessoas envolvidas em supostas irregularidades em contrato da Casa de Farinha com Hospital dos Servidores.
+Nesta terça-feira, o governo do Estado divulgou uma nota oficial rebatendo a denúncia e explicando que o MPF em Pernambuco pediu à Justiça Federal a suspensão da ação de improbidade administrativa contra pessoas envolvidas nas supostas irregularidades em contratos celebrados pelo Instituto de Recursos Humanos (IRH) com a empresa Casa de Farinha LTDA.
+“A procuradora federal Sílvia Regina Lopes juntou ao processo, na segunda-feira (11/11), documentos do Ministério Público de Contas de Pernambuco (MPCO) que comprovam – ao contrário do afirmado pelo próprio MPF na denúncia – a inexistência de repasses de recursos federais do SUS ao Hospital dos Servidores do Estado (HSE), âncora do Sistema de Assistência à Saúde do Servidor do Estado de Pernambuco (Sassepe), o que sempre foi sustentado pelo IRH”, aponta, em dado trecho.
+Veja a nota oficial do governo do Estado sobre a ação improbidade administrativa do IRH, Sassepe e Casa de Farinha
+"O Ministério Público Federal em Pernambuco pediu à Justiça Federal a suspensão da ação de improbidade administrativa contra pessoas envolvidas em supostas irregularidades em contratos celebrados pelo Instituto de Recursos Humanos (IRH) com a empresa Casa de Farinha LTDA."
+"A procuradora federal Sílvia Regina Lopes juntou ao processo, na segunda-feira (11/11), documentos do Ministério Público de Contas de Pernambuco (MPCO) que comprovam – ao contrário do afirmado pelo próprio MPF na denúncia – a inexistência de repasses de recursos federais do SUS ao Hospital dos Servidores do Estado (HSE), âncora do Sistema de Assistência à Saúde do Servidor do Estado de Pernambuco (Sassepe), o que sempre foi sustentado pelo IRH."
+"Na petição, a procuradora informa que deflagrou a ação com base na Representação nº 03/2019, do Tribunal de Contas do Estado de Pernambuco (TCE-PE), por intermédio do MPCO, na qual o órgão apontava que o “IRH aufere recursos do Sistema Único de Saúde – SUS para manter o Hospital dos Servidores do Estado”.
+"Na sequência, informa que “recentemente, aportou neste MPF o Ofício TCMPCO-MP nº 638/2019, cujo teor asseverou a inexistência de repasses de recursos federais ao IRH/PE. Observa-se que o conteúdo do Ofício TCMPCO-MP nº 638/2019 entra em contradição com as informações fornecidas anteriormente pelo Tribunal de Contas do Estado de Pernambuco e, inclusive, corroboradas mediante consulta a cadastro oficial federal (CNES). Assim, causa espécie a este órgão ministerial o recebimento, por parte do mesmo órgão de controle, de informações colidentes a respeito do repasse de recursos federais”, afirma a procuradora federal."
+"O pedido do MPF foi apresentado três dias depois de a Procuradoria Geral do Estado de Pernambuco (PGE-PE) levar ao conhecimento da Justiça Federal os documentos constantes da Auditoria Especial nº 1820579-3 do TCE-PE, comprovando que não houve utilização de recursos do SUS ou de outra fonte federal nos contratos que são objetos da denúncia."
+"Os documentos atestam que somente depois de apresentar a ação, o MPF solicitou ao MPCO os documentos comprobatórios e surpreendeu-se ao verificar que eles atestam o contrário do que aponta a denúncia."
+"A atitude contraditória reforça que a denúncia foi oferecida de forma açodada, expondo ao julgamento público os nomes dos gestores envolvidos."
+"Não havendo recursos federais envolvidos, não haverá interesse da União, afastando-se a legitimidade do Ministério Público Federal para a propositura da ação."

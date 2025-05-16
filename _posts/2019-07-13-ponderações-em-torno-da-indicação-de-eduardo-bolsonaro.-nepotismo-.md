@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Ponderações em torno da indicação de Eduardo Bolsonaro. Nepotismo?"
+date: 2019-07-13
+tags: eduardo bolsonaro,retorno
+author: None
+---
+Por Edson Holanda, advogado no Recife
+Não existe no ordenamento jurídico brasileiro legislação ou dispositivo específico que trate da questão do nepotismo. O regramento quanto ao tema é feito pela Súmula Vinculante nº 13 do STF, abaixo transcrita:
+“A nomeação de cônjuge, companheiro ou parente em linha reta, colateral ou por afinidade, até o terceiro grau, inclusive, da autoridade nomeante ou de servidor da mesma pessoa jurídica investido em cargo de direção, chefia ou assessoramento, para o exercício de cargo em comissão ou de confiança ou, ainda, de função gratificada na administração pública direta e indireta em qualquer dos poderes da União, dos Estados, do Distrito Federal e dos Municípios, compreendido o ajuste mediante designações recíprocas, viola a Constituição Federal.”
+Percebe-se o texto base da referida Súmula proíbe a nomeação de parente em linha reta (filho) para cargo de chefia ou de confiança. Ou seja, não cumpre com a função de delimitar a sua incidência, pelo que restou às Turmas do STF a tarefa de delimitar a sua incidência – se alcança exclusivamente os cargos comissionados/de confiança ou se estende-se, também, aos cargos políticos. Tal delimitação é evidenciada pela jurisprudência da Corte, no sentido de que não se configura o nepotismo nas hipóteses de nomeação de parentes para cargos políticos.
+Portanto, considerando que o cargo de Embaixador é um cargo de natureza política -- conforme amplamente difundido na Suprema Corte --, entende-se, de antemão, que a nomeação do deputado federal Eduardo Bolsonaro ao referido cargo diplomático na Embaixada brasileira nos EUA, por parte do seu pai e presidente Jair Bolsonaro, não configura hipótese de nepotismo.
+Entretanto, mostra-se relevante salientar que, até os dias atuais, não houve apreciação do STF de situação análoga à supra retratada, qual seja: de nomeação, para cargo diplomático (Embaixador), com grau próximo de parentesco ao presidente da República. Desta forma, é possível (e até provável) a judicialização do caso e, podendo-se cogitar, até mesmo, uma possibilidade de mudança de entendimento da casa.
+Isso porque há corrente minoritária – encabeçada pelo Ministro Marco Aurélio Mello – que entende pela inconstitucionalidade da nomeação de parente até o 3º grau a cargos políticos.
+Em linhas gerais, ao analisar a eficácia de um decreto assinado por Crivella que nomeava seu filho para o cargo de secretário-chefe da casa civil da prefeitura, o Ministro Presidente proferiu decisão liminar monocrática suspendeu a eficácia do referido ato administrativo do prefeito do Rio de Janeiro (Rcl 26.303).
+Neste sentido entende, também, o ministro Edson Fachin – ainda que seja considerado voto solitário na Segunda Turma da Corte.
+Por fim, ponto sensível no intuito de sopesar a existência ou não de nepotismo no ato exarado pelo presidente Jair Bolsonaro é com relação à qualificação técnica do nomeado. Ou seja, ainda que a indicação de parente, por si só, não seja considerada ato de nepotismo, há de se tomar em conta o preenchimento de outro requisito indispensável: o know-how condizente às especificidades do cargo a ser assumido, o qual – leia-se – não se trata de cargo de natureza política comum, mas de função qualificada pela complexidade da atuação internacional desta espécie de servidor público.
+Edson Victor Eugenio de Holanda é advogado do Holanda Advogados, formado em Governança Corporativa e Compliance pelo Insper/SP, formado em Direito da Energia, Petróleo e Gás pelo IBDE/SP. Mestrando em Estado, Regulação e Concorrência pelo IDP-DF.

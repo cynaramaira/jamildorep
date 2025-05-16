@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Mendonça desafia João Campos a debater impostos cobrados pelo PSB no Recife"
+date: 2020-10-24
+tags: impostos,João Campos,mendonça,Recife
+author: None
+---
+Depois de derrubar na Justiça Eleitoral uma ação do PSB contra sua propaganda eleitoral na TV, o candidato a prefeito Mendonça Filho (DEM), desafiou, neste sábado (24), o oponente socialista, João Campos, a debater a cobrança de impostos feita nas gestões do PSB, no Recife.
+“Mais uma vez, João Campos perde na Justiça Eleitoral tentando esconder a verdade. O Recife é, sim, a capital do Norte/Nordeste que mais se paga imposto por habitante. E ele acionou a Justiça para impedir que eu pudesse fazer essa afirmação na minha propaganda eleitoral. João Campos quer ganhar a eleição na base da mentira. Vamos para um debate elevado, se você, João, quer debater conosco, venha debater com a verdade, e não tentando enganar a nossa população”, disse Mendonça.
+Nesta sexta (23), a juíza da 7ª Zona Eleitoral, Dra. Virgínia Gondim Dantas, indeferiu representação ajuizada pela Frente Popular para impedir a propaganda eleitoral de Mendonça de afirmar que o recifense é o maior pagador de impostos e taxas do Nordeste.
+Na decisão, a juíza considerou que “sem dúvida a informação divulgada na propaganda eleitoral do horário gratuito não é inverídica, já que a versão sustentada tem respaldo na leitura dos números levando em consideração os dados do impostômetro aliado ao número de habitantes de cada uma das duas cidades”.
+O democrata ressaltou que o Recife tem a maior arrecadação própria por habitante do Norte e Nordeste, de R$ 1.250,00, em 2019.
+De acordo com Mendonça, o crescimento dessa arrecadação própria, entre os anos de 2012 e 2019, foi de 89%, e entre os maiores incrementos nessa elevação estão o IPTU, com 90%, e a Taxa de Lixo (TRSD), que atingiu 185%.
+Além disso, o valor médio da arrecadação com o IPTU por habitante foi de R$ 313,00, a maior do Norte/Nordeste, e o montante médio de arrecadação por taxas por habitante foi de R$ 169,90, a segunda maior em todo o Brasil.
+Mendonça disse que o valor médio do IPTU cobrado em 2019 no Recife, para um imóvel edificado residencial com valor venal de R$ 180 mil, foi de R$ 1.800,00, acima de capitais como Fortaleza (R$ 1.276,72), Salvador (R$ 715,61) e São Paulo (R$ 1.320,00).
+Já para um imóvel edificado comercial, com valor venal também de R$ 180 mil, a média do IPTU cobrado no Recife, no último ano, foi de R$ 2.700,00, acima de cidades como Salvador (R$ 2.012,35) e São Paulo (R$ 2.040,00).
+"Em relação à Taxa de Lixo, as cobranças excessivas nos últimos anos também atingiram patamares bastante elevados. Um restaurante self-service de 260 m², por exemplo, pagou, em 2019, um valor médio de R$ 3.256,50 da TRSD, bem acima de Salvador, que cobrou pela mesma taxa R$ 1.612,00. No Recife, se houver serviço de coleta seletiva, o contribuinte paga 33% a mais na Taxa de Lixo".
+“A verdade incomoda tanto que a Frente Popular pediu até direito de resposta para algo que é verdadeiro e pesa na vida do povo. Felizmente, o Recife real se sobrepõe ao mundo da fantasia que João Campos quer passar para a população. Perdeu na Justiça Eleitoral por que era e é verdade, o recifense não aguenta mais o PSB cobrando imposto e metendo a mão no bolso do contribuinte na nossa cidade, pessoas físicas e jurídicas, dificultando a geração de empregos”, afirmou Mendonça.

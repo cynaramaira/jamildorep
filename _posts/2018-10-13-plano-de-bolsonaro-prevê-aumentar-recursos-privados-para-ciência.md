@@ -1,0 +1,18 @@
+---
+layout: post
+title: "Plano de Bolsonaro prevê aumentar recursos privados para ciência"
+date: 2018-10-13
+tags: Bolsonaro,Plano,recursos
+author: None
+---
+Estadão Conteúdo - Uma nova proposta de incentivo à ciência, tecnologia e inovação feita por assessores de Jair Bolsonaro (PSL) prevê medidas para alavancar investimentos privados e "aumento real do orçamento" federal para o setor. O plano sugere ainda uma guinada no direcionamento dos recursos públicos, orientando desembolsos para pesquisas aplicadas em projetos considerados prioritários.
+A meta geral é elevar o investimento feito por governo e iniciativa privada de 1,3% para 2,5% do PIB (produto interno bruto) em quatro anos. O documento que resume a proposta de Bolsonaro para o setor, ao qual o Estado teve acesso, afirma que é necessário dar "prioridade orçamentária" à área em todos os níveis do governo, até mesmo, se necessário, "com prejuízo dos demais campos do poder", à exceção da educação, saúde e saneamento básico.
+"O Brasil precisa colocar ciência, tecnologia e inovação no centro da sua estratégia nacional de desenvolvimento, como fazem outros países", diz o economista Marcos Cintra, presidente da Financiadora de Inovação e Pesquisa (Finep), agência de fomento vinculada ao Ministério da Ciência, Tecnologia, Inovações e Comunicações (MCTIC). "Aqui ele é um setor como outro qualquer. Quando precisa cortar, passa a régua e corta tudo igual. Isso não pode acontecer. Passamos por ajuste fiscal, mas tem de priorizar."
+Cintra é um dos principais colaboradores do economista Paulo Guedes, que coordena boa parte do plano de governo de Bolsonaro. O documento com as propostas para o setor congrega os debates conduzidos por Cintra e pela equipe supervisionada em Brasília pelo general Aléssio Ribeiro Souto.
+O texto surge como um complemento ao plano de governo protocolado pela campanha de Bolsonaro na Justiça Eleitoral, que fala muito pouco sobre ciência e tecnologia.
+O novo plano traz uma série de propostas para alavancar o setor, mas não detalha como a previsão de aumento dos dispêndios ficará em linha com o compromisso que Guedes estabeleceu no programa de Bolsonaro de zerar o rombo nas contas públicas já em 2019.
+O texto destaca a necessidade de reverter o contingenciamento de fundos setoriais vinculados à área, como o Fundo Nacional de Desenvolvimento Científico e Tecnológico (FNDCT), que são alimentados por contribuições de empresas, mas que, na prática, destinam apenas uma pequena fração de fato para pesquisas - a maior parte costuma ser contingenciada e usada para ajudar a fechar as contas do governo.
+A proposta é, de um lado, vetar o bloqueio desses recursos, estimados em cerca de R$ 5 bilhões, e, de outro, colocar em marcha medidas para estimular o investimento das empresas em pesquisa e desenvolvimento, hoje em torno de 0,6% do PIB, abaixo do visto em países desenvolvidos.
+Nesse sentido, uma das ações previstas é reduzir a ênfase dada hoje à oferta de crédito, estimulando em seu lugar a concessão de subvenção. Por esse mecanismo, previsto em lei desde 2004, o governo pode aplicar recursos públicos "não reembolsáveis" diretamente em empresas que desenvolvam projetos estratégicos e dividir, assim, os riscos da empreitada com o setor privado.
+"O governo tem de orientar para onde vai a pesquisa, chamar as empresas, estimulá-las a atender a demanda indicada e dar subvenção em vez de crédito. Com isso, vamos ampliar muito o interesse das empresas privadas em entrarem no setor", diz Cintra.
+ 

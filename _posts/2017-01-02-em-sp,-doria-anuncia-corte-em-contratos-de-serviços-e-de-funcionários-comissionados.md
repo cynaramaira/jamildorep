@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Em SP, Doria anuncia corte em contratos de serviços e de funcionários comissionados"
+date: 2017-01-02
+tags: Contratos,CorteIDH,doria,serviços
+author: None
+---
+Da ABr - Após a primeira reunião com os secretários municipais, o prefeito de São Paulo, João Doria, anunciou nesta segunda-feira (2) uma série de medidas para os primeiros meses de governo. Todos os contratos de fornecedores e prestadores de serviço sofreram corte de 15% nos valores, com exceção das áreas de saúde, educação e transporte.
+“Entendendo que esta redução não vai prejudicar nenhum contrato, nenhuma ação. Significará, sim, uma readequação e medidas de gestão das empresas que prestam serviços à prefeitura de São Paulo. Também não vai provocar redução de serviço. É reduzir valor mantendo serviço. Cada empresa faz o seu esforço de readequação na realização dos seus serviços”, enfatizou Doria durante a entrevista coletiva.
+Austeridade
+Com relação a redução de gastos, o prefeito anunciou que a frota da administração municipal será reduzida em 1,3 mil veículos, entre carros próprios que devem ser leiloados e os alugados que serão devolvidos. A medida vai promover, segundo Doria, a economia de R$ 10 milhões por mês. “Considerando os custos dos veículos de locação, de motoristas, combustível, seguros e despesas para manutenção, como pneus”, acrescentou. Estão de fora da redução de frota as áreas de segurança pública,  da saúde e do trânsito. 
+Todas as pastas da prefeitura devem reduzir o número de cargos comissionados em 30%. A nova administração não definiu os cargos que serão cortados e qual será a economia feita com o fechamento das 3 mil vagas.
+Creches
+Doria estabeleceu o prazo de 12 meses para acabar com o deficit de 66 mil vagas em creches na capital paulista. Para contornar o problema, o prefeito pretende expandir os atuais contratos com organizações sociais (OS) e contar com a ajuda de instituições financeiras.
+A ideia é pedir aos bancos que estão fechando agências na cidade para que destinem alguns desses imóveis para serem usados como creches. “Nós pedimos a essas instituições que destinem alguns desses imóveis para a implantação de creches da prefeitura de São Paulo. Os imóveis maiores que possam ser adaptados. E os ajustes e as adaptações também deverão ser feitas pelas instituições financeiras”, disse o prefeito.
+Com isso, será possível, de acordo com o secretário de governo municipal, Júlio Semeghini, atuar justamente nas áreas onde há maior carência de serviço. “A maior necessidade delas [creches] é na zona sul, uma região em que é difícil fazer novos investimentos em construção. Por isso, a necessidade destas OS e estas parcerias, e utilizar prédios que já estejam prontos”, ressaltou.
+Exames
+Uma das principais promessas de campanha de Doria, o uso de hospitais privados para reduzir o tempo de espera por exames na rede pública municipal foi outro tema da entrevista. Segundo o secretário de Saúde, Wilson Pollara, várias instituições particulares vão atender os pacientes que esperam há mais de um mês pelos procedimentos recebendo o valor tabelado do Sistema Único de Saúde. “Pacientes de 30 dias a seis meses vão ser colocados nesses que eu chamaria de excepcionais: são os hospitais privados e do estado, que não participavam da rotina da prefeitura”, destacou.
+A ideia inicial era usar os horários ociosos desses hospitais, especialmente durante a madrugada, para conseguir atender a demanda. Porém, de acordo com Pollara, as instituições particulares tem aberto opções em horários convencionais, evitando os problemas decorrentes do atendimento noturno, como dificuldade de locomoção. “Nós vão ter aquele paciente das 3h ou 2h. Eles vão funcionar o dia todo”, enfatizou o secretário. Com isso, a prefeitura pretende acabar com a fila de espera por exames em três meses. O programa deve começar a funcionar a partir do próximo dia 10.

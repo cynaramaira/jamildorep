@@ -1,0 +1,13 @@
+---
+layout: post
+title: "TSE determina suspensão de propaganda de Bolsonaro questionando inocência de Lula"
+date: 2022-10-13
+tags: jamildo, eleições 2022
+author: Jamildo Melo
+---
+O ministro do Tribunal Superior Eleitoral (TSE) Paulo de Tarso Sanseverino determinou a suspens&atilde;o imediata da veicula&ccedil;&atilde;o de propaganda eleitoral da campanha de Jair Bolsonaro contendo fatos inver&iacute;dicos e ofensivos &agrave; honra do candidato Lula.
+O ministro determinou a suspens&atilde;o da propaganda em qualquer modalidade (inser&ccedil;&otilde;es ou bloco), sob pena de multa de R$ 50 mil por cada divulga&ccedil;&atilde;o.
+O ministro Paulo de Tarso Sanseverino entendeu que as express&otilde;es foram usadas de forma abusiva, em viola&ccedil;&atilde;o ao princ&iacute;pio constitucional da presun&ccedil;&atilde;o da inoc&ecirc;ncia, que se aplica a todos os cidad&atilde;os.
+&ldquo;Verifica-se que, como alegado, a propaganda eleitoral impugnada &eacute; il&iacute;cita, pois atribui ao candidato &agrave; conduta de &lsquo;corrupto&rsquo; e &lsquo;ladr&atilde;o&rsquo;, n&atilde;o observando a legisla&ccedil;&atilde;o eleitoral regente e a regra de tratamento fundamentada na garantia constitucional da presun&ccedil;&atilde;o de inoc&ecirc;ncia ou n&atilde;o culpabilidade&rdquo;, afirmou o ministro.
+&ldquo;Com efeito, n&atilde;o poderia a Justi&ccedil;a especializada permitir que os partidos pol&iacute;ticos, coliga&ccedil;&atilde;o e candidatos participantes do pleito deixassem de observar direitos e garantias constitucionais do cidad&atilde;o durante a exibi&ccedil;&atilde;o da propaganda no hor&aacute;rio eleitoral gratuito na r&aacute;dio e na televis&atilde;o, utilizando-se como justificativa a liberdade de express&atilde;o para realizar imputa&ccedil;&otilde;es que, em tese, podem caracterizar crime de cal&uacute;nia, inj&uacute;ria ou difama&ccedil;&atilde;o ou que n&atilde;o observem a garantia constitucional da presun&ccedil;&atilde;o de inoc&ecirc;ncia&rdquo;, acrescentou.
+A decis&atilde;o foi tomada na an&aacute;lise de representa&ccedil;&atilde;o ajuizada pela chapa Lula e Alckmin. A coliga&ccedil;&atilde;o apontou tratar-se de propaganda irregular, que tenta incutir no eleitor a falsa informa&ccedil;&atilde;o de que Lula n&atilde;o seria inocente, por meio do uso de express&otilde;es como &ldquo;corrupto&rdquo; e &ldquo;ladr&atilde;o&rdquo; para referir-se ao ex-presidente.

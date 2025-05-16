@@ -1,0 +1,164 @@
+---
+layout: post
+title: "Artistas pressionam Rodrigo Maia contra eventual indicação de Felipe Carreras como relator de MP"
+date: 2020-05-06
+tags: Contran,Felipe Carreras,Relatório,rodrigo maia
+author: None
+---
+Cantores e compositores pressionam o presidente da Câmara, Rodrigo Maia (DEM-RJ), para não entregar ao deputado Felipe Carreras, do PSB de Pernambuco, a relatoria de uma medida provisória na qual ele apresentou uma emenda que altera as regras de direitos autorais de músicas durante a pandemia de coronavírus.
+De acordo com o documento, apenas os intérpretes pagariam pelos direitos autoriais de músicas. Os realizadores de eventos ficariam isentos de fazer o pagamento.
+Tudo começou com uma lista de transmissão encabeçada pela produtora Paula Lavigne sobre a emenda do MP 948/20.
+
+
+
+ 
+
+ 
+ 
+
+
+ 
+ 
+
+Ver essa foto no Instagram
+
+ 
+
+
+ 
+ 
+ 
+
+
+ 
+ 
+
+
+ 
+ 
+ 
+
+
+#repost @procuresaber Leia a carta da Presidente da Associação Procure Saber, @paulalavigne, sobre a ameaça aos direitos autorais de milhares de profissionais promovida pela emenda proposta pelo deputado @felipecarreras, alimentadas por interesses pessoais e de promotores de eventos. . #APS #APSUnida #SOSDireitosAutorais #ProcureSaber ?
+Uma publicação compartilhada por  Paula Lavigne (@paulalavigne) em 5 de Mai, 2020 às 2:55 PDT
+
+
+
+Com o documento em mãos, Carreras foi questionado por Anitta nas redes sociais e participou com ela de um debate ao vivo, numa live do Instagram, nesta terça-feira (5). Durante a conversa, que durou aproximadamente 50 minutos, Anitta e Felipe conversaram sobre a proposta do deputado, mas o que se pretendia ser uma conversa tranquila terminou em uma discussão ao vivo. “Eu estou do lado de vocês, é uma via de mão dupla”, disse o deputado em certa altura da discussão, sendo cortado pela cantora. “Eu não encaro como se você estivesse do nosso lado (os artistas). Porque assim, como eu te falei, esse é um momento que não condiz, principalmente na MP 948, que é uma MP de urgência, que é sobre a toda a dificuldade que todas essas pessoas estão passando nesse momento de coronavírus… Usar essa MP de urgência para colocar essa questão de direito autoral, é uma coisa que não faz muito… Que não é o momento”, rebateu.
+
+
+
+ 
+
+ 
+ 
+
+
+ 
+ 
+
+Ver essa foto no Instagram
+
+ 
+
+
+ 
+ 
+ 
+
+
+ 
+ 
+
+
+ 
+ 
+ 
+
+
+
+ 
+ 
+
+Uma publicação compartilhada por Anitta ? (@anitta) em 5 de Mai, 2020 às 6:01 PDT
+
+
+
+Carreras teria entrado, também, na mira de outros vários cantores e compositores brasileiros, segundo o jornalista da revista Época Guilherme Amado. Um dos nomes que teriam puxado o movimento é o de Marisa Monte. “Venho em nome da classe fazer um apelo para que ele não seja escolhido como relator. Ele é uma pessoa que tem interesses relativos a direitos autorais conflitantes com os nossos. Nesse momento, qualquer mudança em direitos autorais, seria muito mal recebido por todos”, pediu a cantora, em áudio gravado a Maia e transcrito por Amado.
+“O senhor Felipe Carreras tem interesses pessoais, como organizador de eventos e shows, em prejudicar a classe, isentando vários setores do pagamento dos nossos direitos autorais”, afirmou Alcione, também a Maia.
+Os realizadores de eventos ficariam isentos de fazer o pagamento. A sugestão foi feita a uma medida provisória sobre coronavírus.
+Caetano Veloso disse que a indicação de Carreras como relator seria "inadequada e prejudicial" para a classe.
+
+
+
+ 
+
+ 
+ 
+
+
+ 
+ 
+
+Ver essa foto no Instagram
+
+ 
+
+
+ 
+ 
+ 
+
+
+ 
+ 
+
+
+ 
+ 
+ 
+
+
+#repost @procuresaber Veja o vídeo e entenda por que a @abrapeoficial e o deputado @felipecarreras estão contra os direitos dos artistas. Com uma medida provisória, tentam transformar o artista em usuários e no único responsável pelo pagamento dos direitos autorais, além de proibir a cobrança de direitos autorais frente a qualquer pessoa física ou jurídica que não seja o intérprete – ou seja, só os artistas ficam obrigados a pagar direitos autorais; #APS #APSUnida #SOSDireitosAutorais #ProcureSaber ?
+Uma publicação compartilhada por  Caetano Veloso (@caetanoveloso) em 5 de Mai, 2020 às 10:13 PDT
+
+
+
+Também apelaram a Maia artistas como Djavan, Erasmo Carlos, Dori Caymmi, Milton Nascimento, Ivan Lins, Nando Reis, Alceu Valença, Marcos Valle, Lenine, Rosemary, Roberto Frejat, Rogério Flausino, Otto, Xande de Pilares, segundo a Época.
+Felipe Carreras enviou uma nota para o jornalista Guilherme Amado:
+“Já recebi o Ecad, artistas e diretores de suas associações em meu gabinete, em Brasília. Tenho conversado com artistas e estou disposto a conversar com quantos quiserem avançar no assunto por meio da conversa e não de ataques inverídicos”, afirmou. Segundo ele, a emenda à MP 948 é uma sugestão “que pode ser melhorada, como todas as outras mais de 270 emendas à Medida Provisória”. “Minha luta sempre foi por mais transparência, justiça e eficiência na distribuição dos recursos”, afirmou.
+
+
+
+ 
+
+ 
+ 
+
+
+ 
+ 
+
+Ver essa foto no Instagram
+
+ 
+
+
+ 
+ 
+ 
+
+
+ 
+ 
+
+
+ 
+ 
+ 
+
+
+Em tempos de fake News, e? va?lido provar o que eu afirmei ontem na live com a Anitta. Encaminhamos um requerimento de informac?a?o ao ex-Ministro da Justic?a Se?rgio Moro, e recebemos essa resposta do Ministe?rio, informando que o ECAD foi condenado por formac?a?o de cartel. Ate? o momento, o o?rga?o na?o pagou pelo valor que foi multado e segue com o nome inscrito no Cadin (Cadastro Informativo de Cre?ditos na?o Quitados do Setor Pu?blico Federal).
+Uma publicação compartilhada por  Felipe Carreras (@felipecarreras) em 6 de Mai, 2020 às 6:18 PDT
+
+

@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Duas pessoas são presas por furto de energia em fábricas de biscoito, em Jaboatão"
+date: 2024-04-19
+tags: jamildo, Jaboatão dos Guararapes, FURTO, Neoenergia
+author: Jamildo Melo
+---
+Uma a&ccedil;&atilde;o da Neoenergia Pernambuco, Pol&iacute;cia Civil e o Instituto de Criminalista (IC), identificou duas f&aacute;bricas de biscoito praticando furto de energia el&eacute;trica, nesta quinta-feira (19), na cidade de Jaboat&atilde;o dos Guararapes. Os nomes das empresas n&atilde;o foram divulgados.
+As empresas estavam funcionando sem o registro correto do consumo de energia el&eacute;trica. Duas pessoas, uma de cada unidade, foram presas em flagrante e, at&eacute; a noite de ontem, aguardavam a audi&ecirc;ncia de cust&oacute;dia.
+O volume de energia recuperada com esta a&ccedil;&atilde;o foi de 15.000 kWh, quantidade que seria suficiente para abastecer, aproximadamente, 125 resid&ecirc;ncias por um m&ecirc;s. Toda energia n&atilde;o medida ser&aacute; cobrada do cliente, conforme determina&ccedil;&otilde;es da legisla&ccedil;&atilde;o do setor el&eacute;trico. O fornecimento de energia para as unidades foi suspenso e o estabelecimento s&oacute; ter&aacute; a energia restabelecida ap&oacute;s a negocia&ccedil;&atilde;o do d&eacute;bito.
+Os dois locais estavam sendo mapeados pela &aacute;rea de intelig&ecirc;ncia da Neoenergia h&aacute; algumas semanas. T&eacute;cnicos da distribuidora j&aacute; tinham identificado o furto e comunicaram &agrave; pol&iacute;cia, que acompanhou todo o processo de vistoria.
+&ldquo;Esta a&ccedil;&atilde;o &eacute; muito importante porque esses locais estavam praticando irregularidades e prejudicando todo o bairro. N&atilde;o podemos permitir que as pessoas continuem utilizando a energia sem pagar pelo produto. Essa atitude promove risco de acidentes para toda popula&ccedil;&atilde;o, concorr&ecirc;ncia desleal no mercado, pois essas f&aacute;bricas n&atilde;o arcavam com o valor de um importante insumo no processo, e ainda prejudicam muito o fornecimento, gerando interrup&ccedil;&otilde;es e oscila&ccedil;&otilde;es para toda a comunidade local&rdquo;, afirmou o supervisor comercial, F&aacute;bio Muniz.
+A Neoenergia Pernambuco refor&ccedil;a que o furto de energia &eacute; crime sujeito &agrave;s penalidades do artigo 155 do C&oacute;digo Penal Brasileiro. Al&eacute;m de acarretar preju&iacute;zos &agrave; popula&ccedil;&atilde;o, a pr&aacute;tica representa riscos de acidentes graves. Em caso de den&uacute;ncias, os clientes podem entrar em contato pelos canais de atendimento da concession&aacute;ria, sem a necessidade de identifica&ccedil;&atilde;o.
+&nbsp;

@@ -1,0 +1,16 @@
+---
+layout: post
+title: "EXCLUSIVO: João Campos já quer leiloar espaço na praia do Pina para ano novo de 2025"
+date: 2023-11-09
+tags: jamildo, pina
+author: Jamildo Melo
+---
+A Prefeitura do Recife abriu licita&ccedil;&atilde;o para "Permiss&atilde;o de Uso Onerosa do espa&ccedil;o p&uacute;blico da faixa de areia da praia do Pina, pr&oacute;ximo ao antigo n&uacute;cleo de seguran&ccedil;a comunit&aacute;rio do Pina, a terceiro para realiza&ccedil;&atilde;o do R&eacute;veillon 2023/2024 e R&eacute;veillon 2024/2025".
+Ou seja: a cess&atilde;o onerosa de espa&ccedil;o na praia para festa privada de ano novo nos pr&oacute;ximos dois anos. Trata-se assim de uma iniciativa inovadora, que economiza recursos p&uacute;blicos.
+A empresa vencedora ter&aacute; "obriga&ccedil;&atilde;o de fornecimento pelo permission&aacute;rio da estrutura necess&aacute;ria para realiza&ccedil;&atilde;o dos eventos (palcos, sonoriza&ccedil;&atilde;o, ilumina&ccedil;&atilde;o, banheiros qu&iacute;micos, tendas, fechamentos met&aacute;licos, grades de conten&ccedil;&atilde;o, box truss, geradores, elevados, sinaliza&ccedil;&atilde;o de seguran&ccedil;a, seguran&ccedil;a privada e equipes de gest&atilde;o, produ&ccedil;&atilde;o, t&eacute;cnica de apoio), compreendendo montagem, desmontagem, limpeza e manuten&ccedil;&atilde;o".
+Uma grande vantagem para a empresa ser&aacute; o "direito a exclusividade de comercializa&ccedil;&atilde;o de alimentos e bebidas, de acordo com o Termo de Refer&ecirc;ncia anexo ao Edital".
+O valor global m&iacute;nimo de outorga para a contrata&ccedil;&atilde;o ser&aacute; de R$ 214.897,92 (duzentos e quatorze mil, oitocentos e noventa e sete reais e noventa e dois centavos), segundo o edital.
+A licita&ccedil;&atilde;o est&aacute; sendo conduzida pela Secretaria de Planejamento do Recife, sob Jo&atilde;o Campos. A abertura das propostas das empresas interessadas foi marcada para 23 de novembro. A escolha ser&aacute; por preg&atilde;o presencial.
+O que diz a prefeitura
+Em nota, a prefeitura do Recife diz que a permiss&atilde;o faz parte de uma iniciativa da gest&atilde;o municipal para economizar recursos, mantendo a festividade para a popula&ccedil;&atilde;o. Veja o comunicado na &iacute;ntegra:
+"A Prefeitura do Recife vem esclarecer que a abertura de concorr&ecirc;ncia p&uacute;blica para Permiss&atilde;o de Uso Onerosa durante o per&iacute;odo do R&eacute;veillon, nos anos de 2023 e 2024, de determinado trecho da faixa de areia na Praia do Pina, na Zona Sul da cidade, &eacute; mais uma iniciativa da atual gest&atilde;o regida pelo princ&iacute;pio da economicidade, que objetiva, neste caso, a promo&ccedil;&atilde;o de tradicional festividade em parceria com a iniciativa privada e sem custos para os cofres p&uacute;blicos e com a garantia de acesso gratuito &agrave; popula&ccedil;&atilde;o. &Eacute; importante esclarecer que o modelo proposto estabelece que a cobertura de todos os investimentos referentes &agrave; festividade, a exemplo da contrata&ccedil;&atilde;o de atra&ccedil;&otilde;es art&iacute;sticas, montagem de estrutura, limpeza, entre outros, ser&atilde;o arcados pelo futuro vencedor do processo licitat&oacute;rio".

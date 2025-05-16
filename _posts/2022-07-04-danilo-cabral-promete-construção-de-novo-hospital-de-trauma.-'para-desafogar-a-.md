@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Danilo Cabral promete construção de novo hospital de trauma. 'Para desafogar a Restauração'"
+date: 2022-07-04
+tags: jamildo, danilo cabral, Hospital da Restauração
+author: Jamildo Melo
+---
+Nesta segunda-feira (4), o pr&eacute;-candidato a governador Danilo Cabral prometeu construir um hospital de trauma na Regi&atilde;o Metropolitana. O objetivo seria desafogar o Hospital da Restaura&ccedil;&atilde;o.
+"Os governos da Frente Popular, dos quais Danilo fez parte, j&aacute; constru&iacute;ram oito hospitais e 11 UPAs especialidades em todo o estado desde 2007, quando Eduardo Campos, ouvindo o povo, se comprometeu em erguer tr&ecirc;s hospitais", comentou a campanha.
+&ldquo;A Restaura&ccedil;&atilde;o recebe muitas v&iacute;timas de acidentes, cujo tratamento n&atilde;o &eacute; r&aacute;pido. As pessoas que entram na UTI, v&iacute;timas de acidente de moto, por exemplo, precisam passar muitos dias ali dentro antes de ter alta. Ent&atilde;o, a gente precisa construir um novo hospital de trauma para tirar as pessoas e desafogar a Restaura&ccedil;&atilde;o. Esse &eacute; um ponto&rdquo;, afirmou Danilo Cabral.
+&ldquo;Tamb&eacute;m vamos lembrar o que era a Restaura&ccedil;&atilde;o l&aacute; atr&aacute;s, em 2006. Foi feito um investimento do ponto de vista de contrata&ccedil;&atilde;o de pessoal. Foi nosso governo quem contratou o maior n&uacute;mero de pessoal da hist&oacute;ria da sa&uacute;de. A gente sempre precisa aprimorar os servi&ccedil;os de forma permanente. E vamos faz&ecirc;-lo. Isso faz parte do modelo de gest&atilde;o implantado em Pernambuco, que eu fui coordenador quando secret&aacute;rio de Planejamento. Experi&ecirc;ncia &eacute; uma coisa que n&atilde;o se compra no supermercado. Eu adquiri estudando, fazendo, tirando do papel. Fui secret&aacute;rio de Eduardo Campos nos seus dois mandatos; um governador que tinha um padr&atilde;o de cobran&ccedil;a, de responsabilidade e de muita entrega&rdquo;, afirmou Danilo.
+
+TELEMEDICINA
+O candidato prometeu agilizar a marca&ccedil;&atilde;o e realiza&ccedil;&atilde;o de consultas e exames na rede p&uacute;blica de sa&uacute;de. Para solucionar o gargalo, quer investir em telemedicina.
+&ldquo;&Eacute; voc&ecirc; descentralizar esse atendimento a partir da utiliza&ccedil;&atilde;o da tecnologia. Usando a telemedicina, voc&ecirc; consegue acabar com muitos problemas que hoje temos nas filas de exames e consultas&rdquo;, argumentou Danilo, explicando que a telemedicina ser&aacute; utilizada, sobretudo, em consultas de menor complexidade, fazendo com que as pessoas n&atilde;o tenham que se deslocar at&eacute; uma unidade de sa&uacute;de. &ldquo;&Eacute; assim que a China, pa&iacute;s mais populoso do mundo, atende uma parte da sua popula&ccedil;&atilde;o&rdquo;, comentou.

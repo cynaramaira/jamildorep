@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Presidente do PT no Rio diz não fazer questão de Dilma em festa da sigla"
+date: 2016-02-25
+tags: Dilma,festa,Naomi Campbell,Presidente
+author: None
+---
+Estadão Conteúdo - O presidente do PT do Rio de Janeiro, Washington Quaquá, afirmou nesta quinta-feira, dia 25, que não faz questão da presença da presidente Dilma Rousseff na festa de 36 anos do partido, que serão comemorados neste sábado, 27, com show do sambista Diogo Nogueira e da bateria da Portela, na zona portuária do Rio.
+Mais cedo, rumores apontavam que Dilma queria cancelar sua participação na festa. Ministros do PT, porém, ainda estariam tentando convencê-la a mudar de ideia. A decisão de Dilma teria ocorrido após ela ser informada de que a ofensiva do PT contra o ajuste fiscal será ampliada neste fim de semana.
+A versão oficial é de que Dilma estará no Chile para um encontro com a presidente Michelle Bachelet e, com a agenda apertada, há risco de não conseguir chegar a tempo do ato político. Na prática, porém, ela estaria cada vez mais irritada com os ataques do PT ao governo e já teria percebido que o partido subirá o tom das cobranças na reunião do Diretório Nacional, marcada para esta sexta-feira, 26.
+Quaquá integra o grupo de petistas que não aceitam a política econômica do governo. A insatisfação foi agravada com a aprovação, na noite de quarta-feira, 24, do projeto do senador José Serra (PSDB-SP) que desobriga a Petrobras de ser operadora única e ter participação mínima de 30% na exploração da camada do pré-sal.
+Pouco antes da votação, o governo negociou com o relator do projeto, Romero Jucá (PMDB-RR), que a Petrobras tenha pelo menos o direito de preferência em futuras licitações.
+Questionado sobre a possibilidade de Dilma não ir à festa, por estar contrariada com a reação do PT contra o ajuste fiscal, Quaquá respondeu: "Eu não faria questão da presença dela, mas falo em meu nome, não do partido".
+Quaquá defendeu que o PT deixe claras as divergências com as medidas defendidas pelo governo, como a reforma da Previdência. "Quem está contrariado com ela (Dilma) somos nós, por causa do pré-sal. O acordo com o PSDB ontem vai consolidando o movimento que está jogando fora a política econômica do (ex) presidente Lula. O governo está se distanciando muito no nosso projeto. O PT tem que pressionar de maneira mais dura", disse o dirigente petista, também prefeito de Maricá, no litoral fluminense.
+Nesta sexta-feira, 26, o Diretório Nacional do PT se reúne no Rio e deverá aprovar um documento com críticas à política econômica. No dia seguinte, a festa de aniversário acontecerá no espaço batizado Armazém da Utopia, onde serão esperadas 3 mil pessoas.
+O PT não informou os gastos com a festa. A assessoria de Diogo Nogueira também não informou o cachê do artista. Disse que é um contrato profissional "como qualquer outro" e que o sambista não tem vínculo com o partido.
+No carnaval do ano passado, a prefeitura do Rio pagou R$ 95 mil pela apresentação de Diogo e sua banda no Terreirão do Samba. No réveillon de 2013, quando os artistas cobram cachês bem mais altos, o show de Diogo na Praia de Copacabana custou à prefeitura R$ 250 mil.
+A bateria da Portela foi contratada pelo PT por R$ 7 mil, segundo a assessoria da escola de samba. A apresentação terá 12 ritmistas, um mestre de bateria, um cantor, quatro passistas, casal de mestre-sala e porta-bandeira e um diretor responsável pela organização.
+Na reunião do Diretório Nacional e na festa petista, ocorrerão atos de desagravo ao ex-presidente Lula, investigado por força-tarefa da Operação Lava Jato, por suspeita de ser proprietário oculto do sítio Santa Bárbara, em Atibaia (SP), onde empreiteiras com contratos com a União fizeram obras de benfeitorias.
+O presidente do PT-RJ reclamou do fato de a Polícia Federal não ter até agora aberto inquérito para investigar suspeita de que o ex-presidente Fernando Henrique Cardoso, do PSDB, tenha recorrido a uma empresa privada para mandar dinheiro para o exterior à jornalista Mirian Dutra, com quem manteve um relacionamento nos anos 1990.
+Mirian disse ao jornal Folha de S.Paulo que Fernando Henrique usou a empresa Brasif S.A. para enviar recursos a ela. O ex-presidente tucano negou ter qualquer relação com contrato de prestação de serviço assinado entre a jornalista e a empresa.
+"Vamos prestigiar o Lula. É preconceito achar que pobre não pode ascender socialmente. Para nossos adversários, os petistas não podem pegar o elevador social", afirmou Quaquá.
+A relação entre Dilma e o PT vai de mal a pior. Apesar do convite da cúpula petista, ela não quis gravar nenhum depoimento para o programa de TV do partido, que foi ao ar na terça-feira e provocou panelaços em todo o País.

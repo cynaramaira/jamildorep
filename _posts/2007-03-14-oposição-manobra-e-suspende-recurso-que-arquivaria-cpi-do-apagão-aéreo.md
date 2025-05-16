@@ -1,0 +1,8 @@
+---
+layout: post
+title: "Oposição manobra e suspende recurso que arquivaria CPI do apagão aéreo"
+date: 2007-03-14
+tags: acidente aéreo, apagão, Oposição
+author: None
+---
+Deputados de oposi&ccedil;&atilde;o conseguiram adiar h&aacute; pouco a vota&ccedil;&atilde;o do recurso do PT contra a instala&ccedil;&atilde;o da CPI do Apag&atilde;o A&eacute;reo por meio de pedido de vista conjunto. A informa&ccedil;&atilde;o &eacute; da Ag&ecirc;ncia C&acirc;mara.&nbsp;O recurso, dessa forma, s&oacute; poder&aacute; ser analisado na Comiss&atilde;o de Constitui&ccedil;&atilde;o e Justi&ccedil;a e de Cidadania (CCJ) na pr&oacute;xima semana.Antes do pedido de vista, o relator do recurso, deputado Colbert Martins (PMDB-BA), apresentou seu voto. Segundo ele, o requerimento para cria&ccedil;&atilde;o da comiss&atilde;o de inqu&eacute;rito apresente tr&ecirc;s falhas: n&atilde;o indica o n&uacute;mero de seus integrantes, n&atilde;o estabelece data de funcionamento, nem apresenta fato certo e determinado, como estabelece a Constitui&ccedil;&atilde;o. Martins disse que, por essas raz&otilde;es, o recurso do PT deve ser acatado pela CCJ, e o requerimento de cria&ccedil;&atilde;o da CPI deve ser arquivado.No recurso, o PT alega que n&atilde;o h&aacute; fato determinado para justificar a investiga&ccedil;&atilde;o. A oposi&ccedil;&atilde;o &eacute; contra a vota&ccedil;&atilde;o da mat&eacute;ria por considerar que o pedido de instala&ccedil;&atilde;o da CPI cumpriu os pressupostos constitucionais exigidos. Pelo menos tr&ecirc;s votos em separado contr&aacute;rios ao do relator foram apresentados por deputados de oposi&ccedil;&atilde;o para tentar garantir a instala&ccedil;&atilde;o da CPI.&nbsp; A reuni&atilde;o da CCJ foi encerrada pouco antes das 15h. 

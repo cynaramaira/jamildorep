@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Governo Temer prevê vitória no julgamento do TSE, mas teme 'fato novo'"
+date: 2017-06-08
+tags: Anavitória,governo,Julgamento,Michel Temer,novos
+author: None
+---
+Estadão Conteúdo - Após duas sessões do julgamento da ação no Tribunal Superior Eleitoral que pede a cassação da chapa Dilma Rousseff-Michel Temer, o Palácio do Planalto contabiliza uma maioria apertada, mas suficiente para garantir a absolvição do presidente.
+A maior preocupação, porém, é com um "fato novo" referente às investigações envolvendo o presidente que possa influenciar no resultado do processo. A previsão é de que o julgamento termine, no mais tardar, no sábado.
+Ministros ouvidos pela reportagem disseram estar confiantes de que Temer não terá o mandato cassado pelo TSE - a previsão do placar é de 4 a 3 votos a seu favor. A avaliação, contudo, é de que a crise política está longe de ser resolvida e seu desfecho é considerado imprevisível.
+No radar do Planalto estão, principalmente, o ex-assessor Rodrigo Rocha Loures e uma eventual denúncia do procurador-geral da República, Rodrigo Janot. O governo tem informações de que Loures - preso preventivamente - estaria disposto a fazer delação no Ministério Público Federal, embora seu advogado, Cezar Bitencourt, seja contra a medida.
+Aliados do Planalto dão como certo que Janot apresentará acusação formal contra Temer ao Supremo Tribunal Federal (STF) e caberá aos parlamentares da base de sustentação do governo impedir o prosseguimento do processo.
+Circulam ainda no Congresso rumores de que pessoas próximas a Temer podem ser presas por envolvimento nas investigações da Lava Jato. Há também o temor de que novas conversas consideradas comprometedoras sejam divulgadas.
+Outro fator que aumentou a pressão sobre o Planalto foi a divulgação de que o dono da JBS, Joesley Batista, entregou à Procuradoria-Geral da República um diário de voo mostrando que Temer e sua mulher, Marcela, viajaram em 2011 em um jatinho pago pela empresa para Comandatuba e Porto Alegre.
+O governo informou inicialmente que o presidente usou avião da Força Aérea Brasileira (FAB) para os dois destinos, mas na quarta-feira, 7, recuou e afirmou que recorreu a um jato particular, sem pagar pelo serviço. Temer disse que "não sabia a quem pertencia a aeronave".
+SESSÃO NO TSE
+Na quarta-feira, o segundo dia do julgamento no TSE apontou que o placar final da votação será apertado. Intervenções do ministro Luiz Fux aumentaram o grau de incerteza sobre o resultado. O voto de Fux, que também compõe o STF, era tido como uma incógnita por advogados.
+Nas manifestações de terça-feira, 6, no entanto, o ministro demonstrou que deve admitir que os depoimentos de executivos da Odebrecht integrem o processo, o que desmonta o principal argumento dos advogados de Temer e Dilma de que as revelações dos delatores fizeram com que a ação "extrapolasse" o pedido inicial.
+Para o ministro, o juiz tem poder para convocar testemunhas necessárias ao processo. Fux, que encabeçou a comissão que elaborou o novo Código de Processo Civil, foi enfático ao dizer que há jurisprudência do Supremo sobre os poderes do juiz.
+Ainda que admita como legítimas as medidas adotadas pelo relator, ministro Herman Benjamin, de convocar os delatores, Fux ainda pode dizer que os depoimentos não devem ser levados em conta na hora do julgamento. Mas a postura firme do ministro em defesa dos atos do relator foi vista como um indicativo de que Fux tende a acompanhar Benjamin, de quem se espera um voto duro pela cassação da chapa reeleita em 2014.
+Do outro lado, o presidente do TSE, Gilmar Mendes, e Napoleão Nunes Maia e Admar Gonzaga deram sinais favoráveis à defesa do presidente. Apesar de ainda não entrarem na fase de voto, os ministros começaram a deixar posicionamentos claros.
+A discussão sobre a manutenção ou não de parte das provas e de depoimentos na ação é crucial para seu resultado. Se a maioria do tribunal descartar os depoimentos da Odebrecht e dos ex-marqueteiros do PT João Santana e Mônica Moura do processo, a avaliação de advogados é de que não há elementos suficientes para cassar o mandato de Temer. Para Dilma, o que está em jogo é a inelegibilidade por oito anos.
+A expectativa é de que a ministra Rosa Weber endosse a atuação de Benjamin e acompanhe o relator pela cassação da chapa. Resta como indecifrável, para os advogados, a posição do ministro Tarcísio Vieira de Carvalho. Ele é o terceiro a votar depois do relator.

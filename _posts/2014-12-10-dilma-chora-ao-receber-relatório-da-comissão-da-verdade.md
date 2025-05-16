@@ -1,0 +1,20 @@
+---
+layout: post
+title: "Dilma chora ao receber relatório da Comissão da Verdade"
+date: 2014-12-10
+tags: comissão mista,Dilma,Relatório
+author: None
+---
+ Foto: Lucio Bernardo Jr/Câmara dos Deputados
+A presidente Dilma Rousseff recebeu nesta quarta-feira (10) o relatório final da Comissão Nacional da Verdade (CNV) e disse que o trabalho do grupo vai ajudar a afastar “fantasmas de um passado doloroso” e permitir que os brasileiros conheçam a história das violações aos direitos humanos durante a ditadura militar para que elas não se repitam.
+“Nós, que acreditamos na verdade, esperamos que esse relatório contribua para que fantasmas de um passado doloroso e triste não possam mais se proteger nas sombras do silêncio e da omissão".
+Muito emocionada, Dilma chorou ao dizer que o Brasil merecia a verdade sobre a ditadura militar, e ao lembrar dos parentes das vítimas e desaparecidos. “Sobretudo merecem a verdade aqueles que perderam familiares e parentes e que continuam sofrendo como se eles morressem de novo e sempre a cada dia”, disse, com a voz embargada, após interromper o discurso por causa do choro.
+Dilma diz que Brasil "merece a verdade" e chora em cerimônia da CNV
+O relatório final da CNV faz um relato das atividades desenvolvidas pelo colegiado durante os dois anos e sete meses de investigações, além de fatos apurados, conclusões e recomendações. De acordo com o coordenador do colegiado, Pedro Dallari, uma das conclusões mais importantes do relatório final é a confirmação de que as graves violações aos direitos humanos, durante o período da ditadura militar, foram praticadas de maneira sistemática.
+Dilma agradeceu e elogiou o trabalho dos integrantes do grupo e disse que a conclusão das atividades da comissão não representa um ponto final nas investigações das violações de direitos humanos na ditadura. Segundo Dilma, o Estado brasileiro vai se “debruçar” sobre o relatório, “olhar as recomendações e propostas e tirar as consequências necessárias”. A presidente citou os trabalhos de comissões da verdade estaduais e setoriais como complementares ao trabalho do colegiado.
+Dilma também fez um agradecimento aos órgãos que colaboraram com as investigações da comissão e aos “homens e mulheres livres que relataram a verdade para a comissão”, principalmente aos parentes de vítimas e sobreviventes do período militar.
+“Presto homenagem e manifesto caloroso agradecimento aos familiares dos mortos e desaparecidos, aqueles que com determinação, coragem, generosidade, aceitaram contar suas histórias e histórias de parentes, amigos, companheiros que viveram tempos de dor, morte e sofrimento”.
+A presidente ressaltou o trabalho histórico da comissão e a importância das investigações do grupo para o reconhecimento do direito à memória – principalmente para as gerações que nasceram após o período militar – e para a reconciliação nacional, com valorização dos pactos e acordos que levaram o país à redemocratização.
+“Com a criação dessa comissão, o Brasil demonstrou a importância do conhecimento desse período para não mais deixá-lo se repetir”, disse. “Conhecer a história é condição imprescindível para construí-la melhor. Conhecer a verdade não significa reagir, não deve ser motivo para ódio. A verdade liberta daquilo que permaneceu oculto”, comparou.
+Ao receber o documento de 4,4 mil páginas, que também está disponível na internet, Dilma disse que a apresentação simultânea para o governo e para a sociedade mostra que o trabalho da CNV foi isento de interferências e que é resultado de uma decisão do Estado brasileiro, e não apenas de um governo.
+Criada pela Lei 12.528/2011 e instalada em maio de 2012 para examinar e esclarecer violações de direitos humanos cometidas entre 1946 e 1988, principalmente no período da ditadura militar (1964-1985), a Comissão Nacional da Verdade terá seus trabalhos encerrados no próximo dia 16. No relatório final, o grupo sugere a criação de um órgão público para dar seguimento e a continuidade às ações da CNV.

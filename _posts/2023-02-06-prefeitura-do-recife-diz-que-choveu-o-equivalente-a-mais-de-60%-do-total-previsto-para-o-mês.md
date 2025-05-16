@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Prefeitura do Recife diz que choveu o equivalente a mais de 60% do total previsto para o mês"
+date: 2023-02-06
+tags: jamildo, chuva
+author: Jamildo Melo
+---
+A Defesa Civil do Recife informou que, nas &uacute;ltimas 6h, foram registradas chuvas que chegaram a 77,93 mm em algumas partes da cidade, o equivalente a mais de 60% do total previsto para o m&ecirc;s, que &eacute; de 122,90 mm.
+A Apac emitiu um novo alerta de chuva na manh&atilde; desta segunda-feira (6), elevando de Estado de Observa&ccedil;&atilde;o (amarelo) para Estado de Aten&ccedil;&atilde;o (laranja). A Defesa Civil na cidade recebeu 39 chamados da popula&ccedil;&atilde;o no per&iacute;odo citado, referentes a solicita&ccedil;&otilde;es de lonas e pedidos de vistoria, nenhuma delas com gravidade.
+Pontos de Alagamento
+- Avenida Lins Petit, Avenida Marechal Mascarenhas de Moraes, Avenida Visconde de Albuquerque, Estrada dos Rem&eacute;dios, Avenida Agamenon Magalh&atilde;es, Avenida. Dois Rios, Avenida Abdias de Carvalho, Rua Dom Bosco, Rua Cosme Viana, Avenida Mascarenhas de Moraes, T&uacute;nel Felipe Camar&atilde;o, Rua Expedicion&aacute;rio Francisco Vitoriano, Viaduto Papa Jo&atilde;o Paulo II ao lado do F&oacute;rum Rodolfo Aureliano, Avenida Norte / Rua 48, Av. Beberibe / Lombada eletr&ocirc;nica
+A Autarquia de Manuten&ccedil;&atilde;o e Limpeza Urbana (Emlurb) destacou que, nas &uacute;ltimas horas, foram registradas tr&ecirc;s quedas de &aacute;rvores na cidade, com servi&ccedil;o j&aacute; em andamento.
+A Rede Municipal de Ensino do Recife n&atilde;o suspendeu as aulas. Apenas as unidades que ficam em &aacute;reas de alagamento e n&atilde;o puderam receber os estudantes est&atilde;o sem atividades no momento. As escolas que ficam em localidades que n&atilde;o est&atilde;o alagadas seguem com aulas normais. Para o turno da tarde, a Secretaria de Educa&ccedil;&atilde;o ir&aacute; avaliar durante o dia, a depender da intensidade da chuva, para tomar a decis&atilde;o sobre suspender ou n&atilde;o.
+Equipes formadas por 150 agentes e 165 orientadores de tr&acirc;nsito da Autarquia de Tr&acirc;nsito e Transporte Urbano (CTTU) trabalham em &aacute;reas que foram afetadas pelas chuvas. Al&eacute;m disso, equipes t&eacute;cnicas trabalham com o intuito de realizar os ajustes necess&aacute;rios na rede semaf&oacute;rica da cidade. Entre as 0h e 7h da segunda-feira (7), n&atilde;o foram registrados sinistros de tr&acirc;nsito com v&iacute;timas.
+No per&iacute;odo, a CTTU registrou ocorr&ecirc;ncias em 21 sem&aacute;foros, 6 j&aacute; atendidas e 15 em atendimento. A Central de Opera&ccedil;&otilde;es de Tr&acirc;nsito (COT) da CTTU, que funciona 24 horas por dia, tamb&eacute;m realiza o trabalho de monitoramento das vias, identificando os pontos mais cr&iacute;ticos, atrav&eacute;s de 162 c&acirc;meras de videomonitoramento.

@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Diante dos escândalos envolvendo estatal, Petrobras adia divulgação do balanço trimestral"
+date: 2014-11-13
+tags: balanço,divulgação,Petrobras
+author: None
+---
+ Foto: reprodução da Internet
+Face às denúncias e investigações da Operação Lava Jato, a Petrobras informou nesta quinta-feira (13) à noite que vai adiar a divulgação das demonstrações financeiras do terceiro trimestre. A estatal justifica a atitude afirmando que é necessário "maior aprofundamento nas investigações" para proceder os possíveis ajustes no balanço trimestral da empresa.
+A decisão dos auditores da PricewaterhouseCoopers (PWC) é esperar a conclusão das investigações que a própria Petrobras está realizando sobre as denúncias feitas pelo ex-diretor da companhia Paulo Roberto Costa, no acordo de delação premiada no âmbito da Operação Lava Jato.
+Leia a nota enviada pela assessoria da Petrobras informando o adiamento do balanço.
+A Petrobras informa que não arquivará junto à Comissão de Valores Mobiliários – CVM as demonstrações contábeis do terceiro trimestre de 2014 com o relatório de revisão dos seus Auditores Externos, PricewaterhouseCoopers (PwC), no prazo previsto na Instrução CVM 480/09, pelas razões expostas a seguir.
+Como é de conhecimento público, a Petrobras passa por um momento único em sua história, em face das denúncias e investigações decorrentes da “Operação Lava Jato” conduzida pela Polícia Federal, na qual o ex-diretor de Abastecimento da companhia, Paulo Roberto Costa, foi denunciado pelos crimes de lavagem de dinheiro e organização criminosa e está sendo investigado pelos crimes de corrupção, peculato, dentre outros.
+Diante de tal cenário, e considerando o teor do depoimento do ex-diretor de Abastecimento da companhia, Paulo Roberto Costa à Justiça Federal em 08/10/2014, quando fez declarações que, se verdadeiras, podem impactar potencialmente as demonstrações contábeis da companhia, a Petrobras vem adotando diversas providências que visam ao aprofundamento das investigações.
+Nesse contexto, a Petrobras celebrou contratos, em 24/10/2014 e 25/10/2014, com dois escritórios de advocacia independentes especializados em investigação, um brasileiro, Trench, Rossi e Watanabe Advogados e, outro norte-americano, Gibson, Dunn &amp; Crutcher LLP, tendo por objetivo apurar a natureza, a extensão e os impactos dos atos que porventura tenham sido cometidos no contexto das alegações feitas pelo ex-diretor de Abastecimento da companhia, Paulo Roberto Costa, bem como apurar fatos e circunstâncias correlatos que tenham impacto relevante sobre os negócios da companhia. Tal contratação foi recomendada pelo Comitê de Auditoria em conformidade com as melhores práticas internacionais e autorizada pela Diretoria Executiva da Petrobras.
+Entretanto, em decorrência do tempo necessário para se obter maior aprofundamento nas investigações em curso pelos escritórios contratados, proceder aos possíveis ajustes nas demonstrações contábeis com base nas denúncias e investigações relacionadas à “Operação Lava Jato”; e avaliar a necessidade de melhorias nos controles internos, a Companhia não está pronta para divulgar as demonstrações contábeis referentes ao terceiro trimestre de 2014 nesta data.
+Por conseguinte, em observância ao princípio da transparência, a Petrobras estima divulgar, no dia 12 de dezembro de 2014, informações contábeis relativas ao terceiro trimestre de 2014 ainda não revisadas pelos Auditores Externos, refletindo a sua situação patrimonial à luz dos fatos conhecidos até essa data.
+A Petrobras está empenhada em divulgar as informações do 3º TRI revisadas pelos Auditores Externos o mais breve possível e tão logo haja uma definição sobre a data da conclusão dos trabalhos a companhia comunicará ao mercado, com antecedência mínima de 15 dias, a data para a sua divulgação.
+ 

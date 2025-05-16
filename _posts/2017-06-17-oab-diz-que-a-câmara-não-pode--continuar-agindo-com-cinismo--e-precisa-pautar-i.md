@@ -1,0 +1,12 @@
+---
+layout: post
+title: "OAB diz que a Câmara não pode "continuar agindo com cinismo" e precisa pautar impeachment"
+date: 2017-06-17
+tags: Câmara,impeachment,Naomi Campbell
+author: None
+---
+Estadão Conteúdo - O presidente da Ordem dos Advogados do Brasil (OAB), Claudio Lamachia, disse, em nota, que a Câmara dos Deputados não pode "continuar agindo com cinismo" e precisa pautar "com urgência" a análise dos pedidos de impeachment protocolados na Casa, um deles da própria entidade.
+A nota foi divulgada após publicação de entrevista do empresário Joesley Batista pela Revista Época neste fim de semana em que ele afirma que o presidente Michel Temer é "chefe de organização criminosa". "A Câmara dos Deputados não pode continuar agindo com cinismo, como se nada estivesse acontecendo no País. O presidente da Câmara deve satisfação à população e, por isso, precisa pautar com urgência a análise dos pedidos de impeachment", pede o presidente da OAB.
+Lamachia argumenta ainda que o Brasil não pode continuar pagando a conta das atitudes "pouco republicanas" tomadas pelos ocupantes do poder. Ele ressalta que as autoridades investigadas devem ter direito à ampla defesa, mas que isso não significa que as instituições chefiadas por essas autoridades precisem "ficar sangrando" até o fim do processo, causando prejuízo à sociedade e ao País. "É preciso proteger as instituições", completou.
+No fim de maio, a OAB entregou à Câmara pedido de impeachment do presidente, o que, segundo a entidade, foi feito após uma análise técnico-jurídica que concluiu que estão presentes elementos que configuram crime de responsabilidade, assim como ocorreu com a presidente Dilma Rousseff. "O próprio presidente tornou os fatos incontroversos ao confirmar a conversa com Joesley Batista em que o empresário lhe relatou uma série de ilícitos. Nada ter feito após receber essas informações é crime de responsabilidade e, segundo a Constituição, deve ser punido com impeachment", acrescentou Lamachia.
+O presidente da OAB disse ainda que a lei deve ser aplicada rigorosamente a todos, independentemente do cargo ocupado, e que um futuro melhor para o Brasil depende do respeito à lei e às instituições. "Sem o resgate moral das instituições - e esse processo começa pela Presidência da República -, o País não emergirá da crise", concluiu.

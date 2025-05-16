@@ -1,0 +1,28 @@
+---
+layout: post
+title: "Relator no julgamento do TSE vota pela cassação da chapa Dilma-Temer"
+date: 2017-06-09
+tags: Dilma,Julgamento,Michel Temer,papelão,Relatório
+author: None
+---
+O relator do processo que investiga a campanha de 2014, Herman Benjamin, do Tribunal Superior Eleitoral (TSE), votou nesta sexta-feira (9) pela cassação da chapa Dilma-Temer. "O meu voto é pela cassação da chapa devido aos abusos que foram apurados nos quatros processos". 
+&gt;&gt; ‘Ministros do TSE têm cegueira intencional’, diz procurador da Lava Jato
+Benjamin foi o primeiro a votar no julgamento sobre o mérito do caso. Ele considerou pertinentes as acusações de abuso de poder político e econômico na disputa, que teriam desequilibrado o pleito em favor da chapa vitoriosa.
+A decisão final sobre o mandato de Temer e a inelegibilidade de Dilma depende ainda dos votos de outros seis ministros do TSE: Napoleão Nunes Maia Filho, Admar Gonzaga, Tarcísio Neto, Luiz Fux, Rosa Weber e Gilmar Mendes. Cada ministro terá cerca de 20 minutos para proferir o voto.
+O julgamento está suspenso e será retomado às 14h30. A previsão é que seja finalizado ainda nesta sexta-feira.
+Durante a leitura de seu voto, Benjamin considerou que "não há dúvidas" de que a campanha de 2014, que reelegeu Dilma Rousseff (PT) e Temer, recebeu doações irregulares, tanto por meio de caixa dois (doações não declaradas) quanto por doações oficiais feitas com dinheiro de propina do esquema de corrupção da Petrobras.
+"Não há dúvidas sobre isso, podemos até retirar essa prova dos autos, mas não há dúvidas sobre tudo isso", disse o relator. "Prova testemunhal, prova documental e em alguns casos até mesmo prova pericial feita pela Polícia Federal nos autos da Operação Lava Jato", concluiu Benjamin.
+Herman fez a afirmação ao mencionar o pagamento pela Odebrecht de parte dos serviços do publicitário João Santana. Tanto Mônica Moura, mulher de Santana, quanto os executivos da Odebrecht relataram pagamentos por caixa dois da empreiteira para o marqueteiro.
+GRÁFICAS
+Por fim, ele também tratou de gastos da campanha que estavam sob suspeita, especialmente em relação às gráficas utilizadas na eleição. Para ele, as empresas Rede Seg e VTPB não tinham capacidade operacional para produzir o volume de material gráfico contratado pela chapa. Ele destacou que a coligação declarou gastos de R$ 22,898 milhões com a VTPB e que esse é um valor que não pode ser desconsiderado. "É impossível entregar milhões de reais a uma empresa que não existe. Não são valores ínfimos. São valores que podem mudar uma campanha eleitoral", disse.
+Em uma última tentativa para mostrar que há material probatório para cassar a chapa mesmo sem levar em conta as provas que têm relação com a Odebrecht, o ministro destacou que os repasses feitos às gráficas, que somaram R$ 56 milhões, representam "um valor muito alto, considerando até mesmo valores que passaram pela Odebrecht ou saíram da Odebrecht".
+QUARTO DIA DE JULGAMENTO
+ Foto: Roberto Jayme/TSE
+No início desta sexta, Herman Benjamin fez um resumo dos pontos que apresentou na sessão anterior, destacando as três premissas metodológicas que apontou até o momento e, em seguida, repetiu os ilícitos que enxergou, afirmando taxativamente que as ilegalidades apontadas têm relação com a Petrobras, objeto da causa inicial. "Trouxe documentos envolvendo Petrobras que configuram abuso de poder econômico. Só isso bastaria para a cassação da chapa", afirmou.
+A primeira das três premissas apresentadas por Benjamin é a da irrelevância da fonte de financiamento. Herman defende que não faz diferença se a fonte é partidária ou eleitoral. "Os partidos políticos acabam se tornando grandes doadores de seus candidatos, sobretudo na eleição presidencial", disse.
+O segundo tópico é o da "fungibilidade" dos recursos. O ministro alega que "há um cofre único, onde recursos lícitos, ilícitos, pouco lícitos, se misturam". Para ele, é impossível "separar recursos limpos e os derivados de propina", que se fundiriam tirando a legalidade da conta como um todo.
+"Recursos ilícitos juntados a recursos lícitos retiram a pureza dos recursos lícitos justamente por conta da fungibilidade. E o acréscimo de recursos lícitos junto a recursos ilícitos é incapaz de purificar a ilegalidade desses recursos", disse.
+A terceira premissa do voto de Herman Benjamin é a que trata da distinção entre a causa da propina e o momento de seu pagamento.
+Em seguida, Herman falou sobre alguns dos ilícitos que encontrou na análise do caso. "Comecei por aquilo que denominei de poupança-gordura ou poupança-propina na Petrobras, e trouxe depoimentos na Justiça Eleitoral e documentos que mostram que, ao longo dos anos, as contas partidárias foram engordadas desequilibrando a paridade de armas e configurando abuso de poder econômico", disse o ministro Herman Benjamin.
+Herman em seguida falou que trouxe "pagamentos de contrato de navios de construção a favor de Monica Moura e João Santana da Sette Brasil, empresa contratada pela Petrobras para a construção de sondas, com valor de US$ 4,5 milhões, sendo o último pagamento de novembro de 2014, o que justifica uma das premissas que apresentei inicialmente, a distinção entre a causa da propina e o momento de seu pagamento. Aqui não tanto para aplicar a premissa, mas para verificar que, nesse caso, a premissa nem sequer poderia ser aplicada porque o pagamento foi durante a campanha de 2014. E o último pagamento teria ocorrido após as eleições de 2014, o que não aconteceu porque os investigados ficaram com medo", disse.
+Por fim, no detalhamento das premissas, Herman fez questão de reiterar a impossibilidade de separar recursos limpos daqueles derivados de propina.

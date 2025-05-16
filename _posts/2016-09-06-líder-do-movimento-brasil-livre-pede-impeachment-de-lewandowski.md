@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Líder do Movimento Brasil Livre pede impeachment de Lewandowski"
+date: 2016-09-06
+tags: brasil,impeachment,Ricardo Lewandowski,Seguradora Líder,Som Livre
+author: None
+---
+Agência Brasil - Um dos líderes do Movimento Brasil Livre, Fernando Holliday, protocolou nesta terça-feira (6), no Senado, um pedido de impeachment do presidente do Supremo Tribunal Federal, ministro Ricardo Lewandowski. Responsável por conduzir o julgamento do processo de impeachment da ex-presidente Dilma Rousseff (PT), Lewandowski acatou o destaque apresentado pelo Partido dos Trabalhadores para que a votação da condenação de Dilma fosse fatiada, resultando na manutenção do direito dela de exercer função pública, mesmo após ter o mandato cassado pelos senadores.
+Segundo Holliday, a decisão de Lewandowski é o que motiva o pedido de impeachment. “O argumento principal é de que o presidente do Supremo cometeu crime de responsabilidade ao aceitar o fatiamento da votação, que votou separadamente o impedimento da presidente Dilma Rousseff e a sua inabilitação política por 8 anos. O texto constitucional é muito claro, ele diz que a consequência direta do impedimento da presidente da República seria a sua inabilitação”, disse aos jornalistas, logo após protocolar a petição.
+Na opinião do coordenador do movimento, o ministro teve oportunidade de analisar a questão com calma, mas agiu com negligência. “O presidente do Supremo soube dias antes desse pedido de destaque, ou seja, ele já tinha analisado a questão previamente, sabia o que seria pedido, teve tempo, claro, de analisar uma questão simples como essa e infelizmente não o fez”, disse.
+No pedido, Holliday pede ainda que o presidente do Senado Federal, Renan Calheiros (PMDB-AL), e o primeiro vice-presidente da Casa, senador Jorge Viana (PT-AC), sejam considerados impedidos de analisar o acatamento do pedido de impeachment de Lewandowski.
+“Primeiro, porque Renan Calheiros foi o responsável por articular tudo isso, ou seja, seria uma parte interessada, e o Jorge Viana, que seria seu vice, é do Partido dos Trabalhadores, justamente o partido que apresentou esse pedido de destaque. Logo, pedimos que quem avalie esse pedido de impeachment seja o segundo-vice presidente do Senado”, afirmou.
+O segundo vice-presidente do Senado é o senador Romero Jucá (PMDB-RR). No entanto, a prerrogativa de acatar ou arquivar pedidos de impeachemnt contra ministros do Supremo e o Procurador Geral da República é do presidente do Senado. Neste caso, Renan Calheiros.

@@ -1,0 +1,16 @@
+---
+layout: post
+title: "PT indica nomes para comissão do impeachment de Temer"
+date: 2016-04-07
+tags: comissão mista,impeachment,Michel Temer,Nomes,sindicato
+author: None
+---
+Estadão Conteúdo - Para formar a comissão do impeachment do vice-presidente Michel Temer, o PT decidiu manter os oito membros titulares que analisam o processo contra a presidente Dilma Rousseff na Câmara dos Deputados. O presidente da Casa, Eduardo Cunha (PMDB-RJ) enviou nesta quarta-feira, 6, um ofício aos líderes partidários solicitando as indicações dos representantes das legendas, mas siglas da oposição prometem obstruir a instalação do colegiado após acordo com o peemedebista. Cunha não estipulou um prazo para as nomeações.
+O líder do PT, Afonso Florence (BA), considera que esta é "uma jogada política" que busca desrespeitar a ordem judicial e blindar Cunha. Segundo ele, inicialmente o presidente da Casa cogitou não seguir a decisão do ministro do Supremo Tribunal Federal (STF), Marco Aurélio Mello, e pediu para que as lideranças apoiassem a decisão, porém PT, PSOL, PCdoB, PSD teriam discordado. Ainda assim, Cunha fez um acordo com partidos da oposição para postergar o processo de instalação da comissão especial enquanto o seu recurso no STF será analisado.
+LEIA TAMBÉM:
+&gt; MBL protocola pedido de impeachment de Marco Aurélio por liminar contra Temer
+&gt; ‘Isso me agride profissional e moralmente’, diz Michel Temer sobre decisão de Marco Aurélio
+&gt; Ministro diz que Cunha cometerá crime de responsabilidade se não prosseguir com pedido de impeachment contra Temer
+Florence disse ainda que, como no processo contra Dilma, ele não apoiará impeachment de Temer, pois não acredita que houve crime de responsabilidade com as chamadas "pedaladas fiscais". Ele disse esperar maior coerência dos partidos, já que a base da denúncia é a mesma para Dilma e Temer. Sobre os comentários de Cunha de que haveria uma interferência do Judiciário no Legislativo, o líder do PT fez uma relação entre a decisão monocrática de Marco Aurélio e a do ministro Gilmar Mendes, que impediu a nomeação do ex-presidente Lula como ministro da Casa Civil.
+Mais cedo, o deputado Wadih Damous (PT-RS) apresentou uma questão de ordem no plenário pedindo para que Cunha estipule um prazo para a instalação do colegiado. "Cunha não constituiu a comissão, não determinou prazo para instalação e nomeação dos membros da comissão. Do nosso ponto de vista, ele não está cumprindo com a determinação judicial." Para os membros do PT, caso haja a omissão de algum líder nas indicações, Cunha deveria intervir. "Já vemos no sistema da Câmara o pedido de várias comissões e não vemos em relação a esta comissão", declarou.
+Como titulares na comissão do impeachment de Temer, foram indicados como membros titulares do PT os deputados Arlindo Chinaglia (SP), Henrique Fontana (RS), José Mentor (SP), Paulo Teixeira (SP), Pepe Vargas (RS), Vicente Cândido (SP), Wadih Damous (RJ) e Zé Geraldo (PA). Como membros suplentes, continuam Benedita da Silva (RJ), Bohn Gass (RS), Carlos Zarattini (SP), Luiz Sérgio (RJ), Paulo Pimenta (RS) e Valmir Assunção (BA). Diferente da comissão do impeachment de Dilma, foram indicados Jorge Solla (BA) e Léo de Brito (AC).

@@ -1,0 +1,27 @@
+---
+layout: post
+title: "Em Porto Alegre, Temer diz que ele e Dilma 'acertaram os ponteiros'"
+date: 2015-12-10
+tags: Dilma,Michel Temer,Porto Alegre
+author: None
+---
+ Foto: Marcelo Camargo/Agência Brasil
+Estadão Conteúdo - O presidente da República em exercício, Michel Temer (PMDB), afirmou nesta quinta-feira, 10, que ele e a presidente Dilma Rousseff (PT) "acertaram os ponteiros" no encontro que tiveram nesta quarta-feira, 9, à noite, no Palácio do Planalto, o primeiro após Temer enviar uma carta à Dilma dizendo que foi "menosprezado" pelo governo. "Conversamos, eu e a presidente e, digamos assim, acertamos os ponteiros", falou em palestra a um grupo de empresários e políticos na capital gaúcha. "Ela compreendeu as manifestações que fiz de maneira pessoal. Se fosse um instrumento político, teria feito outra escrita." Dilma está na Argentina para a posse do presidente Maurício Macri.
+LEIA TAMBÉM:
+&gt; ‘Temer estará mais próximo das nossas decisões’, diz novo líder do PMDB na Câmara
+&gt; Jarbas Vasconcelos pediu para Michel Temer se cercar de pessoas de bem
+&gt; Dilma e Temer afirmam que terão relação profícua, pessoal e institucional
+&gt; Instituições estão funcionando e País vive normalidade democrática, diz Temer
+Nesta quarta-feira, ao deixar o encontro, Temer se limitou a dizer que ele e Dilma haviam combinado de "manter uma relação pessoal e institucional que seja a mais fértil possível". À plateia que o ouviu no Rio Grande do Sul, o peemedebista explicou que escreveu a carta com o propósito que tem "todo o bom brasileiro". Ele também disse que, ontem, ele e a presidente se entenderam perfeitamente sobre os destinos do País. "Acertamos que tanto no plano pessoal como profissional teríamos a relação mais profícua possível. Quando isso ocorre é em nome do País", revelou.
+Temer falou por cerca de 20 minutos. Segundo ele, é necessário estabelecer no Brasil um clima de otimismo que foi se perdendo com o tempo. "Quando você não tem entusiasmo dos setores eles não prosperam", disse. "A palavra que eu tenho procurado trazer é sempre de otimismo."
+Reunificação do País
+Temer voltou a falar na necessidade de reunificação do País e fez um chamamento a um processo de pacificação nacional. O presidente em exercício disse que hoje há uma espécie de dissensão entre os brasileiros. Ele também disse que tem falado sobre este assunto com a presidente Dilma Rousseff (PT).
+"Começou a se estabelecer, nos últimos tempos, uma guerra quase fratricida entre setores da sociedade. O que nós precisamos é da pacificação nacional. Precisamos reunificar o País. Se quisermos realmente, e eu tenho trocado ideias com a presidente sobre isso, se quisermos fazer o País prosperar neste momento de dificuldade, nós temos que chamar todos os setores sociais, todos os partidos políticos. Temos que fazer quase um governo de união nacional", falou.
+No decorrer de seu pronunciamento, ele lembrou ganhos sociais, políticos e econômicos conquistados desde a Constituição de 1988 De acordo com Temer, o Brasil "cresceu com toda a liberdade" e que, num determinado ponto desse processo, "começaram as reivindicações". Ele citou a tese da democracia da eficiência, defendida pelo PMDB, para dizer que não se surpreendeu com as manifestações populares de 2013.
+Em outro ponto, sem citar a crise atual, afirmou que a harmonia dos poderes está acima da independência deles. "Importante dizer isso porque, sempre que há desarmonia entre Executivo e Legislativo, há uma inconstitucionalidade. Não pode haver desarmonia", avaliou.
+Durante o discurso, Temer foi aplaudido no momento em que defendeu o estabelecimento de um novo pacto federativo no Brasil Ele disse que existe necessidade de haver uma repartição mais justa dos recursos, hoje majoritariamente nas mãos da União. A reformulação do pacto federativo, segundo ele, passaria por uma reforma tributária. "Se esta ideia for levada adiante, isso dará um fôlego ao País".
+A carta
+O ex-ministro da Aviação Civil Eliseu Padilha (PMDB) foi homenageado pela revista que promoveu o evento. Ao subir ao palco para agradecer o reconhecimento, antes de Temer falar, o político gaúcho disse que a carta enviada pelo vice-presidente era privada, mas que sua divulgação teve um lado positivo.
+De acordo com Padilha, todos os brasileiros tiveram a oportunidade de conhecer um outro lado de Temer que não o de vice-presidente. "Uma pessoa humilde, que quando é preterida sente, quando é magoada sente, como qualquer outro brasileiro. Ele se mostrou como é", disse, acrescentando que o colega de partido abriu seu coração e sua alma.
+Na entrada do hotel onde ocorria o evento, Temer era esperado por um grupo de manifestantes contrários ao impeachment. A mobilização fez com que o carro que levava o vice-presidente entrasse pelos fundos. Temer chegou com quase duas horas de atraso. Antes de se dirigir ao salão principal, se reuniu privadamente por alguns minutos com um pequeno grupo de convidados, entre eles o empresário Jorge Gerdau Johannpeter.
+Depois, participou de almoço e, na sequência, proferiu a palestra para lideranças gaúchas. A cúpula do PMDB gaúcho compareceu em peso. Estavam presentes, além do ex-ministro da Aviação Civil Eliseu Padilha, os deputados federais Darcísio Perondi e Osmar Terra e os deputados estaduais Ibsen Pinheiro, que é presidente do partido no Rio Grande do Sul, e Edson Brum, que preside a Assembleia Legislativa do Estado. Também participaram representantes do PP e do PSDB. Nenhuma liderança do PT estava presente.

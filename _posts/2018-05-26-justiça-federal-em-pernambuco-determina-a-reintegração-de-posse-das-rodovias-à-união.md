@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Justiça Federal em Pernambuco determina a reintegração de posse das rodovias à União"
+date: 2018-05-26
+tags: Justiça Federal,pernambuco,Posse,RODOVIAS,União
+author: None
+---
+A juíza titular da 30ª Vara Federal em Pernambuco, Daniela Zarzar, proferiu, no início da noite desta sexta-feira (25), decisão liminar pela reintegração de posse das rodovias federais localizadas no Estado de Pernambuco à União.
+A determinação passou a ser aplicada a partir deste sábado (26), às 7h, quando efetivo da Polícia Militar de Pernambuco e Polícia Rodoviária Federal, poderão dar cumprimento ao mandado.
+Em sua decisão, a magistrada reconhece o direito à manifestação como legítimo e democrático, porém ressalta o descumprimento, por parte dos manifestantes, de decisões judiciais anteriores, além da negativa para negociação com o Governo Federal.
+"Quer isso dizer que o direito de protestar foi sim efetivamente desempenhado e a sociedade apoiou definitivamente a categoria, como se viu das múltiplas postagens nas redes sociais. Ocorre que, após a celebração de pacto, que minora os efeitos danosos da medida anunciada pelo Governo Federal, a manutenção do estado paredista é matéria que excede o direito pacífico de contestação, incorrendo em verdadeiro abuso, a teor do art. 187 do Código Civil", explica a juíza.
+"Considerando a resistência ao cumprimento às ordens judiciais, inclusive a multiplicação de decisões de igual teor por todo o país, assim mostrado pela parte autora com a presente inicial, hei por bem determinar, além da pena pecuniária, outras medidas para alcançar o pleno atendimento à ordem judicial, o que faço munindo-me da previsão legal inserta no art. 519 c/c art. 536, §§ 1º e 3º, do CPC."
+A magistrada determina que a Polícia Rodoviária Federal, com apoio institucional da Polícia Militar, sem prejuízo da participação da Polícia Federal e até mesmo das Forças Armadas, cumpra mandado proibitório e de reintegração de posse mediante mera apresentação de cópia da decisão a qualquer uma pessoa que esteja obstando o curso livre e desimpedido das rodovias.
+"Acaso haja resistência de cumprimento, o policial que efetivar a ordem haverá de advertir o manifestante quanto aos riscos de sua atitude, inclusive em relação à multa pecuniária de R$1.000,00, sem prejuízo da remoção da pessoa para se proceder à sua identificação e consequente suspensão do direito de dirigir, na forma do art. 256, III, do CTN, pelo prazo de 6 meses, o que será cumprido por ofício ao DETRAN", relata a decisão.
+"Acaso haja recidiva da conduta que se quer obstar, tanto a multa quanto a restrição serão dobradas, sem prejuízo de eventual majoração, caso haja necessidade e venha a ser oportunamente identificada. Ainda incidirão as pessoas que obstem a livre circulação de caminhões e carretas nas rodovias nas penas de litigância de má-fé e responsabilização por crime de desobediência. Haja vista a dificuldade de mobilização das forças policiais na data de hoje, a execução da presente ordem se fará a contar das 7h da manhã de sábado, 26/5/2018", conclui o documento.

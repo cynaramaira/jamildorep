@@ -1,0 +1,38 @@
+---
+layout: post
+title: "Veja detalhes da liminar que autorizou Paulo Câmara compensar queda do ICMS"
+date: 2022-10-21
+tags: jamildo, Paulo Câmara
+author: Jamildo Melo
+---
+O Blog de Jamildo j&aacute; tinha adiantado a informa&ccedil;&atilde;o nesta quinta-feira (20), com exclusividade. O site oficial do STF informa que o ministro Lu&iacute;s Roberto Barroso, do Supremo Tribunal Federal (STF), determinou &agrave; Uni&atilde;o que compense, da d&iacute;vida p&uacute;blica do Estado de Pernambuco, as perdas de arrecada&ccedil;&atilde;o do Imposto sobre Circula&ccedil;&atilde;o de Mercadoria e Servi&ccedil;os (ICMS) incidente sobre combust&iacute;veis, g&aacute;s natural, energia el&eacute;trica, comunica&ccedil;&otilde;es e transportes.
+Ele concedeu medida liminar na A&ccedil;&atilde;o C&iacute;vel Origin&aacute;ria (ACO) 3601, ajuizada pelo governo estadual.
+As perdas decorrem da Lei Complementar (LC) 194/2022, que qualificou esses itens como bens e servi&ccedil;os essenciais e vedou a fixa&ccedil;&atilde;o de al&iacute;quotas de ICMS sobre opera&ccedil;&otilde;es com eles em patamar superior ao das opera&ccedil;&otilde;es em geral.
+A liminar determina que a Uni&atilde;o fa&ccedil;a a compensa&ccedil;&atilde;o desde julho deste ano, in&iacute;cio da vig&ecirc;ncia das al&iacute;quotas reduzidas.
+Em sua decis&atilde;o, o ministro Roberto Barroso citou que h&aacute; estimativas apontando que a lei representar&aacute; uma queda de arrecada&ccedil;&atilde;o, para todos os estados, de R$ 83 bilh&otilde;es por ano. O governo de Pernambuco, por sua vez, alega que a sua perda, apenas no segundo semestre de 2022, seria de aproximadamente R$ 1,8 bilh&atilde;o.
+A norma instituiu uma medida compensat&oacute;ria em favor dos estados, e o governo estadual pede que a compensa&ccedil;&atilde;o seja realizada ainda neste ano, m&ecirc;s a m&ecirc;s, enquanto a Uni&atilde;o defende que &eacute; necess&aacute;rio apurar a perda total de 2022 para realiz&aacute;-la apenas no ano que vem.
+Em uma an&aacute;lise preliminar do caso, o relator verificou a plausibilidade das alega&ccedil;&otilde;es de Pernambuco de que a compensa&ccedil;&atilde;o deve ser realizada com periodicidade mensal, a partir da entrada em vigor da LC 194/2022.
+Segundo t&eacute;cnicos, isso porque a lei prev&ecirc; que a compensa&ccedil;&atilde;o ser&aacute; realizada no montante equivalente &agrave; diferen&ccedil;a negativa entre a arrecada&ccedil;&atilde;o de ICMS observada a cada m&ecirc;s e a arrecada&ccedil;&atilde;o observada no mesmo per&iacute;odo no ano anterior.
+Ele destacou que as perdas, que ocorrem mensalmente, decorrem de desonera&ccedil;&atilde;o tribut&aacute;ria promovida pela Uni&atilde;o e desorganizam programa&ccedil;&otilde;es or&ccedil;ament&aacute;rias estaduais aprovadas para este ano.
+Segundo o ministro, a compensa&ccedil;&atilde;o mensal tamb&eacute;m decorre da ideia de federalismo cooperativo.
+&ldquo;Se, de um lado, os estados devem cooperar com os objetivos leg&iacute;timos da Uni&atilde;o na seara econ&ocirc;mica &ndash; especificamente o de reduzir pre&ccedil;os dos combust&iacute;veis &ndash;, o ente federal n&atilde;o pode, de outro lado, desconsiderar que o ICMS constitui a principal fonte de receita dos estados e que muitos deles &ndash; ainda em situa&ccedil;&atilde;o de calamidade financeira &ndash; n&atilde;o ter&atilde;o como cumprir os seus deveres constitucionais e legais ap&oacute;s uma queda de arrecada&ccedil;&atilde;o t&atilde;o expressiva e brusca&rdquo;, salientou.
+O ministro Barroso destacou, ainda, que o c&aacute;lculo da repara&ccedil;&atilde;o deve levar em conta apenas as perdas de arrecada&ccedil;&atilde;o de ICMS nas opera&ccedil;&otilde;es que envolvam combust&iacute;veis, g&aacute;s natural, energia el&eacute;trica, comunica&ccedil;&otilde;es e transporte coletivo.
+A seu ver, permitir que eventuais incrementos de arrecada&ccedil;&atilde;o de ICMS em opera&ccedil;&otilde;es n&atilde;o abrangidas pela desonera&ccedil;&atilde;o sejam considerados no c&aacute;lculo da compensa&ccedil;&atilde;o pode representar apropria&ccedil;&atilde;o, pela Uni&atilde;o, de resultados positivos obtidos pelo estado a partir da ado&ccedil;&atilde;o de pol&iacute;ticas de desenvolvimento econ&ocirc;mico.
+Al&eacute;m disso, os estados, mesmo considerando apenas a redu&ccedil;&atilde;o de arrecada&ccedil;&atilde;o nos produtos e servi&ccedil;os especificados, ainda suportar&atilde;o parte da desonera&ccedil;&atilde;o imposta pela Uni&atilde;o, pois a compensa&ccedil;&atilde;o s&oacute; recai sobre o que exceda ao percentual de 5%.
+"Desse modo, preserva-se o postulado da coopera&ccedil;&atilde;o federativa, sem onerar excessivamente uma das partes", apontou.
+O relator tamb&eacute;m verificou o perigo na demora para a concess&atilde;o da liminar devido &agrave; desorganiza&ccedil;&atilde;o or&ccedil;ament&aacute;ria causada ao estado pela lei, al&eacute;m da impossibilidade de receber recursos de transfer&ecirc;ncias volunt&aacute;rias e opera&ccedil;&otilde;es de cr&eacute;dito e da emerg&ecirc;ncia causada por fortes chuvas em Pernambuco.
+Barroso determinou, tamb&eacute;m, que a Uni&atilde;o assuma os &ocirc;nus decorrentes de eventual atraso no pagamento das d&iacute;vidas e se abstenha de inscrever o estado em quaisquer cadastros federais de inadimpl&ecirc;ncia, al&eacute;m de promover qualquer outro ato restritivo quanto a opera&ccedil;&otilde;es de cr&eacute;dito, conv&ecirc;nios ou risco de cr&eacute;dito, por for&ccedil;a das d&iacute;vidas abrangidas na a&ccedil;&atilde;o.
+
+  
+  Barroso recebeu a a&ccedil;&atilde;o no STF - CARLOS MOURA/STF
+
+LEIA O TEXTO DA LIMINAR
+Diante do exposto, defiro o pedido liminar, para determinar &agrave; Uni&atilde;o que:
+(i) realize a compensa&ccedil;&atilde;o, a partir de julho de 2022 (15.07.2022), das parcelas vincendas dos contratos de d&iacute;vidas do Estado requerente, administradas pela Secretaria do Tesouro Nacional (contra&iacute;das perante a Uni&atilde;o ou garantidas pela Uni&atilde;o), bem como daqueles relativos &agrave;s opera&ccedil;&otilde;es de cr&eacute;dito garantidas pela Uni&atilde;o, com as perdas relacionadas ao ICMS incidente sobre combust&iacute;veis, g&aacute;s natural, energia el&eacute;trica, comunica&ccedil;&otilde;es e transportes, derivadas da implementa&ccedil;&atilde;o da Lei Complementar n&ordm; 194/2022, que excederem a 5% (cinco por cento) em rela&ccedil;&atilde;o &agrave; arrecada&ccedil;&atilde;o deste tributo no ano de 2021, calculadas m&ecirc;s a m&ecirc;s, com base no mesmo per&iacute;odo do ano anterior, com corre&ccedil;&atilde;o monet&aacute;ria pelo IPCA-E;
+(ii) assuma os &ocirc;nus decorrentes de eventual atraso no pagamento das d&iacute;vidas, em raz&atilde;o da aplica&ccedil;&atilde;o do art. 4&ordm;, &sect; 2&ordm;, da Portaria ME n&ordm; 7.889/2022;
+(iii) abstenha-se de inscrever o Estado requerente em quaisquer cadastros federais de inadimpl&ecirc;ncia, al&eacute;m de promover qualquer outro ato restritivo quanto a opera&ccedil;&otilde;es de cr&eacute;dito, conv&ecirc;nios ou risco de cr&eacute;dito, por for&ccedil;a das d&iacute;vidas abrangidas por esta a&ccedil;&atilde;o.
+32. Intime-se com urg&ecirc;ncia a Uni&atilde;o sobre a presente decis&atilde;o.
+33. Cite-se a Uni&atilde;o, para apresentar contesta&ccedil;&atilde;o nos autos.
+Publique-se. Intimem-se.
+Bras&iacute;lia, 17 de outubro de 2022.
+Ministro LU&Iacute;S ROBERTO BARROSORelator

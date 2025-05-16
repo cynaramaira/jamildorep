@@ -1,0 +1,49 @@
+---
+layout: post
+title: "Veja a relação dos primeiros anistiados beneficiados com pagamento de indenizações"
+date: 2007-11-08
+tags: cerveja,indenizações,pagamento
+author: None
+---
+
+1) ADALBERTO XAVIER DE PAULA (Edite Xavier de Oliveira)
+2) ADERICO LAVES DE VASCONCELOS
+3) ALDROVANI TORRE&Atilde;O MARQUES (Nadeje C&acirc;mara Marques)
+4) AMARO FERREIRA DA COSTA
+5) AMARO F&Eacute;LIX PEREIRA
+6) AMAURI LINS DE MELO
+7) ANTONIO CLAUDINO DA SILVA FILHO
+8) ARNALDO GOMES DA CUNHA
+9) &Aacute;UREA SANTOS DA SILVA (Edleuza Santos da Silva)
+10) CELSO RODRIGUES DA SILVA
+11) DARCY LEITE DE OLIVEIRA
+12) EDIVAL FREITAS DA SILVA
+13) EDUARDO MARTINS DE LIMA
+14) ENILDO GALV&Atilde;O CARNEIRO PESSOA
+15) FRANCISCO PASCOAL DE OLIVEIRA (Maura Ribeiro dos Santos)
+16) FRANCISCO PEREIRA DA SILVA (Maria Barbosa da Silva)
+17) GABRIEL BARBOSA DE PAULA (Iremar Jos&eacute; Batista de Paula)
+18) IVANILDO SAMPAIO XAVIER
+19) JAIR BORIN
+20) JARBAS PEREIRA MARQUES (Tercia Maria Rodrigues Mendes)
+21) JO&Atilde;O FRANCISCO DE CARVALHO (Pedro Paulo de Holanda Cardoso)
+22) JOAQUIM CAMILO DE SANTANA (Hozana Carlos de Santana)
+23) JOS&Eacute; EL&Iacute;DIO DO NASCIMENTO
+24) JOS&Eacute; MARIA DA SILVA
+25) JOS&Eacute; WALTER DE OLIVEIRA
+26) JURANDIR BEZERRA
+27) LUIZ SERAFIM DOS SANTOS (No&ecirc;mia Pereira da Silva)
+28) MANOEL JOS&Eacute; RODRIGUES (Ala&iacute;de Maria da Silva e outros)
+29) MANUEL VICENTE DA SILVA (Marcos Vicente da Silva)
+30) MARIA CELESTE VIDAL BASTOS (M&aacute;rcia Maria Vidal Neves)
+31) MILTON COELHO DA GRA&Ccedil;A
+32) OT&Aacute;VIO AM&Acirc;NCIO DE LIMA
+33) OZANA CARLOS DA SILVA
+34) PAULO GOMES DA SILVA
+35) RENATO GOMES DA SILVA (Maria de Lourdes Gomes da Silva)
+36) RINALDO RUY DE CARVALHO LIMA
+37) SEVERINO CORREIA DE LIMA (Maria Jos&eacute; Mendon&ccedil;a de Lima)
+38) VICENTE POMPEU DA SILVA
+39) WALTER COLA&Ccedil;O RODRIGUES
+40) WALTER DA ROCHA ARA&Uacute;JO
+41) YARA CECY FALCON LINS 
